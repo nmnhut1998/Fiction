@@ -1,4 +1,4 @@
-Chương 8: Con nhà ai?
+Chương 8: Tầm đạo
 
 Sư Vương đứng ở hiên đình, bắt lấy lá vàng. 
 
@@ -132,7 +132,7 @@ Thịch. Thịch. Thịch.
 
 Tim tiểu Lạc Vân đập loạn. 
 
-Đây chính là ổ của Mộc Linh Điệp, hơn nữa còn là Mộc Linh Điệp đang trong thời kì đẻ trứng, trên trứng bị Hắc Thực Nhuyễn Trùng kí sinh, hơn nữa đã dùng qua Tẩy Trùng Thảo nhưng không có kết quả. 
+Đây chính là ổ của Mộc Linh Điệp, hơn nữa còn là Mộc Linh Điệp đang trong thời kì đẻ trứng, nhìn qua chắc chắn là trên trứng bị Hắc Thực Nhuyễn Trùng kí sinh, hơn nữa đã dùng qua Tẩy Trùng Thảo nhưng không có kết quả. 
 
 Chẳng phải trong truyện kí thường kể, giữa đường trùng hợp gặp người bệnh nan y, à không, dị thú bị bệnh, chữa khỏi sẽ được hồi đáp hay sao? 
 
@@ -146,14 +146,39 @@ Nếu nữ thần may mắn cười, ngươi chắc chắn sẽ được hồi b
 
 Mộc Linh Điệp, gọi là Linh Điệp, nghĩa là đã đạt được ngưỡng cửa linh thú, chắc chắn tàng trữ không ít thứ tốt. Tiểu Lạc Vân vuốt vuốt mũi, cố gắng đè xuống hưng phấn ra đường gặp được cơ duyên. 
 
+Tiểu Lạc Vân nhanh chóng rời đi, sau đó tìm một góc khuất. 
+
 Áo lông trên người chỉnh một chút, tiểu Lạc Vân sau lưng mọc ra một cái đuôi, khuôn mặt cũng biến đổi, một tiểu hầu tử, nhìn không ra thật giả. Hầu tử lông vàng, chóp đuôi mọc ra một chiếc lá, ở mi tâm có mắt dọc. Đây là Kim Diệp Tam Nhãn Hầu nổi tiếng trong Cổ Lâm, chuyên dùng mầm bệnh, kịch độc để đào tạo bản mệnh Kim Diệp. 
 
 Bản mệnh Kim Diệp của Kim Diệp Tam Nhãn Hầu là một loại dược thảo cộng sinh với Tam Nhãn Hầu, bình thường không có dược tính gì đáng nói, nhưng lại có khả năng sinh ra kháng tính với nhiều loại mầm bệnh, ôn dịch, có khả năng tự hoá giải nhiều loại độc dược. Mà trải qua mỗi lần như vậy, dược tính của Kim Diệp lại tăng thêm mấy phần, cuối cùng Kim Diệp đạt đến đúng độ, phân liệt thêm Kim Diệp mới. Tam Nhãn Hầu có chín Kim Diệp nghe nói có thể luyện thành Tấn Thần Đan, giúp cho Linh thú bước vào thần cấp.
 
 Viên thúc thúc từ trước đã chuẩn bị sẵn cho tiểu Lạc Vân thân phận này, bởi vì trong Cổ Lâm, Tam Nhãn Hầu nhiều vô số, hơn nữa có không ít chọn con đường nuôi dưỡng Kim Diệp. Dù sao trong Cổ Lâm, không ít dị thú có thành kiến với nhân loại. 
 
-Thanh thanh cổ họng, tiểu Lạc Vân cố gắng điều chỉnh thú ngữ mình đã học trở thành ngữ âm hầu ngữ. 
+Thanh thanh cổ họng, tiểu Lạc Vân cố gắng điều chỉnh thú ngữ mình đã học trở thành ngữ âm hầu ngữ. Từ trong Càn Khôn Quy Giáp, tiểu Lạc Vân lấy ra một vài hạt giống rải trên đất, sau đó tưới lên một ít linh dịch màu đỏ nhạt - là tinh huyết của chính mình pha loãng ra trăm nghìn lần. 
 
-Học theo Tam Nhãn Hầu điển hình, tiểu Lạc Vân cầm cái đuôi dài, đưa Kim Diệp ở đuôi lên mũi không ngừng hít hít, từng bước nhẹ nhàng đến hốc cây. 
+Hạt giống nhanh chóng nảy mầm, ra lá, rồi thành thục. Từ bề ngoài có thể đoán được dược niên ước chừng đạt vào khoảng ba mươi năm. 
 
-Một đám bụi từ gốc cây bay ra, lượn lờ trước mặt, lấp lánh thanh quang, ngăn chặn bước tiến của tiểu Lạc Vân. Mộc Linh Điệp Mẫu đưa hai cái râu dài ra ngoài, còn cánh to gần một thước vẫn ở ẩn bên trong. Từ góc độ này có thể nhìn thấy rất nhiều mảng đen dần dần loang lổ trên cánh của Mộc Linh Điệp vốn xanh màu lá non. 
+Nhớ lại Dong gia gia, tiểu Lạc Vân đem lá cây giã nhỏ, lại hoà vào linh dịch, cuối cùng bôi lên trên Kim Diệp. 
+
+Kim Diệp vốn là hàng thật, sau khi bôi dược dịch lập tức biến hoá, màu vàng càng đậm. 
+
+Học theo Tam Nhãn Hầu điển hình, tiểu Lạc Vân cầm cái đuôi dài, đưa Kim Diệp ở đuôi lên mũi không ngừng hít hít, đi trên ba chân, từng bước nhẹ nhàng đến hốc cây. 
+
+Một đám bụi huỳnh quang từ hốc cây bay ra, lượn lờ trước mặt, lấp lánh thanh quang, ngăn chặn bước tiến của tiểu Lạc Vân. Mộc Linh Điệp Mẫu đưa hai cái râu dài ra ngoài, còn cánh to gần một thước vẫn ở ẩn bên trong. Từ góc độ này có thể nhìn thấy rất nhiều mảng đen dần dần loang lổ trên cánh của Mộc Linh Điệp vốn xanh màu lá non. 
+
+Hai cái râu rung rung tạo ra âm thanh, ý nghĩa rất rõ ràng: 
+
+"Con nhà ai, tại sao lại đến đây? Trước đây chưa từng thấy?"
+
+Tiểu Lạc Vân đã dự đoán được từ trước, cái đuôi mang Kim Diệp vẫy vẫy, lại chỉ chỉ về hướng bắc: 
+
+"Nhà đệ ở vùng núi cao phương Bắc, nghe nói chỗ này có nhiều hoa thơm cỏ lạ ..." 
+
+Một cách thành khẩn, tiểu Lạc Vân đặt Kim Diệp trên mặt đất, sau đó từ từ thối lui ra sau. Tiểu Lạc Vận cũng liếc trong hốc cây một cái, đếm đủ mười ba trứng to bằng nắm tay. Trong đó có một quả trứng màu đen. 
+
+Quả trứng màu đen này giống như một tia sét, làm cho tiểu Lạc Vân sững người. 
+
+Cố gắng giữ vững bước chân đã run rẩy, tiểu Lạc Vân bước lùi mười bước, sau đó co giò chạy biến. 
+
+
+
