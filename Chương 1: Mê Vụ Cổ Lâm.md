@@ -1,4 +1,5 @@
 Chương 1: Mê Vụ Cổ Lâm
+
 Người ta có thể đặt tên cho nhiều thứ, tỉ như người ta gọi thứ chất lỏng ở sông, ở suối, ở hồ là nước. Mà bản thân sông, suối, hồ cũng là tên. Có ngôn ngữ, người ta liền biết đặt tên. 
 
 Rồi như đặt tên cho những đứa trẻ, người ta lại càng đặt ra nhiều tên riêng cho nước, cho sông, suối, hồ, nước, hai thậm chí là đại lục. 
@@ -17,7 +18,11 @@ Có người vì hiếu kì, cũng đã mạo hiểm xâm nhập, nhưng đều 
 
 Vì vậy, không ai biết, bên trong mảnh đất đó rốt cuộc là gì, là một phương thiên địa, hay là một cánh rừng nguyên sinh hiếm hoi còn sót lại giữa dòng tranh đấu nhân gian tất tả ngược xuôi. 
 
-Mảnh đất đó đó có tên, cái tên quá mức cổ xưa, bất kể con người hay dị thú không cách nào phát âm, càng không thể nào ghi trên giấy, cho nên, người thường đều cho nó là rừng, gọi là Mê Vụ Cổ Lâm, người tu hành gọi nó  là Cấm Kị Sâm Lâm, mà Hoá Thú Sư cùng Thuần Thú Sư đều gọi nó là Nguyên Thuỷ Tổ Lâm. 
+Mảnh đất đó đó có tên, cái tên quá mức cổ xưa, bất kể con người hay dị thú không cách nào phát âm, càng không thể nào ghi trên giấy, cho nên, người thường đều cho nó là rừng, gọi là Mê Vụ Cổ Lâm, người tu hành gọi nó là Cấm Kị Sâm Lâm, mà Hoá Thú Sư cùng Thuần Thú Sư đều gọi nó là Nguyên Thuỷ Tổ Lâm. 
+
+Tục truyền rằng nhân loại xưa kia không biết tu hành, có linh căn nhưng cực kì yếu kém. Cho tới ngày kia, có hai người nam tử bước ra từ nơi này, mang theo một thứ xa lạ. Một người truyền dạy đạo tự nhiên, hoà hợp muông thú, có thể từ từ bồi dưỡng linh căn. Một người dạy đạo sinh tồn, đấu tranh để sống còn, có thể làm cho linh căn biến đổi mạnh mẽ. 
+
+Sau này, thứ đó được gọi là lửa. Hai trường phái đạo thuật đó, là Thuần Thú Sư và Hoá Thú Sư. 
 
 ………
 
@@ -93,7 +98,7 @@ Gốc cây to đến mức người ta nhìn vào cũng không liên tưởng đ
 
 Trên bức tường đó, đôi mắt già nua mở ra, hàng mi dài, nâu xỉ như rễ không, viền mắt sâu hoắm như năm tháng khắc ghi. 
 
-Khu rừng nguyên sinh quanh năm u uẩn không vết chân người, đâu đó có thể thấy được dương xỉ mọc thành cụm, nhỏ thì cao ngang ngực, to thì cao đến chọc trời. Có quả dại mọc, tỉ như thảo quả đỏ chót, hương thơm lượn lờ ở tầng thấp, cũng có nấm, từ loại ăn được đến có độc, mọc thành từng thảm, chỉ cần chộp một cái cũng được một bó to. Cũng có phong lan bám trên thân cây già, rễ khí đu đưa tham lam hút lấy không khí. Đây đó soạt soạt, dường như có heo rừng ủi đất tìm thức ăn, tiếng xì xào của một con trăn nào đó trườn trên vỏ cây gồ ghề. 
+Khu rừng nguyên sinh quanh năm u uẩn không vết chân người, đâu đó có thể thấy được dương xỉ mọc thành cụm, nhỏ thì cao ngang ngực, to thì cao đến cgiảtrời. Có quả dại mọc, tỉ như thảo quả đỏ chót, hương thơm lượn lờ ở tầng thấp, cũng có nấm, từ loại ăn được đến có độc, mọc thành từng thảm, chỉ cần chộp một cái cũng được một bó to. Cũng có phong lan bám trên thân cây già, rễ khí đu đưa tham lam hút lấy không khí. Đây đó soạt soạt, dường như có heo rừng ủi đất tìm thức ăn, tiếng xì xào của một con trăn nào đó trườn trên vỏ cây gồ ghề. 
 
 Trong không khí lúc nào cũng có một luồng khí tức tươi mới, tràn đầy sinh cơ, để người ta không nhịn được hít thở càng sâu. Lại càng có một chút gì đó tôn nghiêm, như tượng thần cổ xưa, nguyên thuỷ mà người ta thường tò mò muốn biết, mà càng tò mò, lại càng thêm nhiều phần kính sợ.
 

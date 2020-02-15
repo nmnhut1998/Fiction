@@ -20,9 +20,17 @@ Tiểu Lạc Vân mặc áo dệt từ tơ của Lưu Ly Tri Chu, gọi là Lưu
 
 Bình an phù tựa như vòng tay, tròn tròn, phía trong dùng tơ Lưu Ly Tri Chu bện vào nhau lại thành một phù văn phức tạp, giữ lấy một viên lam ngọc khắc ấn kí hoa sen, xung quanh kết bảy chiếc lông vũ nhỏ nhỏ xinh xinh, màu sắc khác nhau. Thứ đồ chơi nho nhỏ này chính là giá trị vạn kim không thể cầu, gọi là Khổng Tước Bình An Phù.
 
+Tất cả đều có ấn ý Liên Hoa. Bởi vì chúng đều là Thanh Liên Linh Bảo đặc thù, độc nhất vô nhị thuộc về Cự Viên. 
+
+Linh bảo bình thường cần có chân khí hoặc linh khí mới có thể sử dụng. Nhưng Thanh Liên Linh Bảo của Cự Viên có thể thông qua linh thạch hoặc ngoại lực mà kích phát, hơn nữa thậm chí có khả năng trưởng thành. Có thể nói nếu phàm nhân sở hữu Thanh Liên Linh Bảo, hắn không cần linh căn vẫn có thể sở hữu lực lượng ngày một lớn mạnh, khuyết điểm duy nhất có lẽ là tuổi thọ mà thôi. 
+
+Mỗi ấu thú trong Cổ Lâm đều ao ước mình có một món Thanh Liên Linh Bảo, như vậy chẳng khác nào mình sở hữu tư chất tu luyện thượng phẩm. 
+
+Ở Thiên Dư đại lục, có thể chế tạo Thanh Liên Linh Bảo chỉ có hai người, một người đã chết, một "người" là Cự Viên. Cho nên, Cự Viên giàu nứt vách. 
+
 Mà Cự Viên gom góp tài phú, vẫn không nuôi nổi tiểu Lạc Vân. 
 
-Cho dù là Lưu Ly Bảo Y, đuôi của Băng Hoả Song Hồ nức tiếng Cổ Lâm, hay là Khổng Tước Bình An Phù vẫn không thể che đậy khí tức thuần dương chi lôi trên người tiểu Lạc Vân
+Cho dù là Lưu Ly Bảo Y, đuôi của Băng Hoả Song Hồ nức tiếng Cổ Lâm, hay là Khổng Tước Bình An Phù vẫn không thể che đậy khí tức thuần dương chi lôi trên người tiểu Lạc Vân. 
 
 Khả năng này độc hữu thuộc về Sư Vương. 
 

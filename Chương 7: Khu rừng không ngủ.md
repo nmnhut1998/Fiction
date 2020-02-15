@@ -104,7 +104,7 @@ Một ấu thú liều mạng gầm lên, toàn thân tinh huyết phun ra, châ
 
 Màn đêm dần được kéo lên. Bình minh rọi xuống tầng đất đã thấm máu ướt đẫm. 
 
-Trên mặt đất, hỗn độn chi tinh - tinh hoa của hung thú ngồn ngang, tựa như thóc gạo rơi vãi. Ấu thú tìm kiếm hỗn độn chi tinh thích hợp với mình. 
+Trên mặt đất, hỗn độn chi tinh - tinh hoa của hung thú ngồn ngang, tựa như thóc gạo rơi vãi. Ấu thú tìm kiếm hỗn độn chi tinh thích hợp với mình, phần còn lại đợi Viên lão sư thu nhặt, sau đó luyện thành Liên Hoa đan. Việc phân phối Liên Hoa đan như thế nào là do Viên lão sư toàn quyền quyết định, dù sao hung thú chi tinh chỉ là nguyên liệu chính, phần nguyên liệu phụ cùng với công sức bỏ ra đều là do Viên lão sư bỏ ra. 
 
 Dần dần, một mầm cây ương ngạnh từ mặt đất trồi lên, mở ra hai chiếc lá non rung rinh. Tiếp đó, lại một mầm. 
 
