@@ -177,6 +177,14 @@ Chỉ là, vết thương không khép lại.
 
 Sư Vương không cách nào khác. Máu tiểu hài tử chảy ra bao nhiêu, hắn truyền máu của bản thân vào bấy nhiêu. 
 
+Đôi mắt hắn chậm rãi nhắm lại. Cảm xúc trên khuôn mặt hắn hỗn tạp. Có mơ hồ, có do dự, có tự giễu. Thậm chí là xấu hổ.
+
+Cuối cùng, bàn tay hắn nắm lại, linh khí trong cơ thể loạn chuyển tụ về đan điền. Kim quang chợt loé, một tiếng rên đau đớn bật ra, sau đó bị nuốt trở lại. Sư Vương đổ gục, trên tay vẫn ôm tiểu Lạc Vân. 
+
+Máu của hắn trở nên vàng óng ánh, thơm ngào ngạt, tựa như giọt rượu mà vị thần nào đó vô ý để rơi xuống nhân gian. Tiểu hài tử đột nhiên quẫy đạp, một giọt máu rơi vãi, bị gió cuốn đi, lập tức biến thành một trận linh khí tinh thuần, quét qua đình viện. Cây cối trong đình viện đón lấy linh khí, vô số chồi non mọc ra, mơn mởn xanh. 
+
+Một nụ cười yếu ớt nở trên đôi môi tái nhợt. 
+
 Ít nhất tiểu Lạc Vân sẽ không chết đêm nay. Dong lão sẽ đến. Tiểu Lạc Vân sẽ sống. Sẽ sống. 
 
 Cũng không biết trải qua bao lâu, tưởng chừng như một thân máu huyết của hắn vừa hồi phục sắp cạn kiệt, vết thương mới dừng chảy máu. 
@@ -209,11 +217,13 @@ Tiếng cười giòn tan như nắng mới. Tiểu Lạc Vân nắm mũi của 
 
 Tiểu hài tử vẫn có bản năng của tiểu hài tử, lúc ngủ thường thích cầm nắm vài thứ. 
 
-Sư Vương đứng cũng không xong, ngồi càng không được, chỉ có thể duy trì tư thế như vậy. 
+Sư Vương ngồi cũng không xong, nằm càng không được, chỉ có thể duy trì tư thế như vậy. 
 
 Ngoài kia, mặt trời dần lên, sườn núi phía Bắc đón ánh mai ấm đầu tiên sau mấy tháng mùa đông buốt giá. 
 
 Bên rèm, bóng người từ từ, cẩn thận ngồi xuống, một tiếng thở dài bị nuốt vào trong. 
+
+Một sợi tóc vàng từ trên đầu hắn rụng xuống, âm thanh rơi xuống đất cũng nhẹ như tiếng thở kia. 
 
 Bên ngoài đình viện, Cự Viên vẻ mặt tiều tuỵ, tinh thần mệt mỏi, cầm theo một đoá sen vàng, bên trong nhuỵ hoa phong ấn một đoàn hắc khí đang giãy dụa. Hắc khí loạn chuyển, tựa như u hồn, tựa như mãnh thú gào thét, nhưng trước sau không thoát được.
 
