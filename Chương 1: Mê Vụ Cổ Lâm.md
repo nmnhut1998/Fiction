@@ -72,7 +72,7 @@ Bất cứ nữ tử nào thoạt nhìn cũng sẽ thốt lên một câu “M�
 
 Bởi vì cánh tay của hắn toàn là lông. Chi chít lông đỏ sậm, điểm thêm ba vệt đen. Nói cho chính xác, hắn có khuôn mặt, cùng nửa thân dưới là người, nhưng phần còn lại là vượn. 
 
-Hắn là Thiết Hoả Cự Viên, sống trong lầu cao bên hồ. Lầu có chín tầng, hồ có cầu cửu khúc. Trong hồ trồng toàn hoa sen, gọi là Nhất Diệp Thanh Liên. 
+Hắn là Thiết Hoả Cự Viên, sống trong lầu cao bên hồ. Lầu có chín tầng, gọi là Cửu Cung Lâu, hồ có cầu cửu khúc, gọi là Cửu Khúc Trì. Trong hồ trồng toàn hoa sen, gọi là Nhất Diệp Thanh Liên. 
 
 Hoa sen cả đời chỉ có một lá, hoa nở ngay trên lá, tuỳ vào linh thuỷ tưới vào mà trưởng thành khác nhau. 
 

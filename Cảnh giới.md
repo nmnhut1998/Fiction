@@ -4,3 +4,6 @@ Man quỷ - Linh Quỷ - Thiên Quỷ
 
 Hắc Thực Nhuyễn Trùng
 Tẩy Trùng Thảo
+
+Phù Vân Ngoa
+Thiên Hồ Pháp Địch

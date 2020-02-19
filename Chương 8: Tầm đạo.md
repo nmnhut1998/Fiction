@@ -94,11 +94,45 @@ Hôm nay, nhiệm vụ của tiểu Lạc Vân chính là tự mình đến Than
 
 Cứ như trên người tiểu Lạc Vân có rất nhiều vật dụng phòng thân, nhưng kì thực đây là một hành trình đầy nguy hiểm. 
 
-Trước khi đi, cha đã dặn rất nhiều. Từ đình viện của đến Thanh Lâm Học Viện đường xá có hơn trăm dặm, đường núi khó đi. Hơn nữa cần phải đề phòng hung thú, quỷ hồn tập kích vào ban đêm. Đối với dị thú càng phải cẩn thận, nếu ứng phó không được thì phải đưa ra danh nghĩa Kim Lôi Sư Vương. 
+Trước khi đi, cha đã dặn rất nhiều. Từ đình viện của đến Thanh Lâm Học Viện đường xá có hơn trăm dặm, đường núi khó đi, có nhiều nguy hiểm. Cần phải đề phòng hung thú, quỷ hồn tập kích vào ban đêm. Đối với dị thú càng phải cẩn thận, nếu ứng phó không được thì phải đưa ra danh nghĩa Kim Lôi Sư Vương. 
 
-Tiểu Lạc Vân cảm giác có mấy trăm con ruồi bay loanh quanh trong bụng mình, bứt rứt không yên, trong miệng không ngừng lẩm bẩm, vừa đi vừa tự nhắc nhở mình. 
+Tiểu Lạc Vân cảm giác có mấy trăm con ruồi bay loanh quanh trong bụng mình, bứt rứt không yên. Xoa xoa bụng, cảm giác lo lắng càng dâng lên. 
 
-Từ đình viện đi xuống có một con đường mòn khá dốc, len lỏi dưới tán cây mùa thu. Con đường lá vàng như một con rắn dài quấn quanh sườn núi. Cây cao đổ bóng xuống che đi ánh nắng, con đường cũng lành lạnh không khí sắp đông về. 
+Tán rừng mùa thu xào xạc, lá rơi bay ngang làm tiểu hài tử giật nảy mình. 
+
+"Sáng nay không có ăn bậy, bụng làm sao cồn cào như vậy, cảm giác rất nặng, mỗi lần hít thở đều không thông thuận ..."  
+
+"Da làm sao sần sùi như vậy, cũng không phải nổi ghẻ ..." 
+
+"Tay cũng đặc biệt lạnh ..." 
+
+Tiểu Lạc Vân gãi gãi đầu, vừa bước ra đường, mọi chuyện đều trở nên xa lạ. Trong đầu tiểu hài tử lại hiện lên nhiều trang sách, bắt đầu lẩm bẩm: 
+
+"Viên thúc thúc hay nói:
+Nặng bụng ... tay lạnh ... da sần 
+Cơ thể tích độc nên cần tiêu tai 
+Xoài sống thì cắt sợi dài 
+Trộn cùng mắm ruốc thật cay ăn dần
+Chanh tươi lát mỏng nửa phân
+Lắc đều muối ớt thêm phần dưa chua
+Sau cùng thì uống nước mưa
+Một hai ba bốn ... đền mùa pháo hoa!" 
+
+Sờ sờ Càn Khôn Quy Giáp, tiểu Lạc Vân lấy ra một quả xoài xanh, một con dao nhỏ, thuần thục mấy cái đã gọt vỏ xong. Xoài sống hãy còn xanh, cắt thành sợi dài có mùi đặc trưng, hương vị chua thanh chưa ăn đã dâng lên tận sống mũi. Mắm ruốc mùi có hơi nồng, ớt cay xé lưỡi, chấm một cái, vừa vào miệng đã cảm thấy toàn cơ thể ấm áp, mồ hôi xuất ra. 
+
+Xoài chua chạm đầu lưỡi, tan trong miệng, lan tận đến chân răng, thấm vào trong cổ họng, lại thêm đầu lưỡi tê tê vì cay làm tiểu Lạc Vân nhăn mặt, nhưng mà cái vị chua này có tính gây nghiện cao a. 
+
+Ừm, cảm giác tốt hơn nhiều. 
+
+Xộp, xộp. 
+
+Xoài sống chấm mắm ruốc lại cắn một miếng, tiểu Lạc Vân liếc mắt nhìn sau lưng. 
+
+Ngay cả tiểu cẩu bên đường cũng chảy nước dãi cả rồi. 
+
+Có lẽ lần sau nên ăn món khác. 
+
+Từ đình viện đi xuống có một con đường mòn khá dốc, len lỏi dưới tán cây mùa thu. Con đường lá vàng như một con rắn dài quấn quanh sườn núi. Cây cao đổ bóng xuống che đi ánh nắng, con đường cũng lành lạnh không khí sắp đông về. Cái bóng tiểu Lạc Vân đổ dài trên đất. 
 
 Tiểu Lạc Vân vừa đi vừa suy nghĩ, toàn bộ kiến thức đã học cũng đọc thầm mấy lần. 
 
@@ -114,71 +148,64 @@ Tiểu Lạc Vân vừa đi vừa suy nghĩ, toàn bộ kiến thức đã học
 
 "Cha dặn nếu gặp phải Man thú thì không phải sợ, nếu hung thú dưới ngũ giai thì có thể đánh, gặp trên cửu giai thì hô cứu mạng, gặp Linh thú cường đại thì phải dùng bối cảnh chống lưng." 
 
-Tiểu Lạc Vân vừa đi vừa lẩm nhẩm thì đột nhiên dừng lại. 
+Tiểu Lạc Vân vẫn đi vừa lẩm nhẩm, xoài sống mắm ruốc trong tay vẫn còn hơn nửa. Mắm ruốc ăn nhiều nên khác nước, tiểu Lạc Vân cầm bình linh dịch tu ừng ực.  
 
-Phía trước, đường mòn đột nhiên chia hai. Tiểu Lạc Vân nhìn lại, đình viện đã xa tít tắp không biết nơi nào. Cái mũi hít hít, sau đó lắc đầu thật mạnh, tiểu Lạc Vân xụ mặt: 
+Mặt trời xuống núi. Nắng chiều đỏ rực ẩn hiện sau kẽ lá. Màn đêm từ từ buông xuống. Tiếng ễnh ương gọi bạn râm ran đâu đó. Thỉnh thoảng có cánh chim nào đó lạc bầy, ở giữa trời kéo lên một tiếng cao vút. 
 
-"Bị Mê Vụ hại rồi ..." 
+Tiểu Lạc Vân nhìn trước ngó sau, cuối cùng chọn một gốc cây. 
 
-Nhớ lời cha dặn, tiểu Lạc Vân dùng một con dao nhỏ khắc trên thân cây gần đó mấy kí hiệu, sau đó đưa mắt nhìn xung quanh. Ít lâu sau, hai mắt tiểu Lạc Vân lập tức chú ý đến gốc cây nằm ở giữa hai ngã rẽ. 
+Thân cây to cỡ hai vòng tay người lớn, lại còn rất cao, ngước đầu lên nhìn mãi vẫn không thấy ngọn. 
 
-Gốc cây to bằng ba vòng tay người lớn. Hơn nữa còn có một hốc cây rất lớn. Nếu để ý kĩ có thể thấy được bên trong hốc cây có dính một mảng tơ màu lục xen lẫn chấm đen. Bên trong hốc cây có rất nhiều lá cây khô, nếu để ý kĩ sẽ nhận thấy lá cây có viền răng cưa, dài như ngón tay, có mùi đặc trưng. 
+Tiểu Lạc Vân cười hì hì, gõ gõ lên gốc cây, ánh mắt dần sáng lên. 
 
-Tiểu Lạc Vân vuốt vuốt mũi. Viên thúc thúc thường nói hiện tại nhận quả là do nhân gây ra từ trước. Xem ra tiểu Lạc Vân mình làm người đúng cách rồi. 
+Cảm thấy trước sau không có người, tiểu Lạc Vân từ trong Càn Khôn Quy Giáp lấy ra đủ loại vật dụng. Một xấp giấy dó thật dày. Một thùng nước. Một bộ quần áo mới. 
 
-"Trùng hợp như vậy sao?" 
+Giấy dó ghi đầy phù chú, phiêu phiêu mà động, biến thành một túp lều. 
 
-Thịch. Thịch. Thịch. 
+Xoa xoa cái bụng tròn, tiểu Lạc Vân bắt đầu cởi y phục. Ngâm thân người vào thùng nước, tiểu Lạc Vân cảm thấy toàn thân thoải mái, mệt nhọc đi đường dần dần biến mất. Quần áo mới mặc vào, tiểu Lạc Vân dụi dụi hai mắt. Cõ lẽ ăn nhiều quá, hiện tại muốn ngủ. 
 
-Tim tiểu Lạc Vân đập loạn. 
+Đem thùng nước tưới vào gốc cây, tiểu Lạc Vân trở lại lều. 
 
-Đây chính là ổ của Mộc Linh Điệp, hơn nữa còn là Mộc Linh Điệp đang trong thời kì đẻ trứng, nhìn qua chắc chắn là trên trứng bị Hắc Thực Nhuyễn Trùng kí sinh, hơn nữa đã dùng qua Tẩy Trùng Thảo nhưng không có kết quả. 
+"Hiện tại ngủ một chút, ngày mai xem có thu hoạch gì hay không ..." 
 
-Chẳng phải trong truyện kí thường kể, giữa đường trùng hợp gặp người bệnh nan y, à không, dị thú bị bệnh, chữa khỏi sẽ được hồi đáp hay sao? 
+Ngọn đèn dầu bên trong túp lều tắt đi. Túp lều giấy lập tức biến mất giữa màn đêm, không tra ra một dấu vết. 
 
-Trong truyện kí nói, bước đầu tiên phải lấy được lòng tin của người bệnh. 
+Đêm càng về khuya, một bóng đen lặng im xuất hiện, tiềm nhập vào lòng đất. Trong lều tiểu Lạc Vân, bóng đen kia hiện ra, cản cả ánh trăng, phủ xuống thân hình tiểu hài tử vẫn còn đang ngủ. 
 
-Tiếp theo, lúc chữa bệnh cần chậm một chút, như vậy mới thấy được đây là bệnh nặng, cần tốn nhiều sức lực.
+Hàng trăm đạo phù chú gia trì trên lều giấy không chút tác dụng. 
 
-Sau đó, phải cật lực bày ra dáng cao nhân không cần hồi đáp, nhưng trong lòng phải nịnh nọt, cầu nguyện nữ thân may mắn. 
+Bóng đen kia đưa tay lên, tiểu Lạc Vân trong cơn mơ màng giường như có cảm giác, vô thức chộp lấy một ngón tay ngậm vào, xoay xoay người, giấc ngủ càng sâu. 
 
-Nếu nữ thần may mắn cười, ngươi chắc chắn sẽ được hồi báo rất hậu! 
+Bàn tay còn tại xẹt qua, lưu lại trên cổ tay tiểu Lạc Vân một vết máu mảnh như sợi tơ. Ba giọt máu đỏ tươi từ đó rỉ ra, thơm ngào ngạt, bị bóng đen thu vào. 
 
-Mộc Linh Điệp, gọi là Linh Điệp, nghĩa là đã đạt được ngưỡng cửa linh thú, chắc chắn tàng trữ không ít thứ tốt. Tiểu Lạc Vân vuốt vuốt mũi, cố gắng đè xuống hưng phấn ra đường gặp được cơ duyên. 
+Bóng đen biến mất, mà theo đó Khổng Tước Bình An Phù, Càn Khôn Quy Giáp, Phù Vân Ngoa cũng không còn thấy đâu. 
 
-Tiểu Lạc Vân nhanh chóng rời đi, sau đó tìm một góc khuất. 
+Máu trên cổ tay vẫn từ từ chảy ra, thấm vào đệm giường, nhuộm nó thành một màu huyết hồng yêu dã. 
 
-Áo lông trên người chỉnh một chút, tiểu Lạc Vân sau lưng mọc ra một cái đuôi, khuôn mặt cũng biến đổi, một tiểu hầu tử, nhìn không ra thật giả. Hầu tử lông vàng, chóp đuôi mọc ra một chiếc lá, ở mi tâm có mắt dọc. Đây là Kim Diệp Tam Nhãn Hầu nổi tiếng trong Cổ Lâm, chuyên dùng mầm bệnh, kịch độc để đào tạo bản mệnh Kim Diệp. 
+Tiểu Lạc Vân dường như không có cảm giác, trong giấc ngủ say trở mình, hai cánh tay ôm lấy thân, rúc mình lại như một cục bột nhỏ, tiếng thở đều đều truyền ra rồi chìm vào màn đêm lặng lẽ. 
 
-Bản mệnh Kim Diệp của Kim Diệp Tam Nhãn Hầu là một loại dược thảo cộng sinh với Tam Nhãn Hầu, bình thường không có dược tính gì đáng nói, nhưng lại có khả năng sinh ra kháng tính với nhiều loại mầm bệnh, ôn dịch, có khả năng tự hoá giải nhiều loại độc dược. Mà trải qua mỗi lần như vậy, dược tính của Kim Diệp lại tăng thêm mấy phần, cuối cùng Kim Diệp đạt đến đúng độ, phân liệt thêm Kim Diệp mới. Tam Nhãn Hầu có chín Kim Diệp nghe nói có thể luyện thành Tấn Thần Đan, giúp cho Linh thú bước vào thần cấp.
+Đệm giường không thể thấm được nữa, máu rỉ ra, thấm vào lều giấy. Lều giấy thấm máu lập tức tan rã, toàn bộ vật dụng tiện nghi bên trong cũng biến mất. 
 
-Viên thúc thúc từ trước đã chuẩn bị sẵn cho tiểu Lạc Vân thân phận này, bởi vì trong Cổ Lâm, Tam Nhãn Hầu nhiều vô số, hơn nữa có không ít chọn con đường nuôi dưỡng Kim Diệp. Dù sao trong Cổ Lâm, không ít dị thú có thành kiến với nhân loại. 
+Tiểu Lạc Vân co thành một đoàn, giữa đêm thu, lá vàng rụng xuống phủ lên thân hình bé nhỏ.
 
-Thanh thanh cổ họng, tiểu Lạc Vân cố gắng điều chỉnh thú ngữ mình đã học trở thành ngữ âm hầu ngữ. Từ trong Càn Khôn Quy Giáp, tiểu Lạc Vân lấy ra một vài hạt giống rải trên đất, sau đó tưới lên một ít linh dịch màu đỏ nhạt - là tinh huyết của chính mình pha loãng ra trăm nghìn lần. 
+Không hề tỉnh lại.  
 
-Hạt giống nhanh chóng nảy mầm, ra lá, rồi thành thục. Từ bề ngoài có thể đoán được dược niên ước chừng đạt vào khoảng ba mươi năm. 
+Trong Cửu Cung Lâu, Cự Viên đang ngủ đột nhiên mở mắt. Hai mắt biến thành hai quả cầu lửa, con ngươi lấp lánh kim quang, không giận mà uy, nhìn về phía bắc. 
 
-Nhớ lại Dong gia gia, tiểu Lạc Vân đem lá cây giã nhỏ, lại hoà vào linh dịch, cuối cùng bôi lên trên Kim Diệp. 
+Hắn nhấc mình muốn hoả độn, nhưng lại kinh hãi phát hiện một đạo uy áp kinh người khoá chặt hắn, toàn thân pháp lực bị phong bế, không thể động mảy may. Hắn chỉ có thể bất đắc dĩ phun ra một câu:
 
-Kim Diệp vốn là hàng thật, sau khi bôi dược dịch lập tức biến hoá, màu vàng càng đậm. 
+"Không chịu đựng mưa giông, làm sao biết quý cầu vồng?" 
 
-Học theo Tam Nhãn Hầu điển hình, tiểu Lạc Vân cầm cái đuôi dài, đưa Kim Diệp ở đuôi lên mũi không ngừng hít hít, đi trên ba chân, từng bước nhẹ nhàng đến hốc cây. 
+Trong rừng nguyên thuỷ, Dong lão thở dài, mấy sợi râu dung đưa: 
 
-Một đám bụi huỳnh quang từ hốc cây bay ra, lượn lờ trước mặt, lấp lánh thanh quang, ngăn chặn bước tiến của tiểu Lạc Vân. Mộc Linh Điệp Mẫu đưa hai cái râu dài ra ngoài, còn cánh to gần một thước vẫn ở ẩn bên trong. Từ góc độ này có thể nhìn thấy rất nhiều mảng đen dần dần loang lổ trên cánh của Mộc Linh Điệp vốn xanh màu lá non. 
+"Thái Sơn cao che không khỏi tuyết tuyết dày ... " 
 
-Hai cái râu rung rung tạo ra âm thanh, ý nghĩa rất rõ ràng: 
+Pháp lực của Dong lão cũng bị phong bế. 
 
-"Con nhà ai, tại sao lại đến đây? Trước đây chưa từng thấy?"
+Ô Lão Quy giật mình nửa đêm, phát hiện Huyền Xà đã buông mình ra từ khi nào, thở phào nhẹ nhõm. Ánh mắt hắn xuyên qua hải dương đen kịt, nhìn lên bầu trời, lắc đầu, nhìn vào mặt đất, cũng lắc đầu: 
 
-Tiểu Lạc Vân đã dự đoán được từ trước, cái đuôi mang Kim Diệp vẫy vẫy, lại chỉ chỉ về hướng bắc: 
+"Không phải trên kia ..." 
 
-"Nhà đệ ở vùng núi cao phương Bắc, nghe nói chỗ này có nhiều hoa thơm cỏ lạ ..." 
+"Cũng không phải dưới này ..."
 
-Một cách thành khẩn, tiểu Lạc Vân đặt Kim Diệp trên mặt đất, sau đó từ từ thối lui ra sau. Tiểu Lạc Vận cũng liếc trong hốc cây một cái, đếm đủ mười ba trứng to bằng nắm tay. Trong đó có một quả trứng màu đen. 
-
-Quả trứng màu đen này giống như một tia sét, làm cho tiểu Lạc Vân sững người. 
-
-Cố gắng giữ vững bước chân đã run rẩy, tiểu Lạc Vân bước lùi mười bước, sau đó co giò chạy biến. 
-
-
-
+Toàn bộ dị thú trong Cổ Lâm, ngay cả một tia pháp lực cũng không thể động. 
