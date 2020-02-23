@@ -164,7 +164,7 @@ Giấy dó ghi đầy phù chú, phiêu phiêu mà động, biến thành một 
 
 Xoa xoa cái bụng tròn, tiểu Lạc Vân bắt đầu cởi y phục. Ngâm thân người vào thùng nước, tiểu Lạc Vân cảm thấy toàn thân thoải mái, mệt nhọc đi đường dần dần biến mất. Quần áo mới mặc vào, tiểu Lạc Vân dụi dụi hai mắt. Cõ lẽ ăn nhiều quá, hiện tại muốn ngủ. 
 
-Đem thùng nước tưới vào gốc cây, tiểu Lạc Vân trở lại lều. 
+Dùng hết sức bình sinh, tiểu Lạc Vân đem thùng nước ném lên trời, cười thích chí nhìn nước văng tung toé. 
 
 "Hiện tại ngủ một chút, ngày mai xem có thu hoạch gì hay không ..." 
 
@@ -174,11 +174,15 @@ Ngọn đèn dầu bên trong túp lều tắt đi. Túp lều giấy lập tứ
 
 Hàng trăm đạo phù chú gia trì trên lều giấy không chút tác dụng. 
 
-Bóng đen kia đưa tay lên, tiểu Lạc Vân trong cơn mơ màng giường như có cảm giác, vô thức chộp lấy một ngón tay ngậm vào, xoay xoay người, giấc ngủ càng sâu. 
+Bóng đen kia đưa tay lên, tiểu Lạc Vân trong cơn mơ màng giường như có cảm giác, vô thức ôm lấy, xoay xoay người, giấc ngủ càng sâu. 
 
-Bàn tay còn tại xẹt qua, lưu lại trên cổ tay tiểu Lạc Vân một vết máu mảnh như sợi tơ. Ba giọt máu đỏ tươi từ đó rỉ ra, thơm ngào ngạt, bị bóng đen thu vào. 
+Bóng đen tức giận, cánh tay muốn rút ra, nhưng Lưu Ly Bảo Y dường như có cảm ứng, đột nhiên loé sáng, hắn đành bất đắc dĩ để yên. 
 
-Bóng đen biến mất, mà theo đó Khổng Tước Bình An Phù, Càn Khôn Quy Giáp, Phù Vân Ngoa cũng không còn thấy đâu. 
+Bàn tay còn tại xẹt qua, lưu lại trên cổ tay tiểu Lạc Vân một vết máu mảnh như sợi tơ. Trên người tiểu Lạc Vân đột nhiên đại phát một trận kim quang, thanh âm long ngâm lôi minh đánh thẳng vào thần hồn, một tiếng đau đớn bị bóng đen kia nuốt vào trong cổ họng. 
+
+Ba giọt máu đỏ tươi từ cổ tay tiểu Lạc Vân rỉ ra, thơm ngào ngạt, bị bóng đen thu vào. 
+
+Bóng đen lảo đảo không đủ sức đứng thẳng, thân hình chật vật nhập vào lòng đất, nhưng trước khi đi cũng không quên phất tay một cái, theo đó Khổng Tước Bình An Phù, Càn Khôn Quy Giáp, Phù Vân Ngoa cũng bị hắn thu vào. 
 
 Máu trên cổ tay vẫn từ từ chảy ra, thấm vào đệm giường, nhuộm nó thành một màu huyết hồng yêu dã. 
 
@@ -192,9 +196,9 @@ Không hề tỉnh lại.
 
 Trong Cửu Cung Lâu, Cự Viên đang ngủ đột nhiên mở mắt. Hai mắt biến thành hai quả cầu lửa, con ngươi lấp lánh kim quang, không giận mà uy, nhìn về phía bắc. 
 
-Hắn nhấc mình muốn hoả độn, nhưng lại kinh hãi phát hiện một đạo uy áp kinh người khoá chặt hắn, toàn thân pháp lực bị phong bế, không thể động mảy may. Hắn chỉ có thể bất đắc dĩ phun ra một câu:
+Hắn nhấc mình muốn hoả độn, nhưng lại kinh hãi phát hiện một đạo uy áp kinh người khoá chặt hắn, toàn thân pháp lực bị phong bế bên trong cơ thể, không thể động mảy may. Hắn chỉ có thể bất đắc dĩ phun ra một câu:
 
-"Không chịu đựng mưa giông, làm sao biết quý cầu vồng?" 
+"Không chịu đựng mưa giông, sao biết quý cầu vồng?" 
 
 Trong rừng nguyên thuỷ, Dong lão thở dài, mấy sợi râu dung đưa: 
 
@@ -207,5 +211,7 @@ Pháp lực của Dong lão cũng bị phong bế.
 "Không phải trên kia ..." 
 
 "Cũng không phải dưới này ..."
+
+Đình viện đêm khuya vẫn còn sáng đèn, Sư Vương nhìn hai bàn tay của mình, sau đó hai mắt từ từ khép lại. 
 
 Toàn bộ dị thú trong Cổ Lâm, ngay cả một tia pháp lực cũng không thể động. 
