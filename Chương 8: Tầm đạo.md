@@ -154,9 +154,11 @@ Mặt trời xuống núi. Nắng chiều đỏ rực ẩn hiện sau kẽ lá. 
 
 Tiểu Lạc Vân nhìn trước ngó sau, cuối cùng chọn một gốc cây. 
 
-Thân cây to cỡ hai vòng tay người lớn, lại còn rất cao, ngước đầu lên nhìn mãi vẫn không thấy ngọn. 
+Thân cây to cỡ hai vòng tay người lớn, lại còn rất cao, ngước đầu lên nhìn mãi vẫn không thấy ngọn. Trên cành cây mọc ra một loại dây leo, toả ra mùi hương dịu nhẹ, thuần khiết. 
 
 Tiểu Lạc Vân cười hì hì, gõ gõ lên gốc cây, ánh mắt dần sáng lên. 
+
+"Phía trên có Thanh Hương Đằng. Đúng là chỗ này rồi ..." 
 
 Cảm thấy trước sau không có người, tiểu Lạc Vân từ trong Càn Khôn Quy Giáp lấy ra đủ loại vật dụng. Một xấp giấy dó thật dày. Một thùng nước. Một bộ quần áo mới. 
 

@@ -147,7 +147,9 @@ Lần đầu tiên, Sư Vương cứng người, tựa như bị trúng định 
 
 Một cơn nóng giận, hắn quên đi mình nhận tiểu Lạc Vân làm con, quên đi mình đã cười ngây ngô, băng rừng tìm Không Tang Thụ vô hình vô ảnh, đẽo gọt thành tang cung, lội đầm lầy qua thảo nguyên, tìm Bồng Thảo vót thành tiễn … tựa như một người cha bình thường, như bao người cha khác.
 
-Hắn muốn nghe tiểu hài tử gọi cha. 
+Tựa như bao cha mẹ bình thường, lúc con quấy phá đều nóng giận khó chịu, lúc con quẫy đạp thì phiền phức ước gì chưa bao giờ sinh nó ra.
+
+Nhưng mà hắn muốn nghe tiểu hài tử gọi cha. 
 
 Mà hơn nữa, tiểu Lạc Vân do chính hắn “sinh” ra. 
 

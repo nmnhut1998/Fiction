@@ -190,7 +190,7 @@ Một giọt nước trong suốt, tựa hồ không có gì đặc biệt. Th�
 
 Cứ như Mê Vụ Cổ Lâm xa xưa, Chu Tước chỉ còn trong truyện kể, nhưng đích thực đã từng tồn tại nơi đây. Tỉ như, Ô Lão Quy trong tàng khố gia tộc mười đời độc đinh vẫn còn giữ được một giọt nước mắt Chu Tước. 
 
-Chu Tước là con thứ hai của Phượng Hoàng. Phượng Hoàng sinh thất tử, Chu Tước thứ hai, kế thừa Phượng Hoàng Bất Tử Chân Hoả, nước mắt nhỏ ra cũng tựa như Phượng Hoàng, có thể hoá giải mọi loại độc tố, chữa lành mọi vết thương. Đối với người tu luyện thuỷ hoặc hoả hệ công pháp, đây là báu vật cực phẩm, có thể làm ít được nhiều, một ngày thăng tiên cũng không quá. 
+Chu Tước là con thứ ba của Phượng Hoàng. Phượng Hoàng sinh thất tử, Chu Tước thứ ba, kế thừa Phượng Hoàng Bất Tử Chân Hoả, nước mắt nhỏ ra cũng tựa như Phượng Hoàng, có thể hoá giải mọi loại độc tố, chữa lành mọi vết thương. Đối với người tu luyện thuỷ hoặc hoả hệ công pháp, đây là báu vật cực phẩm, có thể làm ít được nhiều, một ngày thăng tiên cũng không quá. 
 
 Một nhánh cây toả ra bạch quang nhàn nhạt. Một nhánh cây nho nhỏ, đường kính chỉ bằng ngón út, dài gần hai gang tay người lớn, có phần hơi thẳng, cũng không phân nhánh, phần lá toàn bộ bị loại bỏ. 
 

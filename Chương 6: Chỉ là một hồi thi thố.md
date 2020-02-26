@@ -370,7 +370,7 @@ Liên Hoa Phá Chướng Đan vào miệng, biến thành một đoàn xích thu
 
 “A?”
 
-“ n?” 
+“A?” 
 
 Cơ thể dị thú đã ngã xuống đột nhiên có lưu quang chuyển động, dần dần sinh ra da thịt. Sau đó, mở mắt. 
 
@@ -383,8 +383,7 @@ Cự Viên cũng mở mắt, giọng cười có chút khó nghe vang vang tới
 “Cái gọi là Phá Chướng, chính là để các trò dũng cảm vượt qua.”
 
 “Nếu không tự đối mặt, làm sao có vượt qua, làm gì có bữa ăn dễ dàng? Hung thú chi tinh, là tự các trò hợp sức dùng chân khí bản thân tịnh hoá mà thành. Bình chướng cũng là các trò tự đánh vỡ.” 
-
-“Đan dược chẳng qua là chút dược liệu trị thương hiệu quả tốt chút mà thôi. Ta đã động tay động chân ở trên người các trò, nếu các trò không quá tệ hại, hẳn là hiện tại đã sống sót, hoặc là được cứu sống.”
+“Đan dược kía chẳng qua là chút dược liệu trị thương hiệu quả tốt chút mà thôi. Ta đã động tay động chân ở trên người các trò, nếu các trò không quá tệ hại, hẳn là hiện tại đã sống sót, hoặc là được cứu sống.”
 
 “Dĩ nhiên, có tử vong. Kẻ đã chết, chỉ có ba loại, một là quá yếu nhược, chịu không nổi một kích, hai là quá ngu si, không biết tự lượng sức, còn thứ ba … Thứ ba chính là quá thâm độc, tàn ác.” 
 
@@ -403,7 +402,7 @@ Dị thú tìm kiếm hung thú chi tinh phù hợp với mình - hung thú do c
 
 Dĩ nhiên, do hợp lực tấn công và luyện hoá, tám phần hung thú chi tinh đều không thể sử dụng cho bất cứ dị thú nào. Viên lão sư lại thêm một lần bị ngàn vạn tám trăm lời thầm nguyền rủa. 
 
-“Tiểu Viên tử, chi phí Hỗn độn chân thuỷ tổng cộng là tám vạn linh thạch!” 
+“Tiểu Viên tử, chi phí Hỗn độn chân thuỷ tổng cộng là tám vạn linh thạch, lão phu chỉ nhận thượng phẩm!” 
 
 Tiếng Ô Lão Quy cao réo rắt, người chưa thấy tiếng đã tới. Cự Viên liếc cũng không thèm liếc, ném cho Ô Lão Quy một cái bình nhỏ. 
 

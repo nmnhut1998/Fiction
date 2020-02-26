@@ -1,3 +1,5 @@
+Chương 9: Thiên Linh Điệp 
+
 Màn đêm trôi qua hơn quá nửa, tiếng sinh vật cũng chìm trong giấc ngủ. 
 
 Một thời gian sau, trong gốc cây tiểu Lạc Vân đã chọn truyền ra tiếng động lạ.
@@ -112,9 +114,11 @@ Tiểu Lạc Vân ngồi bên đống lửa, tiểu hồ điệp đậu trên c�
 
 "Tiểu hồ điệp, ngươi nói xem, có phải cha vẫn đang nhìn ta hay không? Hay là Viên thúc thúc giở trò? Ta nghi ngờ chính là Quy gia gia lén trộm huyết dịch của ta!" 
 
-Tiểu Lạc Vân trong đầu không ngừng nêu ra giả thuyết, nhưng tuyệt nhiên không nghĩ tới đồ vật của mình bị bóng đen trộm mất. 
+Tiểu Lạc Vân trong đầu không ngừng nêu ra giả thuyết, nhưng tuyệt nhiên không nghĩ tới đồ vật của mình bị bóng đen thần bí trộm mất. Ở trong Cổ Lâm, không kẻ nào có thể vô thanh vô tức lấy đi Khổng Tước Bình An Phù mà không bị phát giác. 
 
-"Mặc kệ, vẫn còn Lưu Ly Bảo Y cùng với Thiên Hồ Pháp Địch ..." 
+"Hừ, nếu bắt được nhất định phải hảo hảo trừng phạt hắn! Phải ép hắn ăn Xích Quỷ Quả vừa chua vừa chát, sau đó uống Hoá Ma Thuỷ ... hừ, hừ ... hắn sẽ đau bụng ba ngày ba đêm!" 
+
+Những ý nghĩ buồn rầu trong đầu dần dần bị thay thế bởi những viễn tưởng tươi đẹp khi mình bắt được hung thủ, trên môi tiểu Lạc Vân cuối cùng cũng nở ra một nụ cười. 
 
 Hồi lâu sau, tiểu hồ điệp bị Lạc Vân vuốt đến nỗi cánh đã nhẵn bóng không còn chút phấn, tức giận kêu oa oa. 
 
@@ -140,7 +144,7 @@ Tiểu hồ điệp lập tức cảm nhận được một luồng khí ấm ch
 
 Tiểu Lạc Vân lại lấy một ít máu đông khô, để trước mặt tiểu hồ điệp. 
 
-"Thiên Linh Điệp, tám đời cam nguyện làm sâu kiến, liên tục kết kén cầu linh duyên. Giờ ngươi đi theo bản thiếu gia, cũng là linh duyên của ngươi, thế nào?" 
+"Thiên Linh Điệp, tám đời cam nguyện làm sâu kiến không hoá điệp, liên tục kết kén cầu linh duyên. Giờ ngươi đi theo bản thiếu gia, cũng là linh duyên của ngươi, thế nào?" 
 
 "Yên tâm, bản thiếu gia bình thường ăn uống linh thực cũng không có hấp thu, toàn bộ bị bài tiết ra bên ngoài, ngươi xem, mồ hôi này chính là bản thiếu lúc nãy uống Mộc Tâm Hoa Dịch ..." 
 
@@ -148,7 +152,7 @@ Tiểu Lạc Vân lại lấy một ít máu đông khô, để trước mặt t
 
 (Dịch theo "Hồ Điệp chi ngữ": Ta không dùng chất bài tiết của ngươi!!!!!!)
 
-"Ngươi xem, hôm qua cha dùng Thiên Tâm Hương hun cho ta, hiện tại trên người vẫn còn Thiên Tâm Hương, có tác dụng tăng tu vi ..." 
+"Ngươi xem, hôm qua cha dùng Thiên Tâm Hương cho ta, hiện tại trên người vẫn còn Thiên Tâm Hương, có tác dụng tăng tu vi ..." 
 
 Tiểu hồ điệp tức giận, hai cái râu khu động, trực tiếp cuốn lấy hai giọt mồ hôi trên trán tiểu Lạc Vân. 
 
@@ -194,10 +198,12 @@ Thượng thiên hạ địa, dám gọi lão thiên gia là tiểu nhi, chỉ �
 
 Tiểu hồ điệp bị cái tên này hù doạ sợ, cánh đập mạnh, bay nhanh về phía trước.
 
-"Tiểu Thiên Nhi đừng có nổi giận, chờ ta, đừng chạy ..." 
+"Tiểu Thiên Nhi đừng có nổi giận, chờ ta, đừng chạy ... Đừng tưởng ngươi là Nhất phẩm Linh thú bản thiếu gia không làm gì được ngươi!!!!" 
 
 Màn dêm tịch liêu, đống lửa vẫn còn tí tách, một người một điệp đuổi nhau, tiếng cười như tiếng nhạc, réo rắt mãi không tan. 
 
 Bóng dáng tiểu Lạc Vân rời đống lửa ngày càng xa, kéo theo đó trong bóng đêm cũng phát ra từng tiếng xào xạc. 
 
 Những thân ảnh còn đen hơn cả màn đêm đang lũ lượt kéo tới. 
+
+Mà Tiểu Thiên Nhi cũng cảm nhận được, tốc độ bay càng nhanh. 
