@@ -19,5 +19,6 @@ Nhân loại ngày xưa u mê, không có đạo, bị đá nhọn làm chảy m
 Quang Đăng Hoa
 Thiên Tâm Hương
 Thanh Hương Đằng
+Hoá Sát Thanh Đài
 
 Tử Hương Thảo, Anh Túc Hoa, Xích Địa Đằng ... còn có Hoàng Sâm!

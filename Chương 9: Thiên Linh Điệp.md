@@ -94,7 +94,7 @@ Một cơn gió thổi qua, nhuệ khí lúc nãy cũng tắt hơn phân nửa. 
 
 Tiểu hồ điệp ở bên tai tiểu Lạc Vân kêu lên mấy tiếng. Tiểu Lạc Vân từ nhỏ đã học thú ngữ, bèn cười cười, trấn an:
 
-"Không sao!" 
+"Không sao! Hừ, bản thiếu gia là ai? Trên người thủ đoạn chồng chất, tầng tầng lớp lớp, đạo tặc kia có lột sạch bản thiếu gia vẫn sống khoái hoạt như thường!" 
 
 Trên cổ tay tiểu Lạc Vân, vết thương vốn mảnh như sợi tơ đã đông máu. Đưa tay sờ sờ cánh của tiểu hồ điệp, nhưng tiểu hồ điệp lại giẫy giụa. 
 
@@ -102,13 +102,17 @@ Trên cổ tay tiểu Lạc Vân, vết thương vốn mảnh như sợi tơ đ�
 
 Tiểu Lạc Vân thấy như vậy, cười khúc khích. Tiếng cười như chuông bạc ngân nga, khuôn mặt trắng hồng như toả hào quang dịu nhẹ. 
 
+Cái quý giá nhất của tuổi thơ chính là buồn chợt đến cũng chợt đi, mà một khi đi rồi thì hầu như không còn dấu vết, chỉ một tiếng cười liền có thể che mất. 
+
+Một hồi sau, tiểu Lạc Vân suy nghĩ cái gì, đột nhiên mở miệng, tựa hồ là đọc chú ngữ: 
+
 "Hồ điệp có hồn, cửu thế thành linh, một cánh mang sinh, một cánh chứa tử ... thượng thiên ban tên ... Thiên Linh Điệp." 
 
 Tiếng nói không lớn, tựa như là tiểu hài tử đọc thuộc lòng từ trong quyển sách nào đó, nhưng tiểu hồ điệp lại làm nó chấn động. Tiểu Lạc Vân thừa cơ đó ở đưa tay, ngón tay miếng một cái đã lấy đi không ít phấn bướm ở trên hai cánh. 
 
 Tiểu hồ điệp thấy tiểu Lạc Vân lấy cánh bướm trên cơ thể mình mà vẫn không bị đầu độc chết, cũng không ngăn cản nữa. 
 
-Tiểu Lạc Vân học theo trong sách, tỉ mỉ chọn lá cây khô đặc thù rơi xuống, gom lại thành đống lại rải lên một chút phấn bướm. Phấn bướm chạm vào lá khô, toả ra mùi hương kì lạ, hung thú nhỏ yếu xung quanh đều không dám tới gần. Tiểu Lạc Vân lại tìm tới hai hòn đá, dùng sức đập vào nhau. Phấn bướm bám vào lá khô rất dễ bắt lửa, chỉ mấy chốc tiểu Lạc Vân đã dựng xong một bếp lửa sưởi ấm. 
+Tiểu Lạc Vân học theo trong sách, tỉ mỉ chọn lá do Thanh Tâm Đằng rơi xuống, gom lại thành đống lại rải lên một chút phấn bướm. Phấn bướm chạm vào lá khô, toả ra mùi hương kì lạ, hung thú nhỏ yếu xung quanh đều không dám tới gần. Tiểu Lạc Vân lại tìm tới hai hòn đá, dùng sức đập vào nhau. Phấn bướm bám vào lá khô rất dễ bắt lửa, chỉ mấy chốc tiểu Lạc Vân đã dựng xong một bếp lửa sưởi ấm. 
 
 Tiểu Lạc Vân ngồi bên đống lửa, tiểu hồ điệp đậu trên cánh tay của hắn, hơi có chút khó chịu, nhưng vẫn để cho hắn vuốt ve. 
 

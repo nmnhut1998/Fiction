@@ -200,20 +200,34 @@ Trong Cửu Cung Lâu, Cự Viên đang ngủ đột nhiên mở mắt. Hai mắ
 
 Hắn nhấc mình muốn hoả độn, nhưng lại kinh hãi phát hiện một đạo uy áp kinh người khoá chặt hắn, toàn thân pháp lực bị phong bế bên trong cơ thể, không thể động mảy may. Hắn chỉ có thể bất đắc dĩ phun ra một câu:
 
-"Không chịu đựng mưa giông, sao biết quý cầu vồng?" 
+"Thái Sơn cao cũng che không được tuyết dày ..." 
 
 Trong rừng nguyên thuỷ, Dong lão thở dài, mấy sợi râu dung đưa: 
 
-"Thái Sơn cao che không khỏi tuyết tuyết dày ... " 
+"Lại một năm a ... không biết năm nay sẽ ra sao?" 
 
-Pháp lực của Dong lão cũng bị phong bế. 
+Pháp lực của Dong lão cũng bị phong bế, nhưng ánh mắt dong lão xuyên qua tầng tầng lớp lớp cây rừng rậm rạp, thấy được những chuyển động nhỏ bé nhất bên trong Cổ Lâm. 
 
-Ô Lão Quy giật mình nửa đêm, phát hiện Huyền Xà đã buông mình ra từ khi nào, thở phào nhẹ nhõm. Ánh mắt hắn xuyên qua hải dương đen kịt, nhìn lên bầu trời, lắc đầu, nhìn vào mặt đất, cũng lắc đầu: 
+"Trước mặt Thanh Lâm ... tất cả đều là hài tử như nhau ... nào có phân sang quý bần hèn ... nào có kể thiên phú cao thấp ... cho dù có pháp thuật hay không ... chỉ cần có thể đến Thanh Lâm ... chỉ cần có thể đến Thanh Lâm ..." 
+
+Ô Lão Quy giật mình nửa đêm, phát hiện Huyền Xà đã buông mình ra từ khi nào, thở phào nhẹ nhõm. Ánh mắt hắn xuyên qua hải dương đen kịt, nhìn lên bầu trời, lắc đầu, nhìn vào mặt đất, cũng lắc đầu:
+
+"Thanh Lâm đại trận vậy mà khởi động rồi."
 
 "Không phải trên kia ..." 
 
 "Cũng không phải dưới này ..."
 
-Đình viện đêm khuya vẫn còn sáng đèn, Sư Vương nhìn hai bàn tay của mình, sau đó hai mắt từ từ khép lại. 
+"Rốt cuộc là kẻ nào kích thích?" 
 
-Toàn bộ dị thú trong Cổ Lâm, ngay cả một tia pháp lực cũng không thể động. 
+Toàn bộ sinh vật sống trong trong Cổ Lâm, bao quát cả dị thú và hung thú, ngay cả một tia pháp lực cũng không thể động. 
+
+Dị thú đều biết, Thanh Lâm đại trận khởi động rồi. 
+
+Thanh Lâm đại trận là cái gì, dị thú đều không biết rõ chi tiết, chỉ biết là một toà cổ trận nằm trong Thanh Lâm Học Viện, thi thoảng sẽ tự hành mà phát động, mà mỗi lần phát động lại có hiệu quả khác nhau, tỉ như lần này là cấm pháp. 
+
+Mỗi khi Thanh Lâm đại trận mở ra, hoặc là có đại nguy cơ, hoặc là đại cơ duyên xuất hiện. 
+
+Đình viện đêm khuya vẫn còn sáng đèn. Sư Vương không ngủ. Trên bàn của hắn bày một tờ bản đồ trải rộng, theo địa thế tựa hồ là bản đồ sơ lược của Mê Vụ Cổ Lâm. 
+
+Trên tờ bản đồ, bảy kiện đồ vật được đặt rải rác. Mà đúng lúc đó, kiện thứ nhất trong bảy kiện, một đoạn thanh đằng bắt đầu sáng lên. 
