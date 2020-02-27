@@ -150,7 +150,7 @@ Tiểu Lạc Vân lại lấy một ít máu đông khô, để trước mặt t
 
 "Thiên Linh Điệp, tám đời cam nguyện làm sâu kiến không hoá điệp, liên tục kết kén cầu linh duyên. Giờ ngươi đi theo bản thiếu gia, cũng là linh duyên của ngươi, thế nào?" 
 
-"Yên tâm, bản thiếu gia bình thường ăn uống linh thực cũng không có hấp thu, toàn bộ bị bài tiết ra bên ngoài, ngươi xem, mồ hôi này chính là bản thiếu lúc nãy uống Mộc Tâm Hoa Dịch ..." 
+"Yên tâm, bản thiếu gia bình thường ăn uống linh thực cũng không có hấp thu, mà là trữ ở trong cơ thể, tuỳ thời bị bài tiết ra bên ngoài, ngươi xem, mồ hôi này chính là bản thiếu lúc nãy uống Mộc Tâm Hoa Dịch ..." 
 
 "Hylaaaaaaaa"
 
