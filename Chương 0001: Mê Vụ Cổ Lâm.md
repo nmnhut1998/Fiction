@@ -283,3 +283,4 @@ Nói xong, Dong lão hoá thành một đoạn lục quang biến mất. Cự Vi
 Ô Lão Quy rì rầm:
 
 “Cơ duyên lớn … nguy hiểm lại càng lớn … không được không được … Quy gia không thể bỏ qua a!” 
+
