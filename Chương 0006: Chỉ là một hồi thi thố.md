@@ -412,7 +412,7 @@ Hơn nữa, hắn đã giấu diếm. Có rất nhiều hung lệ chi khí bị 
 
 Đó chỉ là dùng một phần nhỏ của giọt tinh huyết mà thôi. 
 
-Cũng mai, bí mật này chưa bị phát hiện, hơn nữa sau này có đan phương Liên Hoa đan làm lí do. Đan phương này là do hắn tình cờ nghiên cứu ra từ kiến thức của ngọc giản. 
+Cũng may, bí mật này chưa bị phát hiện, hơn nữa sau này có đan phương Liên Hoa đan làm lí do. Đan phương này là do hắn tình cờ nghiên cứu ra từ kiến thức của ngọc giản đạt được từ Thượng Thiên Tán Tài. 
 
 Sư Vương bế tiểu Lạc Vân, nhẹ nhàng đi tới. 
 

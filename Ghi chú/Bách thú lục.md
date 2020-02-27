@@ -1,0 +1,34 @@
+Thiết Hoả Cự Viên
+Kim Lôi Sư Vương
+Huyền Quy
+Huyền Xà
+
+## 0.1. Tiểu Ô Quy: 
+Cùng lúc đó, ở con đường cách xa mấy trăm dặm, một tiểu ô quy to cỡ hai bàn tay đang toàn lực chạy. Tiểu ô quy toàn thân đen tuyền, ở trên cổ phủ đầy lân giáp, lại có hai vệt thanh sắc cực kì bắt mắt. Trên mai rùa, quy văn có tám nhánh, tụ ở trung tâm, quanh một đồ đằng hình tròn, tựa như là âm dương đồ. Âm dương đồ chậm rãi xoay tròn, nghịch chiều âm dương, một dòng hắc thuỷ từ trong đó chảy ra. 
+
+## 0.2. Thiên Linh Điệp: 
+"Hồ điệp có hồn, cửu thế thành linh, một cánh mang sinh, một cánh chứa tử ... thượng thiên ban tên ... Thiên Linh Hồ Điệp."  // "Thiên Linh Điệp, tám đời cam nguyện làm sâu kiến không hoá điệp, liên tục kết kén cầu linh duyên. Giờ ngươi đi theo bản thiếu gia, cũng là linh duyên của ngươi, thế nào?" 
+
+
+## 0.3. Bách Quỷ Trận: 
+bách quỷ dạ hành, có thể thuấn di, bắt lấy dị thú 
+
+## 0.4. Linh Lung Tiên Lộc: 
+thúc đẩy dược thảo sinh trưởng, trên sừng cộng sinh với thực vật
+
+## 0.5. Bàn Sơn Bạch Tượng: 
+cõng vật nặng, vào linh cảnh vật nặng có thể nhập thân thành đồ đằng
+Kiếm Sư Hổ: linh cảnh mọc ra Kiếm Sí. Skill là Đại Địa Cuồng Tiểu
+
+## 0.6. Thiên Quang Mã: mang thần quang thánh khiết, có cánh có thể bay, đầu mọc sừng 
+
+## 0.7. Xích Hoả Điểu: thông minh, Skill là Hoả Điểu Liêu Lâm 
+
+## 0.8. Cửu Mệnh Thiên Miêu: có thể mang Vạn Chú Phụ Thân Phù, phân thành trăm đạo thân ảnh 
+
+## 0.9. Ám Dực Tử Mao Bức: 
+khống chế Ám Dực. 
+
+## 0.10. Thiên Hồn Tuyết Lang: 
+khống chế Chiến Lang khôi lỗi
+

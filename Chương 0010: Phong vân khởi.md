@@ -38,7 +38,7 @@ Dĩ nhiên, tiểu Lạc Vân ngay cả một chút cũng không bị ảnh hư�
 
 Ở trong Mê Vụ Cổ Lâm, những nơi như thế này không ít, cũng không nhiều, chừng hai ba chục chỗ, nhưng không phải bất cứ dị thú nào cũng có thể dùng bởi vì những nơi này đa số đều trồng một chút kì hoa dị thảo đặc thù có tính uy hiếp đối với hung thú, nhưng lại không có tác dụng đối với một số loài dị thú nhất định. Dù sao những kì hoa dị thảo như vậy bồi dưỡng rất khó, không phải là đại tộc trong Cổ Lâm nắm giữ tài lực cùng bí pháp thì không thể bồi dưỡng ra. 
 
-Bồi dục kì hoa dị thảo, làm phát sinh loài mới cũng tự thành một lĩnh vực, tựa như luyện đan luyện khí. Tỉ như Quang Đăng Thảo, nghe nói xuất xứ là do Kim Nghê Nhất Tộc trải qua mấy trăm năm mới có thể từ một loại Thất Thải Vụ Thảo Thần cấp dược thảo cực kì trân quý mà bồi dưỡng thành, tuy tác dụng không được như Thất Thải Vụ Thảo, cấp bậc cũng thấp hơn nhiều, nhưng lại dễ trồng hơn, thanh niên Kim Nghê tộc trẻ tuổi, tu vi chưa đủ có thể dùng thay thế Thất Thải Vụ Thảo trong lúc điều chế hương liệu. 
+Bồi dục kì hoa dị thảo, làm phát sinh loài mới cũng tự thành một lĩnh vực, như luyện đan luyện khí. Tỉ như Quang Đăng Thảo, nghe nói xuất xứ là do Kim Nghê Nhất Tộc trải qua mấy trăm năm mới có thể từ một loại Thất Thải Vụ Thảo Thần cấp dược thảo cực kì trân quý mà bồi dưỡng thành, tuy tác dụng không được như Thất Thải Vụ Thảo, cấp bậc cũng thấp hơn nhiều, nhưng lại dễ trồng hơn, thanh niên Kim Nghê tộc trẻ tuổi, tu vi chưa đủ có thể dùng thay thế Thất Thải Vụ Thảo trong lúc điều chế hương liệu. 
 
 Bước ra khỏi phạm vi Quang Đăng Thảo tác động, Tiểu Thiên Nhi từ trên tóc của tiểu Lạc Vân bay ra: 
 
@@ -48,7 +48,7 @@ Bước ra khỏi phạm vi Quang Đăng Thảo tác động, Tiểu Thiên Nhi 
 
 Nuốt một đoá Tử Sắc Quang Đăng Hoa vào miệng, tiểu Lạc Vân nhăn mặt, toàn thân đột nhiên mồ hôi nhễ nhại. 
 
-Dược tính của Tử Sắc Quang Đăng Hoa vốn cuồng bạo, vào trong cơ thể tiểu Lạc Vân lại không tạo thành phá hư gì, ngược lại dược tính cùng độc tính bị tách riêng, thông qua mồ hôi mà bài tiết ra ngoài.
+Dược tính cùng nhiệt độ của Tử Sắc Quang Đăng Hoa vốn cuồng bạo, vào trong cơ thể tiểu Lạc Vân lại không tạo thành phá hư gì, ngược lại dược tính cùng độc tính bị tách riêng, thông qua mồ hôi mà bài tiết ra ngoài.
 
 Tiểu Lạc Vân chọt chọt Tiểu Thiên Nhi đậu trên bàn tay, đút cho nó Mộc Tâm Hoa Dịch cùng giọt dịch chứa dược tính của Tử Sắc Quang Đăng Hoa, đồng thời để nó hấp thu Thiên Tâm Hương trên người mình. 
 
@@ -58,9 +58,9 @@ Trên cánh tiểu hồ điệp, đốm đốm phấn bướm mang huỳnh quang
 
 Nghe tới Mộc Tâm Hoa Dịch, hai mắt tiểu hồ điệp sáng lên, cặp râu dài liên tục giật giật. Nếu có thể hấp thu đầy đủ dược tính của Tử Sắc Quang Đăng Hoa cùng với Mộc Tâm Hoa Dịch, lấy mộc sinh hoả, tăng thêm khí tức kì dị trên người tiểu Lạc Vân thúc đẩy, nó có thể tiến hành thuế lột xác nữa, trở thành Thiên Linh Hoả Điệp!
 
-Tiểu Lạc Vân biết trùng tộc bị giới hạn ở huyết mạch, tuy trưởng thành rất nhanh nhưng cấp độ lại rất hạn chế, xưa nay đa số dựa vào số lượng để thủ thắng. 
+Tiểu Lạc Vân biết trùng tộc bị giới hạn ở huyết mạch, tuy trưởng thành rất nhanh nhưng cấp độ lại rất hạn chế, sức mạnh cá thể thậm chí so với man thú còn nhỏ yếu hơn, xưa nay đa số dựa vào số lượng để thủ thắng. 
 
-Nhưng mà Thiên Linh Điệp thì không giống. Thiên Linh Điệp chấp nhận tám kiếp trước đều là con sâu cái kiến, đem hết tích luỹ một lần dồn vào cơ hội lột xác cuối cùng, nhất cử thành Linh thú, phần nghị lực này không phải dị thú nào cũng có được, cho nên mới dẫn tới Sư Vương chú ý. 
+Nhưng mà Thiên Linh Điệp thì không giống. Thiên Linh Điệp chấp nhận tám kiếp trước đều là con sâu cái kiến. Mỗi một thế của Thiên Linh Điệp đều là tiểu trùng, dùng hết sức bình sinh của mình đi tìm linh dược linh mộc, khi sắp chết thì nhả tơ hoá kén. Trải qua tám kiếm cam phận sâu kiến, dồn hết tích luỹ vào một lần hoá kén cuối cùng, nhất cử thành Linh thú, phần nghị lực này không phải dị thú nào cũng có được, cho nên mới dẫn tới Sư Vương chú ý. 
 
 Thiên Linh Điệp có được nghị lực xoá bỏ hạn chế chủng tộc, lại có đặc trưng trưởng thành nhanh của trùng tộc, hiện tại tiểu Lạc Vân cung cấp thiên tài địa bảo, rất nhanh đã tiến thêm một bước. 
 
@@ -113,7 +113,7 @@ Làm xong hết thải, tiểu Lạc Vân mệt mỏi rã rời nằm trên đ�
 Tiếng thở đều đều, ở giữa biển hoa dốc thoai thoải, có một đứa trẻ môi hồng răng trắng, trong giấc ngủ liên tục trở mình, không ngừng kêu đau. 
 
 ______
-Cùng lúc đó, ở con đường cách xa mấy trăm dặm, một tiểu ô quy to cỡ hai bàn tay đang toàn lực chạy. Tiểu ô quy toàn thân đen tuyền, ở trên cổ phủ đầy lân giáp, lại có hai vệt thanh sắc cực kì bắt mắt. Trên mai rùa, quy văn có tám nhánh, tụ ở trung tâm, quanh một đồ đằng hình tròn, tựa như là âm dương đồ. Âm dương đồ chậm rãi xoay tròn, nghịch chiều âm dương, một dòng hắc thuỷ từ trong đó chảy ra, . 
+Cùng lúc đó, ở con đường cách xa mấy trăm dặm, một tiểu ô quy to cỡ hai bàn tay đang toàn lực chạy. Tiểu ô quy toàn thân đen tuyền, ở trên cổ phủ đầy lân giáp, lại có hai vệt thanh sắc cực kì bắt mắt. Trên mai rùa, quy văn có tám nhánh, tụ ở trung tâm, quanh một đồ đằng hình tròn, tựa như là âm dương đồ. Âm dương đồ chậm rãi xoay tròn, nghịch chiều âm dương, một dòng hắc thuỷ từ trong đó chảy ra. 
 
 Tiểu ô quy dường như không biết mệt, bốn chân dài ra, cơ bắp như ngựa, lấy tư thế quái dị mà không ngừng phi nhanh, còn không ngừng mở miệng phun tiếng người: 
 
@@ -181,13 +181,13 @@ Tiếng của Dong lão cũng từ đó phát ra:
 "Tiểu tử, Hoá Sát Thanh Đài là cấm kị của Linh Lung Tiên Lộc nhất tộc, ngươi không được phép sử dụng nữa. Cho dù ngươi thiên tư có tốt, lộc giác có thể cộng sinh cùng Hoá Sát Thanh Đài, nhưng vẫn không thể khống chế nó, nếu hôm nay ta không ra tay, Cổ Lâm ắt có tai ương ngập đầu ..." 
 ____________
 
-Bìa rừng, nơi đồng bằng phía Nam giáp với khu rừng nguyên thuỷ phía Đông, bầy sói hơn ba mươi con lướt đi trên đồng cỏ như một hồi loạn tiễn. Phía trước bọn chúng, một con hung thú bộ dáng như heo rừng, toàn thân lượn lờ hắc khí, lại bị doạ cho hoảng sợ chạy loạn. 
+Bìa rừng, nơi đồng bằng phía Nam giáp với khu rừng nguyên thuỷ phía Tây, bầy sói hơn ba mươi con lướt đi trên đồng cỏ như một hồi loạn tiễn. Phía trước bọn chúng, một con hung thú bộ dáng như heo rừng, toàn thân lượn lờ hắc khí, lại bị doạ cho hoảng sợ chạy loạn. 
 
 Trong bầy sói, có ba con tuyết lang anh dũng thần tuấn, bộ lông trắng muốt. Phần còn lại bầy sói lại có bộ lông màu xám tro, đôi mắt vô thần, nhìn có vẻ hốc hác, nhưng móng vuốt cùng răng nanh cực kì sắc bén. 
 
 Thiên Hồn Tuyết Lang, có thể dùng hung thú bồi dưỡng Chiến Lang thuộc hạ cho bản thân. Chiến Lang và Thiên Hồn Tuyết Lang đều do cùng một mẹ sinh ra, nhưng mỗi lứa sinh sau một năm đều tiến hành quyết đấu, chỉ có một con cuối cùng sẽ trở thành Thiên Hồn Tuyết Lang.
 
-Lang tộc cao ngạo, khi thua sẽ tuân thủ ước hẹn, thân xác bị Thiên Hồn Tuyết Lang khống chế, linh hồn dần dần tiêu tan, trở thành sinh mệnh đặc thù tựa như khôi lỗi, trở thành Chiến Lang. Chiến Lang có thể thông qua thôn phệ hung thú mà dần dần cường đại, nhưng lại vì không có linh hồn tự chủ, cho nên khả năng bị hung lệ chi khí đồng hoá biến thành hung thú rất nhỏ.
+Lang tộc cao ngạo, khi thua sẽ tuân thủ ước hẹn, thân xác bị Thiên Hồn Tuyết Lang khống chế, linh hồn dần dần tiêu tan, trở thành sinh mệnh đặc thù tựa như khôi lỗi, gọi Chiến Lang. Chiến Lang có thể thông qua thôn phệ hung thú mà dần dần cường đại, nhưng lại vì không có linh hồn tự chủ, cho nên khả năng bị hung lệ chi khí đồng hoá biến thành hung thú rất nhỏ.
 
 Mà ba con Thiên Hồn Tuyết Lang này tuy vẫn chưa được ba tuổi, nhưng khống chế ba mươi đầu Chiến Lang, dường như quét ngang đồng bằng, không gì cản nổi. 
 

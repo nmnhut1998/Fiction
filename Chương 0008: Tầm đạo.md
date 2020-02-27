@@ -10,7 +10,7 @@ Cũng có nghĩa còn mấy tháng nữa tiểu Lạc Vân được ba tuổi.
 
 Ba tuổi chính là lúc tiểu Lạc Vân chính thức bắt đầu đi học ở Thanh Lâm Học Viện. Ấu thú dưới ba tuổi đều không thể tự tiện bước vào Thanh Lâm Học Viện. 
 
-Dưới sự ảnh hưởng của pháp tắc trong Cổ Lâm, trí não sẽ phát triển sớm hơn bình thường, nhưng tâm tính thì không thể theo kịp. Đó cũng là một lợi thế, bởi lẽ trẻ nhỏ dễ dạy, không có cao ngạo cùng cứng đầu, chính là mầm non tốt nhất. 
+Dưới sự ảnh hưởng của pháp tắc trong Cổ Lâm, cơ bắp và trí não sẽ phát triển sớm hơn bình thường, nhưng vóc dáng cùng tâm tính thì không thể theo kịp. Đó cũng là một lợi thế, bởi lẽ trẻ nhỏ dễ dạy, không có cao ngạo cùng cứng đầu, hơn nữa cơ bắp phát triển sớm là tiền đề để tôi luyện xương cốt, chính là mầm non tốt nhất. 
 
 Ví dụ như tiểu Lạc Vân tư chất thông tuệ, bẩm sinh đã có khả năng học hỏi đặc thù, nhìn qua là nhớ, chỉ cần nghe qua thì không quên. Từ lúc một tuổi, tiểu Lạc Vân đã biết đi, biết nói, biết cầm bút, biết bắn cung. 
 
@@ -26,7 +26,7 @@ Lôi thể của tiểu Lạc Vân trải qua mấy năm nay lại chậm rãi b
 
 Tiểu Lạc Vân trở thành một tồn tại đặc thù nhất. Ở trong Mê Vụ Cổ Lâm, rất nhiều điều vốn không thể đều trở thành có thể. 
 
-Tỉ như, không có linh căn vẫn có thể trở thành Thuần Thú Sư hay Hoá Thú Sư. Tỉ như Hoá Thú Sư cũng có thể là Thuần Thú Sư. Tỉ như, không cần phải trở thành Thuần Thú Sư hay Hoá Thú Sư, thậm chí không cần phải có linh căn mới có thể tu luyện. Vì con đường tu luyện của nhân loại chính là phát tích từ đây. 
+Tỉ như, không có linh căn vẫn có thể trở thành Thuần Thú Sư hay Hoá Thú Sư. Tỉ như Hoá Thú Sư cũng có thể là Thuần Thú Sư. Tỉ như, không cần phải trở thành Thuần Thú Sư hay Hoá Thú Sư, thậm chí không cần phải có linh căn mới có thể tu luyện. Vì con đường tu luyện của nhân loại chính là phát tích từ đây, nơi Mê Vụ Cổ Lâm này. 
 
 Hắn có thể cho tiểu Lạc Vân tinh huyết tốt nhất, trở thành Hoá Thú Sư tiềm năng nhất. Hắn có thể cho tiểu Lạc Vân kí khế ước với dị thú có huyết mạch và tư chất tốt nhất, trở thành Thuần Thú Sư có tiền đồ nhất. Hắn có thể luyện chế pháp bảo mạnh nhất, làm cho khí linh thời thời khắc khắc nghe lệnh tiểu Lạc Vân, hay từ chỗ Cự Viên lấy được Thanh Liên Linh Bảo tốt nhất, cung cấp tài nguyên đầy đủ để tiểu Lạc Vân thuận lợi phát triển. Thậm chí hắn có bí thuật có thể cưỡng ép linh hồn dung hợp, làm cho tiểu Lạc Vân dung hợp cùng với thú hồn, một lần dung hợp tu vi tiến xa ngàn dặm. 
 
@@ -148,7 +148,7 @@ Tiểu Lạc Vân vừa đi vừa suy nghĩ, toàn bộ kiến thức đã học
 
 "Cha dặn nếu gặp phải Man thú thì không phải sợ, nếu hung thú dưới ngũ giai thì có thể đánh, gặp trên cửu giai thì hô cứu mạng, gặp Linh thú cường đại thì phải dùng bối cảnh chống lưng." 
 
-Tiểu Lạc Vân vẫn đi vừa lẩm nhẩm, xoài sống mắm ruốc trong tay vẫn còn hơn nửa. Mắm ruốc ăn nhiều nên khác nước, tiểu Lạc Vân cầm bình linh dịch tu ừng ực.  
+Tiểu Lạc Vân vẫn đi vừa lẩm nhẩm, xoài sống mắm ruốc trong tay vẫn còn hơn nửa. Mắm ruốc ăn nhiều nên khát nước, tiểu Lạc Vân cầm bình linh dịch tu ừng ực.  
 
 Mặt trời xuống núi. Nắng chiều đỏ rực ẩn hiện sau kẽ lá. Màn đêm từ từ buông xuống. Tiếng ễnh ương gọi bạn râm ran đâu đó. Thỉnh thoảng có cánh chim nào đó lạc bầy, ở giữa trời kéo lên một tiếng cao vút. 
 
@@ -180,7 +180,7 @@ Bóng đen kia đưa tay lên, tiểu Lạc Vân trong cơn mơ màng giường 
 
 Bóng đen tức giận, cánh tay muốn rút ra, nhưng Lưu Ly Bảo Y dường như có cảm ứng, đột nhiên loé sáng, hắn đành bất đắc dĩ để yên. 
 
-Bàn tay còn tại xẹt qua, lưu lại trên cổ tay tiểu Lạc Vân một vết máu mảnh như sợi tơ. Trên người tiểu Lạc Vân đột nhiên đại phát một trận kim quang, thanh âm long ngâm lôi minh đánh thẳng vào thần hồn, một tiếng đau đớn bị bóng đen kia nuốt vào trong cổ họng. 
+Bàn tay còn lại xẹt qua, lưu lại trên cổ tay tiểu Lạc Vân một vết máu mảnh như sợi tơ. Trên người tiểu Lạc Vân đột nhiên đại phát một trận kim quang, thanh âm long ngâm lôi minh đánh thẳng vào thần hồn, một tiếng đau đớn bị bóng đen kia nuốt vào trong cổ họng. 
 
 Ba giọt máu đỏ tươi từ cổ tay tiểu Lạc Vân rỉ ra, thơm ngào ngạt, bị bóng đen thu vào. 
 

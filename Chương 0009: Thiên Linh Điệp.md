@@ -14,13 +14,13 @@ Như có tiếng gỗ bị đục thủng. Từ trong thân gỗ có cái gì đ
 
 Tiếng kêu vui sướng vang lên, bên trong bay ra một con lục sắc hồ điệp cỡ chừng nửa bàn tay, nhưng hai cái râu dài gấp đôi thân hình, cuộn ở trước mặt thành một vòng tròn. 
 
-Hồ điệp tựa hồ vừa biết bay, trên đôi cánh vẫn còn dính chút dịch nhờn hơi ướt, tựa hồ là vừa mới lột xác. Cánh hồ điệp màu xanh lục thẫm, phía trên có trăm ngàn đốm nhỏ li ti phát ra huỳnh quanh màu lục nhạt. Hai cánh vẫy vẫy trong không khí tựa như hai chiếc lá non đón nắng sớm đung đưa. 
+Hồ điệp tựa hồ vừa biết bay, trên đôi cánh vẫn còn dính chút dịch nhờn hơi ướt, tựa hồ là vừa mới lột xác. Cánh hồ điệp màu xanh lục thẫm, phía trên có trăm ngàn đốm nhỏ li ti phát ra huỳnh quang màu lục nhạt. Hai cánh vẫy vẫy trong không khí tựa như hai chiếc lá non đón nắng sớm đung đưa. 
 
 "Hyla! Hyla!"  
 
 Hai cái râu của hồ điệp khu động trong không khí đánh hơi, bay lượn hai vòng trên không, sau đó hạ xuống. Tiểu Lạc Vân thân hình đơn bạc, tiểu hồ điệp đáp xuống ngay vị trí cánh tay. 
 
-Trên người tiểu Lạc Vân, cho dù có che giấu hay không, lúc nào cũng có một ý vị thánh khiết, làm cho bất cứ dị thú nào cũng muốn thân cận. Hơn nữa, tiểu hồ điệp biết trong lúc mình hoá kén, có một giọt linh dịch thông qua thân gỗ thấm vào, nhờ đó mới có thể thành công lột xác. 
+Trên người tiểu Lạc Vân, cho dù có che giấu hay không, lúc nào cũng có một ý vị thánh khiết, làm cho bất cứ dị thú nào cũng muốn thân cận. Hơn nữa, tiểu hồ điệp biết trong lúc mình hoá kén, có một dòng linh dịch thông qua thân gỗ thấm vào, nhờ đó mới có thể thành công lột xác. 
 
 Linh dịch đó chính là nước tắm của tiểu Lạc Vân. 
 
@@ -50,7 +50,7 @@ Hai tay ôm chân, dựa mình vào gốc cây, tiểu Lạc Vân rầu rĩ, kho
 
 Không còn Khổng Tước Bình An Phù, nghĩa là không có cách nào liên lạc với cha và Viên thúc thúc. 
 
-Trọng yếu nhất là toàn bộ tài sản trong Càn Khôn Quy Giáp đều mất sạch, nếu ngày mai không tới được Mê Vụ Cổ Lâm, nhất định khí tức phát tán sẽ dẫn tới hung thú tụ tập. 
+Trọng yếu nhất là toàn bộ tài sản trong Càn Khôn Quy Giáp đều mất sạch, nếu không tới được Thanh Lâm Học Viện, nhất định khí tức phát tán sẽ dẫn tới hung thú tụ tập. 
 
 Hơn nữa lúc nãy còn chảy nhiều máu như vậy. 
 
@@ -106,13 +106,13 @@ Cái quý giá nhất của tuổi thơ chính là buồn chợt đến cũng ch
 
 Một hồi sau, tiểu Lạc Vân suy nghĩ cái gì, đột nhiên mở miệng, tựa hồ là đọc chú ngữ: 
 
-"Hồ điệp có hồn, cửu thế thành linh, một cánh mang sinh, một cánh chứa tử ... thượng thiên ban tên ... Thiên Linh Điệp." 
+"Hồ điệp có hồn, cửu thế thành linh, một cánh mang sinh, một cánh chứa tử ... thượng thiên ban tên ... Thiên Linh Hồ Điệp." 
 
-Tiếng nói không lớn, tựa như là tiểu hài tử đọc thuộc lòng từ trong quyển sách nào đó, nhưng tiểu hồ điệp lại làm nó chấn động. Tiểu Lạc Vân thừa cơ đó ở đưa tay, ngón tay miếng một cái đã lấy đi không ít phấn bướm ở trên hai cánh. 
+Tiếng nói không lớn, tựa như là tiểu hài tử đọc thuộc lòng từ trong quyển sách nào đó, nhưng tiểu hồ điệp nghe vào lại làm nó chấn động. Tiểu Lạc Vân thừa cơ đó ở đưa tay, ngón tay miết một cái đã lấy đi không ít phấn bướm ở trên hai cánh. 
 
-Tiểu hồ điệp thấy tiểu Lạc Vân lấy cánh bướm trên cơ thể mình mà vẫn không bị đầu độc chết, cũng không ngăn cản nữa. 
+Tiểu hồ điệp thấy tiểu Lạc Vân lấy phấn bướm trên cơ thể mình mà vẫn không bị đầu độc chết, cũng không ngăn cản nữa. 
 
-Tiểu Lạc Vân học theo trong sách, tỉ mỉ chọn lá do Thanh Tâm Đằng rơi xuống, gom lại thành đống lại rải lên một chút phấn bướm. Phấn bướm chạm vào lá khô, toả ra mùi hương kì lạ, hung thú nhỏ yếu xung quanh đều không dám tới gần. Tiểu Lạc Vân lại tìm tới hai hòn đá, dùng sức đập vào nhau. Phấn bướm bám vào lá khô rất dễ bắt lửa, chỉ mấy chốc tiểu Lạc Vân đã dựng xong một bếp lửa sưởi ấm. 
+Tiểu Lạc Vân học theo trong sách, tỉ mỉ chọn lá do Thanh Hương Đằng rơi xuống, gom lại thành đống lại rải lên một chút phấn bướm. Phấn bướm chạm vào lá khô, toả ra mùi hương kì lạ, hung thú nhỏ yếu xung quanh đều không dám tới gần. Tiểu Lạc Vân lại tìm tới hai hòn đá, dùng sức đập vào nhau. Phấn bướm bám vào lá khô rất dễ bắt lửa, chỉ mấy chốc tiểu Lạc Vân đã dựng xong một bếp lửa sưởi ấm. 
 
 Tiểu Lạc Vân ngồi bên đống lửa, tiểu hồ điệp đậu trên cánh tay của hắn, hơi có chút khó chịu, nhưng vẫn để cho hắn vuốt ve. 
 

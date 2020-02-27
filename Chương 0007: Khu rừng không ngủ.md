@@ -66,7 +66,7 @@ Tựa như lão nhân đến tuổi xế chiều, mỗi lần hít thở đều 
 
 Một cơn gió kéo theo chút linh khí cuốn tới, vài sợi tóc trên đầu hắn rơi xuống, mà ở cằm, bộ râu đã lâu không chăm sóc cũng rụng đi ít nhiều. 
 
-Tiểu Lạc Vân nói mớ, trong giấc mơ ậm ừ mấy tiếng, từa hồ như trộn lẫn giữa "Cha" và "oa ... oa". 
+Tiểu Lạc Vân nói mớ, trong giấc mơ ậm ừ mấy tiếng, tựa hồ như trộn lẫn giữa "Cha" và "oa ... oa". 
  
 Ánh trăng xuyên qua cửa số, chiếu xiên một góc, cái bóng của hắn in thật dài trên mặt đất. 
 
@@ -112,7 +112,7 @@ Huyền Vân liệp trường bao phủ bởi một lớp thực vật - những
 
 Những chiếc lá mầm to dần, mầm cây lại cao lên, mọc ra càng nhiều cành lá. 
 
-Cuối cùng, mùi huyết tinh biến mất, mầm cây lại chui vào trong đất. Mặt đất trở về một màu nâu đỏ tốt tươi. 
+Cuối cùng, mùi huyết tinh biến mất, mầm cây lại chui vào trong đất. Mặt đất trở về một màu nâu đỏ tốt tươi. Hung thú chi tinh cũng bị mảng thực vật hấp thu không còn. 
 
 Màn đêm lại buông xuống. Thiếu vắng ánh mặt trời, tiếng quỷ khóc khò khè ban đầu trầm trầm, từ từ lớn dần, sau đó lại cao vút, chói tai. 
 
