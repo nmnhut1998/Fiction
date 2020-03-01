@@ -108,7 +108,7 @@ Hoàng Sâm do tiểu hồ điệp tìm về, hơn nữa phải bay rất xa m�
 
 Nhưng mà trong người dược lực vẫn còn, Tiểu Thiên Nhi tạm thời không đi tính toán với hắn. 
 
-Cuối cùng, Hoàng Sâm hoàn toàn tan vào miệng tiểu Lạc Vân, cơn đói bụng cũng dần tiêu tan. 
+Cuối cùng, một mảnh Hoàng Sâm hoàn toàn tan vào miệng tiểu Lạc Vân, cơn đói bụng cũng dần tiêu tan. 
 
 "Tiểu Thiên Nhi, mau đem chày cối tới, chúng ta cùng nhau chế hương!" 
 
@@ -140,7 +140,7 @@ Một hồi lâu sau, tiểu Lạc Vân nhảy cẫng lên.
 
 "Có cách!" 
 
-Tiểu Lạc Vân lấy lá Quang Đăng Thảo lớn nhất, cuộn thành hình ống tròn, để Tiểu Thiên Nhi dùng tơ bướm kết dính. Sau đó, lại dùng lá cây và tơ bướm phong kính thùng tinh dầu, chỉ chừa đúng hai lỗ nhỏ, mỗi lỗ cắm một ống tròn vừa chế. Một ống cắm sâu tới gần đáy, đầu trên cong, kết một cái phễu dùng để đón gió. Ống còn lại cắm nông, không chạm vào tinh dầu, chủ yếu là để đề phòng tinh dầu bị trào ngược. 
+Tiểu Lạc Vân lấy lá Quang Đăng Thảo lớn nhất, cuộn thành hình ống tròn, để Tiểu Thiên Nhi dùng tơ bướm kết dính. Sau đó, lại dùng lá cây và tơ bướm phong kính thùng tinh dầu, chỉ chừa đúng hai lỗ, mỗi lỗ cắm một ống tròn vừa chế. Một ống cắm sâu tới gần đáy, đầu trên cong, kết một cái phễu dùng để đón gió. Ống còn lại cắm nông, không chạm vào tinh dầu, chủ yếu là để đề phòng tinh dầu bị trào ngược. 
 
 Sau cùng, tiểu Lạc Vân lại dùng lá Quang Đăng Thảo kết thành mấy chục cái quạt nan. 
 
@@ -208,7 +208,7 @@ Hai âm thanh liên tục vang lên. Âm thanh thứ nhất, là Tiểu Thiên N
 
 "Sách có nói, sinh linh có tham sân si, chữ tham đứng đầu. Tham ăn thì chết chứ tội tình gì." 
 
-Đây là độc dược dùng để đối phó kẻ thù, là độc đó, đờ ốc đốc nặng độc, ngươi hiểu không tuy tác dụng đối với tu vi rất tốt, nhưng ngươi tự chủ ăn vào, trách ta làm sao được. 
+Đây là độc dược dùng để đối phó kẻ thù, là độc đó, đờ ốc đốc nặng độc, ngươi hiểu không. Tuy tác dụng đối với tu vi rất tốt, nhưng ngươi tự chủ ăn vào, trách ta làm sao được. 
 
 Lại nói, lâu như vậy mùi mắm ruốc mới phát tác, xem ra bản thiếu gia thành công rồi. 
 

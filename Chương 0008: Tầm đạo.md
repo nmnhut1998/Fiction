@@ -50,7 +50,7 @@ Biết được con đường mình phải đi, đó là tri đạo.
 
 Sư Vương thì thầm, lời nói của hắn cách không truyền vào tai tiểu Lạc Vân đang dần khuất dáng trên con đường lá vàng. 
 
-Hắn nhẩm tính, có lẽ năm nay niên khoá sẽ mở trước sinh nhật tiểu Lạc Vân vài ngày. Hắn lại nhẩm tính rằng ngày tiểu Lạc Vân tiếu ngạo quần hùng, hắn có lẽ đã rơi rụng như lá vàng ngoài hiên. 
+Hắn nhẩm tính, có lẽ năm nay niên khoá sẽ mở sau sinh nhật tiểu Lạc Vân vài ngày. Hắn lại nhẩm tính rằng ngày tiểu Lạc Vân tiếu ngạo quần hùng, hắn có lẽ đã rơi rụng như lá vàng ngoài hiên. 
 
 _________________
 
