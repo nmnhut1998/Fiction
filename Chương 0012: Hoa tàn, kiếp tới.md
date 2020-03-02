@@ -32,4 +32,40 @@ Tang Cung so với lúc tiểu Lạc Vân một ngày tuổi đã thay đổi nh
 
 Bồng Tiễn vốn có chín mũi, nhưng hiện tại chỉ còn có tám. Bên cạnh tám mũi Bồng Tiễn, trong ống tên của tiểu Lạc Vân vẫn có bốn mũi tên khác, làm từ các linh tài khác nhau, từ gỗ cho tới xương, từ hắc thiết cho tới ngọc thạch. Tổng cộng, tiểu Lạc Vân có 12 mũi tên. Mười hai cơ hội. 
 
-Không lâu sau, trong màn đêm đen đặc truyền đến từng tiếng gió lay động. Tiểu Thiên Nhi cảm nhận được không khí chấn động. 
+Không lâu sau, trong màn đêm đen đặc truyền đến từng tiếng gió lay động. Tiểu Thiên Nhi cảm nhận được không khí chấn động. Sau đó, tiểu Lạc Vân nghe được tiếng la thất thanh: 
+
+"Cha mẹ các người bỏ mặt tiểu Ô Ô, đêm đêm giường chiếu hanh khô, một đêm thức giấc răng hô rụng rời ..." 
+
+Tiểu Lạc Vân nghe tiếng chửi chói tai, không nhịn được tự hỏi:
+
+"Hẳn là bí thuật nào đó cần phải có nhịp điệu ... chứ vừa đi vừa chửi chỉ có trong truyện kí ... vừa chạy vừa chửi là vô tiền khoáng hậu rồi"
+
+Tiếng thét vẫn không giảm, tựa hồ càng gấp gáp, âm thanh lại càng gần: 
+
+"Các người làm ngược ý trời, từ nay tới chết một đời vô sinh ... tổ tông ngó xuống mà nhìn ... A! Cứu mạng!" 
+
+Hai chữ "cứu mạng" đặc biệt to rõ, tựa như một quả pháo nổ vang giữa rừng, mà chủ nhân của âm thanh cũng biến thành một vệt ô quang, không biết làm cách nào mà xuất hiện, bám ở trên lưng tiểu Lạc Vân. 
+
+Đó là một con tiểu ô quy to cỡ hai bàn tay, hai con mắt ti hí trợn to, đang không ngừng thở dốc. 
+
+"Ngươi cũng là luyện độc sư? Mau mau lấy vũ khí của ngươi ra, để Quy gia xem dài hay ngắn?" 
+
+"Ô, Tang Cung? Vũ khí của ngươi rất dài rồi, rất thích hợp!" 
+
+Khoé miệng tiểu Lạc Vân co quắp, vừa muốn nói chuyện, Tiểu Thiên Nhi trên vai đã kêu lên một tiếng cao vút. 
+
+"Hyyyylaaaaaaa!" 
+
+Trong bóng tối, đột nhiên tử sắc hoả diễm bùng lên. Hơn trăm đoá tử sắc hoả diễm chiếu rọi những thân ảnh đen thuần tuý, đen hơn cả màn đêm gần như vĩnh cửu của phiến rừng núi này.
+
+Tử sắc hoả diễm mang khí tức làm cho hung thú e ngại, chợt lùi về phía sau. Một số hung thú không may chạm phải tử sắc hoả diễm lập tức héo khô, một thân hung lệ chi khí trong nháy mắt bị rút ra ngoài, sau đó bị đồng bạn điên cuồng nhào tới cắn nuốt. 
+
+Đồng thời, một mùi hương thanh nhẹ, có chút kích thích vị giác bắt đầu lan truyền, ngay cả tiểu Ô Quy cũng bắt đầu chảy nước bọt ... đói bụng. 
+
+Tiểu Ô Quy từ trên người tiểu Lạc Vân bò xuống, thở ra một hơi, đột nhiên vẻ mặt quái dị, hú lên: 
+
+"Không đúng, ngươi làm sao có thể sử dụng pháp thuật!!" 
+
+Tiểu ô quy rõ ràng cảm nhận được, vừa rồi tiểu hồ điệp kia dùng Khống Trần Thuật giải phong hơn trăm đoá Tử Sắc Quang Đăng Hoa, khiến cho hung thú bị tập kích bất ngờ. 
+
+"Ta cũng không biết a ..." 
