@@ -110,7 +110,9 @@ Hàng lông mày rũ xuống, u buồn. Con mắt khép hờ tựa trong cơn m�
 
 Nhạc lên, gió nổi. 
 
-Thiên Hồ Pháp Địch toả ra thanh quang, mang theo dao động kì dị. Trong không khí tồn tại hai luồng gió rõ rệt. 
+Thiên Hồ Pháp Địch toả ra thanh quang, mang theo dao động kì dị. Mỗi lần thanh quang chuyển động, âm thanh truyền ra, du dương, trầm bổng, mang theo chấn động cực nhẹ, nhưng từ từ lan ra, trở nên mạnh dần, cuối cùng biến thành một luồng gió thổi. 
+
+Trong không khí tồn tại hai luồng gió khác rõ rệt. 
 
 Một luồng mang theo lương khí cùng với hương vị chua dịu nhẹ, thấm rất sâu, lan rất xa, bất cứ kẻ nào ngửi vào cũng cảm thấy toàn thân mỏi mệt, chân khí linh khí, hung lệ chi khí thậm chí là máu huyết cũng muốn hoá thành khí thể bay ra ngoài. 
 
