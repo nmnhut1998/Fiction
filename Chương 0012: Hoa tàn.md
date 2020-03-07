@@ -66,7 +66,7 @@ Nhưng Tiểu Thiên Nhi nói cho tiểu Lạc Vân, toàn bộ đều là Thậ
 
 Từ miệng vết thương, hung lệ chi khí bị đệ nhất hương tiềm ẩn của tiểu Lạc Vân âm thầm tác động, biến thành từng đợt khói đen bay ra.
 
-Ngón tay của tiểu Lạc Vân có một vết sẹo. Lướt qua dây cung theo vết sẹo có sẵn, hành động lưu loát đã thực hiện vô số lần, ngón tay bị dây cung sắc bén cắt một vết thương, giọt giọt máu đỏ thấm vào, toả ra hương khí thơm ngào ngạt. Dây cung thấm huyết hồng, lập tức truyền ra từng tiếng sư ngâm vui sướng, giống như thú sủng ngủ say lâu ngày được cho ăn. Từ vị trí ngón tay của tiểu Lạc Vân, ngân lôi chia hai hướng, một bám vào Bồng Tiễn, một chạy theo dây cung, tụ hội ở hai đầu cung, tựa như lưỡng cực. 
+Ngón tay của tiểu Lạc Vân có một vết sẹo. Lướt qua dây cung theo vết sẹo có sẵn, hành động lưu loát đã thực hiện vô số lần, ngón tay bị dây cung sắc bén cắt một vết thương, giọt giọt máu đỏ thấm vào, toả ra hương khí thơm ngào ngạt. Dây cung thấm huyết hồng, lập tức truyền ra từng tiếng sư ngâm vui sướng, giống như thú sủng ngủ say lâu ngày được cho ăn. Từ vị trí ngón tay của tiểu Lạc Vân, ngân lôi chia hai hướng, một bám vào Bồng Tiễn, một chạy theo dây cung, tụ hội ở hai đầu cung tựa như lưỡng cực. 
 
 Bồng Tiễn rời cung, trên thân lập loè ngân lôi, trên đường phóng đi tạo thành một đường lôi tuyến, chưa nghe âm thanh đã thấy mũi tên cắm vào đầu Hung Sát Ma Lang. 
 
@@ -76,13 +76,13 @@ Hai âm thanh trầm đục truyền tới, mũi tên cắm vào đầu Hung Sá
 
 Đùng! Đùng! Đùng! 
 
-Chỉ thấy bên trên mũi tên hiện ra một tiểu ngân sư, ở giữa trái tim có ba giọt máu đỏ tươi toả ra ngân lôi. Tiểu Ngâm Sư gầm nhẹ, theo miệng vết thương chui vào bên trong Hung Sát Ma Lang. Nó đi tới đâu, hung lệ chi khí bị lôi điện đánh tan tới đó. 
+Chỉ thấy bên trên mũi tên hiện ra một tiểu ngân sư, ở giữa trái tim có ba giọt máu đỏ tươi toả ra ngân lôi. Tiểu Ngân Sư gầm nhẹ, theo miệng vết thương chui vào bên trong Hung Sát Ma Lang. Nó đi tới đâu, hung lệ chi khí bị lôi điện đánh tan tới đó. 
 
-Nhưng rất nhanh, lôi điện trên người Hung Sát Ma Lang tiêu biến. Một mũi tên, không cách nào hoá giải được toàn bộ hung lệ chi khí. 
+Nhưng rất nhanh, lôi điện trên người Hung Sát Ma Lang tiêu biến. Một mũi tên không cách nào hoá giải được toàn bộ hung lệ chi khí. 
 
 Hung Lang bị đau đớn, hung tính kích phát, lao thẳng vào tiểu Lạc Vân. 
 
-Tiểu Lạc Vân cầm Tang Cung chắn trước người, nhảy thụt lùi về sau ba bước, chỉ dụng đầu ngón chân, ngón cái miết xuống mặt đất, bộ pháp nhẹ nhàng như sư hổ rình vồ con mồi, không gây ra một chút tiếng động. 
+Tiểu Lạc Vân cầm Tang Cung chắn trước người, nhảy thụt lùi về sau mấy bước, chỉ dụng đầu ngón chân, ngón cái miết xuống mặt đất, bộ pháp nhẹ nhàng như sư hổ rình vồ con mồi, không gây ra một chút tiếng động. 
 
 Hung Sát Ma Lang bước vào trong vùng bị Quang Đăng Hoa Diễm bao phủ, kèm theo vết thương trên người, bị Quang Đăng Hoa tác động, hung lệ chi khí cùng huyết khí bị rút ra ngoài, rất nhanh toàn thân trở nên gầy rộc. Nhưng hung lệ chi khí là thứ đáng sợ, nó quét tới đâu, Quang Đăng Hoa Diễm bị dập tắt tới đó. 
 
@@ -90,13 +90,13 @@ Nếu ở đây còn là một mảnh hoa ngút ngàn, có lẽ sẽ tiêu hao c
 
 "Hyliaaaaaaaa!"
 
-Tiểu Thiên Nhi thét dài, toàn thân nổ tung mười mấy lỗ, dịch thể màu lục - bản mệnh tinh huyết của trùng tộc phún dũng ra. Linh khí màu lục cũng tạo thành từng cơn lốc, cuốn huyết dịch bám vào Hung Sát Ma Lang
+Tiểu Thiên Nhi thét dài, toàn thân nổ tung mười mấy lỗ, dịch thể màu lục - bản mệnh tinh huyết của trùng tộc phún dũng ra. Linh khí màu lục cũng tạo thành từng cơn lốc, cuốn huyết dịch bám vào Hung Sát Ma Lang, ngăn chặn nó tiếp cận tiểu Lạc Vân. 
 
 Xèo ... xèo ...
 
 Bản mệnh tinh huyết cùng linh khí của dị thú rất kì lạ, hai thứ trộn lẫn vào nhau, gặp phải hung lệ chi khí liền bốc cháy thành lửa. 
 
-Tiểu Lạc Vân lại hóp bụng hít sâu, sau đó phun ra thực mạnh, một thất sắc hoả cầu từ miệng phun trúng chân trước của Hung Sát Ma Lang, bên trong chứa độc lực khiến cho chân trước của nó tan thành một đám hung lệ chi khí, ngay cả xương cũng không còn. Bốn chân bị thương, lại mất một chân, Hung Sát Ma Lang không thể di chuyển, đổ gục trên đất. 
+Tiểu Lạc Vân lại hóp bụng hít sâu, sau đó phun ra thật mạnh, một thất sắc hoả cầu từ miệng phun trúng chân trước của Hung Sát Ma Lang, bên trong chứa độc lực khiến cho chân trước của nó tan thành một đám hung lệ chi khí, ngay cả xương cũng không còn. Bốn chân bị thương, lại mất một chân, Hung Sát Ma Lang không thể di chuyển, đổ gục trên đất. 
 
 Đưa tay quẹt mồ hôi lạnh trên trán, tiểu Lạc Vân hít hít cái mũi nhỏ, trên mặt hiện ra nét mừng rỡ:
 
@@ -180,7 +180,7 @@ Quan trọng hơn, đầu hung thú này không có bị thương.
 
 Tiểu Thiên Nhi tính tình dứt khoát, phủ một tầng lục quang điệp phấn lên chân của tiểu Lạc Vân, dùng Khống Trần Thuật giúp hắn leo lên một tảng đá lớn tương đối bằng phẳng, sau đó xoay người bay đi. 
 
-Tiểu Lạc Vân biết, kiếp nạn tới rồi, Tiểu Thiên Nhi rời đi cũng là tự cho mình thêm một phần cơ hội sống. 
+Tiểu Lạc Vân biết kiếp nạn tới rồi, Tiểu Thiên Nhi rời đi cũng là tự cho mình thêm một phần cơ hội sống. 
 
 Đặt tiểu Ô Quy xuống đất, tiểu Lạc Vân rút một mũi tên, con mắt nheo lại. 
 
@@ -206,17 +206,15 @@ Tiểu Lạc Vân nghe hai chữ Thanh Lâm Đại Trận, cũng hiếu kì, h�
 
 "Thanh Lâm Đại Trận chẳng phải ở trong Thanh Lâm Học Viện sao, đã im lìm mấy ngàn năm, ngươi nói vậy là có ý gì?" 
 
-"Thanh Lâm Đại Trận là hậu chiêu phòng ngừa phong ấn có đại biến cố, không biết vì sao mấy ngày trước đột ngột phát ra cấm pháp lĩnh vực, bao trọn toàn bộ Mê Vụ Cổ Lâm. Cấm pháp lĩnh vực này phong kín khiếu huyệt, ngoại trừ một số loại thể thuật, đồng thuật dụng chân khí linh khí tác dụng lên bản thân, còn lại đều không thể sử dụng, vì chân khí linh khí không thể li thể! Nhưng mà lúc nãy Tiểu Hồ Điệp dùng một chiêu kia rõ ràng là linh khí li thể!" 
+"Thanh Lâm Đại Trận là hậu chiêu phòng ngừa phong ấn có đại biến cố, không biết vì sao mấy ngày trước đột ngột phát ra cấm pháp lĩnh vực, bao trọn toàn bộ Mê Vụ Cổ Lâm. Cấm pháp lĩnh vực này phong kín khiếu huyệt, ngoại trừ một số loại thể thuật, đồng thuật, chân khí linh khí tác dụng lên bản thân, còn lại đều không thể sử dụng, vì chân khí linh khí không thể li thể! Nhưng mà lúc nãy Tiểu Hồ Điệp dùng một chiêu kia rõ ràng là linh khí li thể!" 
 
 Tiểu Lạc Vân nghe vậy, ngón tay nhỏ xoa xoa cằm, sau đó trên mặt hiện lên một nụ cười: 
 
 "Thì ra là vậy. Nhưng mà Tiểu Ô Ô, ngươi nói xem, ta vừa cứu ngươi một mạng, mất không ít máu ..." 
 
-Cái đầu tiểu Ô Quy vươn dài, hai con mắt ti hí đảo một vòng, sau đó cắn răng: 
+Lật người lại, cái đầu tiểu Ô Quy vươn dài, hai con mắt ti hí đảo một vòng, sau đó cắn răng: 
 
 "Quy gia có Nguyệt Quang Thạch, Dương Quang Thạch, có thể cung cấp nguyên liệu cho Thiên Hồ Pháp Địch ... nhưng mà Quy gia bị phong ấn pháp thuật, Quy giáp không mở được ..." 
-
-"Hừ, ngươi đừng có
 
 Tiểu Lạc Vân nhoẻn miệng cười nhìn vết thương trên người tiểu Ô Quy, để ý thấy dòng Hắc Thuỷ trên người tiểu Ô Quy đang dần dần dung hợp cùng với một loại chất lỏng màu đen khác.
 
@@ -228,7 +226,7 @@ Tiểu Ô Quy bị ánh mắt bất thiện của tiểu Lạc Vân doạ cho n�
 
 Tiểu Lạc Vân lấy tay chấm một giọt hắc thuỷ trên người tiểu Ô Quy, dưới ánh mắt trợn tròn của tiện quy này mà cho vào miệng. Sờ sờ Lưu Ly Bảo Y bốc khói vì bị Thiên Huyền Hủ Thuỷ ăn mòn, lại liếc nhìn tiểu Ô Quy từ trên xuống dưới: 
 
-"Tu luyện ra Hỗn Độn Chi Thuỷ, lại chịu được Thiên Huyền Hủ Thuỷ ăn mòn mà không chết ... tiểu Ô Ô, Quy gia gia ném ngươi ra đường không để lại vài món đồ tốt sao? Ít nhất cũng phải bù lại Lưu Ly Bảo Y bị hư tổn ... Càn Khôn Quy Giáp trên người ngươi cũng không tệ nga ..." 
+"Tu luyện ra Hỗn Độn Chi Thuỷ, lại chịu được Thiên Huyền Hủ Thuỷ ăn mòn mà không chết ... tiểu Ô Ô, Quy gia gia ném ngươi ra đường không để lại vài món đồ tốt sao? Huyền a di cấp cho ngươi mấy loại độc thủy? Ít nhất cũng phải bù lại Lưu Ly Bảo Y bị hư tổn ... Càn Khôn Quy Giáp trên người ngươi cũng không tệ nga ..." 
 
 "Quy gia ... Quy gia không chơi với yêu nghiệt nhà ngươi ... ngươi tránh xa Quy gia ..." 
 
