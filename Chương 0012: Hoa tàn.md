@@ -12,7 +12,7 @@ Tiểu Lạc Vân như đoá hoa vẫn vừa mới nụ, cả một tuổi thơ,
 
 Tiểu Lạc Vân lại gom góp một số đoá Quang Đăng Hoa vẫn còn nguyên vẹn, bỏ vào đó chút độc hương, lại phong kín bằng phấn của Tiểu Thiên Nhi. 
 
-“Hương thứ nhất ... a, gọi là Xoài Chua Xanh Giòn” 
+“Hương thứ nhất ... a, gọi là Xoài Xanh Chua Giòn” 
 
 “Hương thứ hai ... Mắm Ruốc Cay Nồng!” 
 
@@ -20,7 +20,7 @@ Nếu Sư Vương ở chỗ này, chắc chắn sẽ một tát đánh ngất ti
 
 Kim Nghê tộc lão tổ nghe thấy cũng nhất định thổ huyết mà nhập thổ vi an. 
 
-Tiểu Lạc Vân bỏ ra một buổi, dùng Mộc Tâm Hoa Dịch giữ cho Quang Đăng Hoa khỏi khô héo, đặt vào trong chút phấn bướm chứa “Xoài Chua Xanh Giòn” ở gần cùng với “Mắm Ruốc Cay Nồng” ở rìa phía xa, dặn dò Tiểu Thiên Nhi duy trì Khống Trần Thuật áp chế ánh sáng của Quang Đăng Hoa, khi nào hắn ra lệnh thì lập tức phóng thích độc hương bên trong phấn bướm. 
+Tiểu Lạc Vân bỏ ra một buổi, dùng Mộc Tâm Hoa Dịch giữ cho Quang Đăng Hoa khỏi khô héo, đặt vào trong chút phấn bướm chứa “Xoài Xanh Chua Giòn” ở gần cùng với “Mắm Ruốc Cay Nồng” ở rìa phía xa, dặn dò Tiểu Thiên Nhi duy trì Khống Trần Thuật áp chế ánh sáng của Quang Đăng Hoa, khi nào hắn ra lệnh thì lập tức phóng thích độc hương bên trong phấn bướm. 
 
 Sau khi làm hết thải chuẩn bị, tiểu Lạc Vân ngả người nghỉ ngơi, thi thoảng lại xoa xoa hai bàn tay, ngẩng đầu trông về phía xa. 
 
@@ -56,19 +56,19 @@ Tiểu Thiên Nhi kêu lên mấy tiếng gấp gáp, hai cánh đập liên h�
 
 Xung quanh tiểu Lạc Vân mười trượng, không còn phấn bướm che đậy, Quang Đăng Hoa bảy màu cũng bộc phát hoả diễm. Thất sắc hoả dưới đất, lục quang ở trên không phiêu tán, tạo thành một vùng bảo hộ hoàn mĩ. Đám hung thú cảm nhận được Quang Đăng Hoa Diễm, cũng chần chừ không dám bước vào.
 
-Tiểu Lạc Vân đứng đó, tròng mắt màu lam ngọc phản chiếu ánh sáng, hai cánh tay nhỏ giương cung, đôi mắt nheo lại nhìn bầy hung thú đang vờn quanh. 
+Tiểu Lạc Vân đứng đó, tròng mắt màu lam ngọc phản chiếu ánh sáng, hai cánh tay nhỏ giương cung, đôi mắt nheo lại nhìn bầy hung thú đang vờn quanh. Mồ hôi sau lưng thấm qua Lưu Ly Bảo Y, bốc hơi thành khí, để lại một tầng bụi tinh mịn, phản chiếu ánh lửa, tựa như một bộ nhuyễn giáp bằng bạc lấp lánh. 
 
 Hung thú không nhiều, chỉ có năm con. 
 
 Hắc Giác Cự Tê. Hung Sát Ma Lang. Ám Thổ Xuyên Sơn Giáp. Sâm Ám Tri Chu. Hung Sát Đường Lang. 
 
-Nhưng Tiểu Thiên Nhi nói cho tiểu Lạc Vân, toàn bộ đều là Thập giai hung thú, tương đương với Linh thú. Trên người chúng cũng đều có vết thương lở loét tương tự tiểu Ô Quy, nhưng nghiêm trọng hơn nhiều, nhất là vết thương tập trung ở chân, thậm chí bốn chân của Hung Sát Ma Lang đều bị ăn mòn cả bàn chân, làm tốc độ di chuyển của chúng giảm đáng kể.
+Nhưng Tiểu Thiên Nhi nói cho tiểu Lạc Vân, toàn bộ đều là Thập giai hung thú, tương đương với  Nhất phẩm Linh thú. Trên người chúng cũng đều có vết thương lở loét tương tự tiểu Ô Quy, nhưng nghiêm trọng hơn nhiều, nhất là vết thương tất cả đều tập trung ở chân, thậm chí bốn chân của Hung Sát Ma Lang đều bị ăn mòn cả bàn chân, làm tốc độ di chuyển của chúng giảm đáng kể.
 
 Từ miệng vết thương, hung lệ chi khí bị đệ nhất hương tiềm ẩn của tiểu Lạc Vân âm thầm tác động, biến thành từng đợt khói đen bay ra.
 
-Ngón tay của tiểu Lạc Vân lướt qua dây cung, lập tức bị dây cung sắc bén cắt một vết thương, giọt giọt máu đỏ thấm vào, toả ra hương khí thơm ngào ngạt. Dây cung thấm huyết hồng, lập tức truyền ra từng tiếng sư ngâm vui sướng, giống như thú sủng ngủ say lâu ngày được cho ăn. Từ vị trí ngón tay của tiểu Lạc Vân, ngân lôi chia hai hướng, một bám vào Bồng Tiễn, một chạy theo dây cung, tụ hội ở hai đầu cung, tựa như lưỡng cực. 
+Ngón tay của tiểu Lạc Vân có một vết sẹo. Lướt qua dây cung theo vết sẹo có sẵn, hành động lưu loát đã thực hiện vô số lần, ngón tay bị dây cung sắc bén cắt một vết thương, giọt giọt máu đỏ thấm vào, toả ra hương khí thơm ngào ngạt. Dây cung thấm huyết hồng, lập tức truyền ra từng tiếng sư ngâm vui sướng, giống như thú sủng ngủ say lâu ngày được cho ăn. Từ vị trí ngón tay của tiểu Lạc Vân, ngân lôi chia hai hướng, một bám vào Bồng Tiễn, một chạy theo dây cung, tụ hội ở hai đầu cung, tựa như lưỡng cực. 
 
-Bồng Tiễn rời cung, trên thân lập loè ngân lôi, trên đường phóng đi tạo thành một đường lôi tuyến, chưa nghe âm thanh đã thấy mũi tên cắm vào đầu một cung Hung Sát Ma Lang. 
+Bồng Tiễn rời cung, trên thân lập loè ngân lôi, trên đường phóng đi tạo thành một đường lôi tuyến, chưa nghe âm thanh đã thấy mũi tên cắm vào đầu Hung Sát Ma Lang. 
 
 Vút! Phụp!
 
@@ -82,7 +82,7 @@ Nhưng rất nhanh, lôi điện trên người Hung Sát Ma Lang tiêu biến. 
 
 Hung Lang bị đau đớn, hung tính kích phát, lao thẳng vào tiểu Lạc Vân. 
 
-Tiểu Lạc Vân cầm Tang Cung chắn trước người, phản xạ lại như hầu tử mà nhảy thụt lùi về sau ba bước, hết sức lưu loát thuần thục, tựa như đã thực hiện vô số lần. 
+Tiểu Lạc Vân cầm Tang Cung chắn trước người, nhảy thụt lùi về sau ba bước, chỉ dụng đầu ngón chân, ngón cái miết xuống mặt đất, bộ pháp nhẹ nhàng như sư hổ rình vồ con mồi, không gây ra một chút tiếng động. 
 
 Hung Sát Ma Lang bước vào trong vùng bị Quang Đăng Hoa Diễm bao phủ, kèm theo vết thương trên người, bị Quang Đăng Hoa tác động, hung lệ chi khí cùng huyết khí bị rút ra ngoài, rất nhanh toàn thân trở nên gầy rộc. Nhưng hung lệ chi khí là thứ đáng sợ, nó quét tới đâu, Quang Đăng Hoa Diễm bị dập tắt tới đó. 
 
@@ -96,15 +96,13 @@ Xèo ... xèo ...
 
 Bản mệnh tinh huyết cùng linh khí của dị thú rất kì lạ, hai thứ trộn lẫn vào nhau, gặp phải hung lệ chi khí liền bốc cháy thành lửa. 
 
-Tiểu Lạc Vân lại hóp bụng hít sâu, sau đó phun ra thực mạnh, một thất sắc hoả cầu từ miệng phun trúng chân trước của Hung Sát Ma Lang, bên trong chứa độc lực khiến cho chân trước của nó tan thành một đám hung lệ chi khí, ngay cả xương cũng không còn. 
+Tiểu Lạc Vân lại hóp bụng hít sâu, sau đó phun ra thực mạnh, một thất sắc hoả cầu từ miệng phun trúng chân trước của Hung Sát Ma Lang, bên trong chứa độc lực khiến cho chân trước của nó tan thành một đám hung lệ chi khí, ngay cả xương cũng không còn. Bốn chân bị thương, lại mất một chân, Hung Sát Ma Lang không thể di chuyển, đổ gục trên đất. 
 
-Hai mắt sáng lên, tiểu Lạc Vân cảm khái: 
+Đưa tay quẹt mồ hôi lạnh trên trán, tiểu Lạc Vân hít hít cái mũi nhỏ, trên mặt hiện ra nét mừng rỡ:
 
-"Hỗn Độn Chi Thuỷ cùng với Thiên Huyền Hủ Thuỷ ... thứ tốt a!" 
+"Độc tính phát động rồi!" 
 
-Cái mũi nhỏ lại hít hít, sau đó thở phào. 
-
-"Cũng phát động rồi!" 
+"Cũng may là tiểu Ô Ô trên người có Thiên Huyền Hủ Thủy lợi hại như vậy, nếu không phải mất thêm mấy mũi tên" 
 
 Theo ngọn lửa cháy càng vượng, nhiệt độ ngày càng cao, hai mùi hương đồng thời phát động, đầu tiên là trên người Hung Sát Ma Lang, sau đó là đám hung thú ở bên ngoài. 
 
@@ -116,7 +114,7 @@ Theo ngọn lửa cháy càng vượng, nhiệt độ ngày càng cao, hai mùi 
 
 Bốn đầu hung thú còn lại ngửa mặt lên trời rống lớn, bản năng hung sát bị kích phát, không còn e sợ Quang Đăng Hoa Diễm, lập tức nhào tới.
 
-Xoài Chua Xanh Giòn, tuy tên có chút khó nghe một khi gặp phải nhiệt độ đủ cao, sẽ làm cho kẻ trúng phải toàn thân bủn rủn, khí lực mất hết, thèm ăn đến cực độ, một thân máu huyết, tinh khí cũng từ từ trôi đi mất. 
+Xoài Xanh Chua Giòn, tuy tên có chút khó nghe một khi gặp phải nhiệt độ đủ cao, sẽ làm cho kẻ trúng phải toàn thân bủn rủn, khí lực mất hết, thèm ăn đến cực độ, một thân máu huyết, tinh khí cũng từ từ trôi đi mất. 
 
 Mắm Ruốc Cay Nồng thì lại khác hẳn, tên càng khó nghe hơn, nhưng lại kích phát hung tính cực độ, trên người có hương khí này, trong mắt kẻ khác chính là mĩ vị khó cầu.
 
@@ -132,7 +130,7 @@ Nhưng mà, điều đó không có nghĩa là một hung thú dễ giết chế
 
 Tiểu Thiên Nhi làm xong nhiệm vụ, uể oải nằm trên người tiểu Lạc Vân, đang do dự cầm một khối hỗn độn chi tinh. Tiểu Ô Quy ở một bên vai khác, hiện tại cũng đang bất tỉnh. 
 
-Mà tiểu Lạc Vân cũng không ở chỗ này, từ lâu đã đến lưng chừng sườn núi thoai thoải, mặc kệ bàn tay rướm máu, dựa vào ánh sáng lờ mờ toả ra từ người của Tiểu Thiên Nhi mà liên tục trèo lên vách núi. Dù sao đám hung thú đó bị thương, leo trèo chắc chắn gặp khó khăn. 
+Mà tiểu Lạc Vân cũng không ở chỗ này, từ lâu đã đến lưng chừng sườn núi thoai thoải, ngón tay ướt đẫm mồ hôi, mỗi khi chạm vào đá liền phát ra tiếng xèo xèo, đá bị ăn mòn hõm vào trong, tạo chỗ bám cho tiểu Lạc Vân. Tiểu hài tử cứ một dường đi lên, dựa vào ánh sáng lờ mờ toả ra từ người của Tiểu Thiên Nhi mà định hướng, vừa đi vừa rắc độc phấn. Dù sao đám hung thú đó bị thương, leo trèo chắc chắn gặp khó khăn, gặp phải độc phấn cũng không dễ chịu. 
 
 "Tiểu Thiên Nhi, nghe lời, ăn đi, tuy hỗn tạp một chút, nhưng mà hỗn độn chi tinh đã thấm qua máu của bản thiếu gia, ngươi sẽ không sao!" 
 
@@ -152,7 +150,7 @@ Tiểu Lạc Vân một tay bám vào đá, thở hồng hộc:
 
 " ... nếu không phải như vậy, bản thiếu gia tuỳ tiện điểm mấy cái, tiểu Thiên Nhi ngươi không phải tăng thành Ngũ Phẩm Linh thú sao?" 
 
-" ... có điều ... cũng tốt a ... Cuồng Khấp Ngạ Quỷ Hương cùng với Mỹ Thiên Hương đều là đại sát khí ... còn nếu dùng ngược lại cũng có thể thúc đẩy tu luyện ... nhớ đem theo đồ ăn, cấp bậc không được quá thấp, ít nhất cũn phải là Mộc Linh Mễ hoặc là Hoàng Sâm ..." 
+" ... có điều ... cũng tốt a ... Cuồng Khấp Ngạ Quỷ Hương cùng với Mỹ Thiên Hương đều là đại sát khí ... khụ, mặc dù bản thiếu gia luyện hương tỉ lệ nguyên liệu có chút sai lệch nhưng dùng đúng cách cũng có thể thúc đẩy tu luyện ... nhớ đem theo đồ ăn, cấp bậc không được quá thấp, ít nhất cũn phải là Mộc Linh Mễ hoặc là Hoàng Sâm ..." 
 
 "Hyliaaa" 
 
@@ -164,7 +162,7 @@ Hung lệ chi khí tản ra, phần thì bị luyện hoá thành hỗn độn c
 
 Đống xương cốt còn lại cũng vỡ ra thành khối, sau đó từ từ bay lên, dần dần sinh ra da thịt. 
 
-Cao hai trượng, thân hình như tê giác, toàn thân phủ lân giáp đen tuyền trên đầu mọc ra một chiếc sừng nhọn hoắc, dọc hai bên sườn lại nổi lên hai cái đồ đằng. 
+Cao hai trượng, thân hình như tê giác, toàn thân phủ lân giáp đen tuyền, trên đầu mọc ra một chiếc sừng nhọn hoắc, dọc hai bên sườn lại nổi lên hai cái đồ đằng. 
 
 Tiểu Lạc Vân sau khi nhìn thấy, suýt tí nữa buông tay té xuống núi. 
 
@@ -186,7 +184,7 @@ Tiểu Lạc Vân biết, kiếp nạn tới rồi, Tiểu Thiên Nhi rời đi 
 
 Đặt tiểu Ô Quy xuống đất, tiểu Lạc Vân rút một mũi tên, con mắt nheo lại. 
 
-"Tiết canh Ô Quy ... đại bổ nha ... chỉ cần bản thiếu gia dùng xong, nhất định sẽ khôi phục được một giọt tinh huyết, đối phó Long Giáp Tê Ngưu không thành vấn đề." 
+"Tiểu Ô Ô ngươi còn chưa tỉnh? Tiết canh Ô Quy ... đại bổ nha ... chỉ cần bản thiếu gia dùng xong, nhất định sẽ khôi phục được một giọt tinh huyết, đối phó Long Giáp Tê Ngưu không thành vấn đề." 
 
 "Viên thúc thúc có nói ... Quy tặc toàn thân cứng rắn không gì sánh được, điểm yếu duy nhất chính là giữa hai chân ..." 
 
@@ -194,11 +192,11 @@ Tiểu Lạc Vân biết, kiếp nạn tới rồi, Tiểu Thiên Nhi rời đi 
 
 Nâng tiểu Ô Quy lên, đặt mai rùa thẳng đứng đầu chạm đất, hai chân sau hướng lên trời, tiểu Lạc Vân nắm bồng tiễn, lấy thế từ trên cao, nhắm vào lỗ trống trên mai rùa ở giữa hai chân mà cắm xuống!
 
-"A! Cứu mạng! Ngươi mà dám tổn thương Quy gia ... A? Tiểu Lạc Vân?" 
+"A! Cứu mạng! Ngươi mà dám tổn thương Quy gia ... cha mẹ tổ tông của ngươi đều ... A? Tiểu Lạc Vân?" 
 
 Tiểu Lạc Vân híp mắt, lại rút thêm một mũi tên, phía trên lập loè lôi quang: 
 
-"Nói đi, ngươi sẽ làm thế nào?"
+"Nói đi, cha mẹ tổ tông ta đều thế nào?"
 
 Quả nhiên, âm thanh chua ngoa kia im bặt, sau đó đột nhiên hú lên quái dị: 
 
@@ -226,13 +224,11 @@ Tiểu Ô Quy bị ánh mắt bất thiện của tiểu Lạc Vân doạ cho n�
 
 "Ngươi ... ngươi muốn làm gì Quy gia? Nói cho ngươi biết, Quy gia vừa mới ở trong Thiên Huyền Hủ Tuyền ... trên người toàn là Thiên Huyền Hủ Thuỷ ... ngươi đừng có ép Quy gia quá đáng ... nói cho ngươi biết ... mười mấy đầu hung thú đều bị Quy gia độc chết xương cốt không còn!" 
 
-Tiểu Lạc Vân lấy tay chấm một giọt hắc thuỷ trên người tiểu Ô Quy, dưới ánh mắt trợn tròn của tiện quy này mà cho vào miệng.
-
 "Nói mới nhớ, ngươi nằm trên vai ta, thời gian cũng không ngắn a ..." 
 
-Sờ sờ Lưu Ly Bảo Y bốc khói vì bị Thiên Huyền Hủ Thuỷ ăn mòn, lại liếc nhìn tiểu Ô Quy từ trên xuống dưới: 
+Tiểu Lạc Vân lấy tay chấm một giọt hắc thuỷ trên người tiểu Ô Quy, dưới ánh mắt trợn tròn của tiện quy này mà cho vào miệng. Sờ sờ Lưu Ly Bảo Y bốc khói vì bị Thiên Huyền Hủ Thuỷ ăn mòn, lại liếc nhìn tiểu Ô Quy từ trên xuống dưới: 
 
-"Hỗn Độn Chi Thuỷ, lại chịu được Thiên Huyền Hủ Thuỷ ăn mòn mà không chết ... tiểu Ô Ô, Quy gia gia ném ngươi ra đường không để lại vài món đồ tốt sao? Ít nhất cũng phải bù lại Lưu Ly Bảo Y bị hư tổn" 
+"Tu luyện ra Hỗn Độn Chi Thuỷ, lại chịu được Thiên Huyền Hủ Thuỷ ăn mòn mà không chết ... tiểu Ô Ô, Quy gia gia ném ngươi ra đường không để lại vài món đồ tốt sao? Ít nhất cũng phải bù lại Lưu Ly Bảo Y bị hư tổn ... Càn Khôn Quy Giáp trên người ngươi cũng không tệ nga ..." 
 
 "Quy gia ... Quy gia không chơi với yêu nghiệt nhà ngươi ... ngươi tránh xa Quy gia ..." 
 
