@@ -16,7 +16,7 @@ Tiểu Lạc Vân lại gom góp một số đoá Quang Đăng Hoa vẫn còn ng
 
 “Hương thứ hai ... Mắm Ruốc Cay Nồng!” 
 
-Nếu Sư Vương ở chỗ này, chắc chắn sẽ một tát đánh ngất tiểu quỷ này, sau đó bỏ đói ba ngày ba đêm. Hắn lao tâm khổ tứ làm ra bản giản lược của Cuồng Khấp Ngạ Quỷ Hương cùng với Mỹ Thiên Hương lại bị tiểu hài tử đem đặt tên, cái gì mà Xoài Xanh Chua Giòn, cái gì mà Mắm Ruốc Cay Nồng! 
+Nếu Sư Vương ở chỗ này, chắc chắn sẽ một tát đánh ngất tiểu quỷ này, sau đó bỏ đói ba ngày ba đêm. Hắn lao tâm khổ tứ làm ra bản giản lược của Cuồng Khấp Ngạ Quỷ Hương cùng với Mỹ Thiên Hương lại bị tiểu hài tử đem đặt tên cái gì mà Xoài Xanh Chua Giòn, cái gì mà Mắm Ruốc Cay Nồng! 
 
 Kim Nghê tộc lão tổ nghe thấy cũng nhất định thổ huyết mà nhập thổ vi an. 
 
@@ -232,7 +232,7 @@ Tiểu Lạc Vân lấy tay chấm một giọt hắc thuỷ trên người ti�
 
 Ầm! 
 
-Đúng lúc đó, sườn núi run rẩy kịch liệt, Long Giáp Tê Ngưu không leo lên được, dùng sừng đụng vào chân núi. 
+Đúng lúc đó, sườn núi run rẩy kịch liệt. Long Giáp Tê Ngưu vì thân hình quá lớn, trọng lượng quá nặng, mỗi lần leo lên lên đều làm cho lở đá, không có chỗ bám mà té xuống nên hung tính bạo phát, dùng sừng đụng vào chân núi. 
 
 "Chỗ này không ở lâu, đi theo bản thiếu gia!" 
 
