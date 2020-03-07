@@ -48,6 +48,8 @@ Hai chữ "cứu mạng" đặc biệt to rõ, tựa như một quả pháo nổ
 
 Một tiểu Ô Quy toàn thân lở loét, vết máu chảy ra đen sì, mai rùa cũng bị ăn mòn trở nên mềm nhũn, mỏng như cánh ve. Tiểu Ô Quy dường như cũng kiệt sức, hai mắt trợn tròn, sau đó liền bất tỉnh. 
 
+Tiểu Lạc Vân liếc nhìn tiểu Ô Quy, đánh giá một chút liền không khách khí "thu nhặt" hắc thuỷ trên người nó, toàn bộ "tàng trữ" ở trong cơ thể. 
+
 "Hylahyhylio!" 
 
 Tiểu Thiên Nhi kêu lên mấy tiếng gấp gáp, hai cánh đập liên hồi. Từ dưới mặt đất, phấn bướm bám trêm Quang Đăng Hoa bay lên, lục quang xanh biếc như chồi non mới mọc. Phấn bướm như sương như khói lượn lờ, lục quang cũng phiêu dật, tựa như Bắc Cực Từ Quang huyễn lệ. 
@@ -80,9 +82,9 @@ Nhưng rất nhanh, lôi điện trên người Hung Sát Ma Lang tiêu biến. 
 
 Hung Lang bị đau đớn, hung tính kích phát, lao thẳng vào tiểu Lạc Vân. 
 
-Tiểu Lạc Vân cầm Tang Cung, chắn trước người phản xạ lại như hầu tử mà nhảy thụt lùi về sau ba bước, hết sức lưu loát thuần thục, tựa như đã thực hiện vô số lần. 
+Tiểu Lạc Vân cầm Tang Cung chắn trước người, phản xạ lại như hầu tử mà nhảy thụt lùi về sau ba bước, hết sức lưu loát thuần thục, tựa như đã thực hiện vô số lần. 
 
-Hung Sát Ma Lang bước vào trong vùng bị Quang Đăng Hoa Diễm bao phủ, kèm theo vết thương trên người, rất nhanh toàn thân trở nên gầy rộc. Nhưng hung lệ chi khí là thứ đáng sợ, nó quét tới đâu, Quang Đăng Hoa Diễm bị dập tắt tới đó. 
+Hung Sát Ma Lang bước vào trong vùng bị Quang Đăng Hoa Diễm bao phủ, kèm theo vết thương trên người, bị Quang Đăng Hoa tác động, hung lệ chi khí cùng huyết khí bị rút ra ngoài, rất nhanh toàn thân trở nên gầy rộc. Nhưng hung lệ chi khí là thứ đáng sợ, nó quét tới đâu, Quang Đăng Hoa Diễm bị dập tắt tới đó. 
 
 Nếu ở đây còn là một mảnh hoa ngút ngàn, có lẽ sẽ tiêu hao chết được năm đầu hung thú, nhưng hiện tại, chỉ có thể miễn cưỡng chặn được một con Hung Sát Ma Lang bị thương. 
 
@@ -94,7 +96,13 @@ Xèo ... xèo ...
 
 Bản mệnh tinh huyết cùng linh khí của dị thú rất kì lạ, hai thứ trộn lẫn vào nhau, gặp phải hung lệ chi khí liền bốc cháy thành lửa. 
 
-Cái mũi nhỏ của tiểu Lạc Vân hít hít, sau đó thở phào. 
+Tiểu Lạc Vân lại hóp bụng hít sâu, sau đó phun ra thực mạnh, một thất sắc hoả cầu từ miệng phun trúng chân trước của Hung Sát Ma Lang, bên trong chứa độc lực khiến cho chân trước của nó tan thành một đám hung lệ chi khí, ngay cả xương cũng không còn. 
+
+Hai mắt sáng lên, tiểu Lạc Vân cảm khái: 
+
+"Hỗn Độn Chi Thuỷ cùng với Thiên Huyền Hủ Thuỷ ... thứ tốt a!" 
+
+Cái mũi nhỏ lại hít hít, sau đó thở phào. 
 
 "Cũng phát động rồi!" 
 
@@ -112,9 +120,9 @@ Xoài Chua Xanh Giòn, tuy tên có chút khó nghe một khi gặp phải nhi�
 
 Mắm Ruốc Cay Nồng thì lại khác hẳn, tên càng khó nghe hơn, nhưng lại kích phát hung tính cực độ, trên người có hương khí này, trong mắt kẻ khác chính là mĩ vị khó cầu.
 
-Bốn đầu hung thú như điên xông vào bên trong Quang Đăng Hoa Diễm, như điên như dại cắn xé Hung Sát Ma Lang. 
+Bốn đầu hung thú xông vào bên trong Quang Đăng Hoa Diễm, như điên như dại cắn xé Hung Sát Ma Lang. 
 
-Bên trong Quang Đăng Hoa Diễm, nhiệt độ cao hơn, hai loại độc hương cũng phát huy độc tính mạnh hơn. Rất nhanh, chúng bỏ qua tiểu Lạc Vân, lao vào cắn xé lẫn nhau, bởi vì trên người đối phương chúng cảm nhận được khao khát mĩ vị khó cầu, chỉ cần cắn một cái liền có thể thoả mãn cơn đói cồn cào. 
+Bên trong Quang Đăng Hoa Diễm, nhiệt độ cao hơn, hai loại độc hương cũng phát huy độc tính mạnh hơn. Rất nhanh, chúng bỏ qua tiểu Lạc Vân, lao vào cắn xé lẫn nhau, bởi vì trên người đối phương chúng cảm nhận được mỹ vị khó cầu, chỉ cần cắn một cái liền có thể thoả mãn cơn đói cồn cào. 
 
 Bản năng hung thú của chúng thúc dục chúng, nhất định phải đứng dậy, nuốt trọn mĩ thực trước mặt, nhưng tứ chi của chúng vô lực. Khi hung tính cùng thể chất không đi đôi, chúng chỉ có thể cấu xé thứ gần nhất.  
 
