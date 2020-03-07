@@ -76,7 +76,7 @@ Sườn đồi thoai thoải, giữa đình viện một cột lửa bùng lên,
 
 Trên bầu trời đột nhiên mây đen tụ tập, mưa trút xuống xối xả, lôi điện đùng đùng đánh xuống
 
-“ y dô, Viên tiểu tử ngươi …” 
+“Ây dô, Viên tiểu tử ngươi …” 
 
 Chỉ thấy Cự Viên toàn thân ướt sũng, hai mắt cơ hồ toé lửa.
 
@@ -110,15 +110,17 @@ Sư Vương bên hông treo một quyển trục, nhàn nhã pha trà, hương k
 
 Tiểu Lạc Vân vốn yên tĩnh, đột nhiên khóc rống lên, cánh tay nhỏ không ngừng đưa về phía Sư Vương. 
 
+Đôi mắt của tiểu Lạc Vân tròn xoe, con ngươi xanh màu lam ngọc, khoé mắt lại hơi hồng hồng, ngần ngận nước, tựa như một viên bảo thạch vô giá.
+
 Chỉ thấy một đạo chớp vàng, Cự Viên hai tay đã trống rỗng, trừng mắt nhìn Sư Vương cứ như vậy cướp lấy tiểu Lạc Vân. 
 
 Tiểu Lạc Vân cười khúc khích, áp sát vào ngực Sư Vương, nắm tay nhỏ hươ hươ. 
 
 “Đưa đây!” - Sư Vương đưa tay hướng Cự Viên, ngoắt nhẹ mấy cái. 
 
-“Lão tử thích không trả đấy!” - Cự Viên khoanh tay, ngoảnh mặt. 
+“Lão tử thích không trả đấy!” - Cự Viên khoanh tay, ngoảnh mặt, nhưng lại vụng trộm liếc nhìn đôi mắt của tiểu Lạc Vân, trong lòng không khỏi nhảy lên một cái. Hôm qua hắn không có thời gian chú ý, tròng mắt màu lam ngọc ... 
 
-Đột nhiên, hắn cảm thấy có một luồng lôi điện từ đốt xương cụt, theo xương sống chạy thẳng lên. Toàn bộ cơ thể hắn đột nhiên phát hàn, cơ bắp muốn co rút, dường như toàn bộ sinh cơ đều bị đạo lôi điện đó hấp dẫn đến. 
+Đang trong dòng suy nghĩ, đột nhiên, hắn cảm thấy có một luồng lôi điện từ đốt xương cụt, theo xương sống chạy thẳng lên. Toàn bộ cơ thể hắn đột nhiên phát hàn, cơ bắp muốn co rút, dường như toàn bộ sinh cơ đều bị đạo lôi điện đó hấp dẫn đến. 
 
 “Ngươi, cái trò tà môn này cũng học!” 
 
