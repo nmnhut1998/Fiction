@@ -42,12 +42,92 @@ Cái gọi là Mê Vụ Cổ Lâm một phần là do đó mà ra.
 
 Tiểu Ô Quy hai mắt nhỏ híp lại, đề phòng nhìn tiểu Lạc Vân: 
 
-"Quy gia nghĩ đây là âm mưu ... đúng, nhất định là âm mưu nhằm vào Quy gia ... ngươi tránh xa Quy gia! Không thể có chuyện cơ duyên rơi trúng đầu!" 
+"Quy gia nghĩ đây là âm mưu ... đúng, nhất định là âm mưu nhằm vào Quy gia ... ngươi nhìn trúng cái gì trên người Quy gia, dẫn Quy gia tới chỗ này, muốn nhân lúc tối trời làm chuyện thương thiên hại lí sao?" 
 
-Mọi năm khai trường Thanh Lâm Học Viện, thi thoảng cũng sẽ có một số lần Đảo Chuyển Càn Khôn xuất hiện, nhưng mà tiểu Ô Quy thông qua cửa sau biết được đều là Dong gia gia bí mật ở đằng sau màn bày ra khảo nghiệm, sắp đặt cơ duyên. 
+Mọi năm khai trường Thanh Lâm Học Viện, thi thoảng nếu có mầm mống tốt cũng sẽ có Đảo Chuyển Càn Khôn xuất hiện, nhưng mà tiểu Ô Quy thông qua cửa sau biết được đều là Dong gia gia bí mật ở đằng sau màn bày ra khảo nghiệm, sắp đặt cơ duyên. 
 
-Hiện tại, cấm pháp lĩnh vực phát động, Đảo Chuyển Càn Khôn không thể do Dong gia gia làm. 
+Đảo Chuyển Càn Khôn là vô thượng thần thông, ảnh hưởng tới pháp tắc Cổ Lâm, cần phải có sự chuẩn bị rất lâu, tiêu tốn rất lớn, căn cứ thể chất đặc thù của từng dị thú mà làm ra khảo nghiệm, đưa tới cơ duyên, cũng là dẫn đạo cho dị thú.
 
-Tiểu Ô Quy chỉ vào tiểu Lạc Vân hét lớn: 
+Năm nay có tiểu Ô Quy cùng với tiểu Lạc Vân, hay tên "yêu nghiệt" này tìm đường tới Thanh Lâm Học Viện, Đảo Chuyển Càn Khôn mở ra cũng không có gì kì quái. 
 
-"Ngươi ... ngươi dẫn Quy gia tới chỗ này ..." 
+Nhưng mà hiện tại, cấm pháp lĩnh vực phát động, Đảo Chuyển Càn Khôn không thể do dị thú làm. 
+
+Tiểu Lạc Vân sờ sờ mũi, một tay chỉ chỉ đỉnh núi hướng bắc: 
+
+"Nhưng mà cha nói ta cứ đi theo hướng này, sẽ có cơ duyên xuất hiện! Hơn nữa đi thêm một chút nữa sẽ có Uẩn Lôi Tùng Mộc!" 
+
+Tiểu Ô Quy lập tức ngậm miệng, tròng mặt đảo loạn, ý nghĩ trong đầu cũng thiên chuyển: 
+
+"Quang Đăng Hoa, còn có Uẩn Lôi Tùng Mộc, Quy gia lại ngưởi thấy Bạch Quân Lan. Quy gia không có đi lạc vào Lâm Viên của Sư Vương chứ ..."
+
+Nghĩ đến đây, tiểu Ô Quy liếc nhìn tiểu Lạc Vân, trong mai rùa cũng ướt một tầng mồ hôi: 
+
+"Đảo Chuyển Càn Khôn này nhất định có trá, không được ...Tổ tông có huấn: kẻ dũng là kẻ ngu, giả lù đù ôm bắp đùi thiếu tổ mới là sáng suốt! Pháp tắc cũng không diệt được tiểu Lạc Vân, Quy gia núp sau lưng hắn là tốt nhất!" 
+
+Đương lúc tiểu Ô Quy cùng với tiểu Lạc Vân bốn mắt trừng nhau, trong đầu tiểu kế đại mưu không ngừng sinh ra, trên bầu trời đột nhiên xuất hiện thất thải chi quang, một cơn mưa lông vũ đổ xuống, cây cối ngã rạp, để lộ ra bầu trời tối đen như mực. 
+
+Trong vầng sáng bảy sắc huyễn lệ, một đầu Thất Thải Thiên Nga đáp xuống. 
+
+"Thiên Nga a di!" 
+
+Hai mắt tiểu Lạc Vân bị ánh sáng đột ngột làm chói, có chút nheo lại, nhưng tay chân không chậm, mấy bước nhảy đã chạy tới. 
+
+"Tiểu Vân, có sợ không?"
+
+Tiểu Lạc Vân hai tay chống nạnh, bộ dạng nghiêm túc trong chiến đấu mất sạch, hất cằm lên mà nói: 
+
+"Tiểu Vân không có sợ. Năm đầu thập giai hung thú đều bị Vân nhi bẫy chết!"
+
+Ngay lúc đó, một vật màu đen cực kì chuẩn xác mà gõ vào đầu tiểu Lạc Vân: 
+
+"Giết năm đầu thập giai, lại tạo ra một con Long Giáp Tê Ngưu thập nhất giai, tiểu Lạc Vân thật là giỏi nga ..." 
+
+Một cái bóng trắng không biết khi nào xuất hiện, đợi tiểu Lạc Vân nhìn rõ chính là một đầu Tuyết Hồ. Tuyết Hồ giữa trán mọc một mắt dọc, nhưng kì lạ ở chỗ mỗi hốc mắt lại phân hai, thành ra tổng cộng có tới sáu con mắt. Đuôi của Lục Nhãn Tuyết Hồ rất dài, cuốn lấy một cái sừng tê giác đen tuyền, tựa như làm bằng mặc ngọc. Đặc biệt là bên trong sừng tê giác còn phong ấn lấy một đoàn dịch thể màu vàng kim. 
+
+"Tuyết di! Tuyết di cũng tới?" 
+
+Tiểu Lạc Vân càng hưng phấn kêu lớn. 
+
+"Hừ, hồ ly tinh" 
+
+Thất Thải Thiên Nga hừ một tiếng, xoay người đánh giá tiểu Ô Quy, không nói chuyện với tiểu Lạc Vân nữa. 
+
+"Tuyết di, Thiên Nga a di, hai người đứng cãi nhau nữa ..."
+
+Tiểu Lạc Vân rất thuần thục, học theo cha mình, đưa cái tay xoa xoa trán, lông mày hơi nhíu lại, bộ dáng ông cụ non làm cho cả hai người đều cười thành tiếng. 
+
+Cái cổ ưu nhã của Thất Thải Thiên Nga cúi xuống, linh khí trong người chuyển động, tuy không thể li thể nhưng lại có thể cưỡng ép phát ra một đạo thất thải chi quang chiếu lên người tiểu Lạc Vân, làm cho khí huyết trên người tiểu Lạc Vân bình ổn trở lại, vết thương cũng dịu xuống. 
+
+Đồng thời, bộ lông của Thất Thải Thiên Nga cũng ảm đạm, chỉ biết cười khổ:
+
+"Tiểu tử ngươi đúng là kén, mỗi lần chữa thương cho ngươi ta lại phải tịnh dưỡng mấy tháng. Nhớ, sau này đừng có để chảy máu nữa." 
+
+Tiểu Lạc Vân cười hì hì, từ trong ngực áo rút ra mấy sợi tóc vàng óng. 
+
+"Tiểu quỷ!" 
+
+Thất Thải Thiên Nga không biết là chuyện gì, cúi mặt tựa như là xấu hổ, vội vàng đập cánh bay đi, mấy sợi tóc trên tay tiểu Lạc Vân cũng mất tăm theo, một đạo âm thanh thả vào tai tiểu Lạc Vân: 
+
+"Cẩn thận, Khổng Tước Bình An Phù không thể cảm ứng được tung tích, đại ca ta đang đi tìm rồi. Những chỗ khác còn cần ta tới cứu trợ." 
+
+Thất Thải Thiên Nga chính là muội muội cùng cha khác mẹ với Ngũ Sắc Khổng Tước - tộc trưởng của Khổng Tước Nhất Tộc, Khổng Tước Bình An Phù làm từ vũ linh truyền thừa của Khổng Tước Tộc, dĩ nhiên là có bị pháp truy tung. 
+
+"Cái này cho tiểu tử ngươi!" 
+
+Ném sừng tê giác cho tiểu Lạc Vân, Lục Nhãn Tuyết Hồ lướt qua người tiểu Lạc Vân biến mất. Bên tai tiểu Lạc Vân vẫn còn vương tiếng nói:
+
+"Ta phải đi, Thanh Lâm Dị Dộng, Cấm Pháp Lĩnh Vực, Đảo Chuyển Càn Khôn, hiện giờ trong Cổ Lâm rất loạn, nhưng đám tiểu tử ngươi yên tâm, hung thú trên thập nhị giai đều có người đối phó, trên bầu trời cũng có linh cầm tuần tra, bị thương thì chỉ cần kêu lớn là được ..." 
+
+"Tiểu Vân biết rồi, Tuyết di bảo trọng ... ách, Tuyết di, mau trả Kim Phát Phù lại cho Tiểu Vân!" 
+
+Trong ngực của tiểu Lạc Vân có hai đạo Kim Phát Phù, là Sư Vương dùng tóc của mình kết thành, khi cần có thể phóng ra thiên phạt chi lôi cứu tiểu Lạc Vân một mạng, nhưng lúc Lục Nhãn Tuyết Hồ lướt qua cũng thuận tay lấy đi rồi. 
+
+Tiểu Lạc Vân vuốt vuốt ngực. 
+
+Lần trước, tiểu Lạc Vân mặc nội y do Sư Vương luyện chế, Tuyết di trông thấy liền lột sạch đem về làm kỉ niệm. Mà Sư Vương vì cố kị mặt mũi cũng không đi đòi lại.
+
+Nguy hiểm. Lần nào gặp phải Tuyết di cũng đều không có kết quả tốt. Cũng may, lần này Tuyết di đến nhanh đi cũng nhanh. 
+
+Tiểu Ô Quy một bên há mồm chưa khép lại được. Chuyện tới cũng nhanh, đi cũng nhanh, tiểu Ô Quy còn chưa kịp phản ứng. 
+
+"Tin đồn Sư Vương có bảy mươi hai mẫu thú theo đuổi thì ra là sự thật ... không được, Quy gia có khả năng bị giết rùa diệt khẩu ..." 

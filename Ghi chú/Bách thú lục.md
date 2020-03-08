@@ -8,6 +8,10 @@ Huyền Xà
 ## 1.1. Tiểu Ô Quy: 
 Cùng lúc đó, ở con đường cách xa mấy trăm dặm, một tiểu ô quy to cỡ hai bàn tay đang toàn lực chạy. Tiểu ô quy toàn thân đen tuyền, ở trên cổ phủ đầy lân giáp, lại có hai vệt thanh sắc cực kì bắt mắt. Trên mai rùa, quy văn có tám nhánh, tụ ở trung tâm, quanh một đồ đằng hình tròn, tựa như là âm dương đồ. Âm dương đồ chậm rãi xoay tròn, nghịch chiều âm dương, một dòng hắc thuỷ từ trong đó chảy ra. 
 
+## Tam Mệnh Hoả Hồ
+
+## Lục Nhãn Tuyết Hồ
+
 ## 1.2. Thiên Linh Điệp: 
 "Hồ điệp có hồn, cửu thế thành linh, một cánh mang sinh, một cánh chứa tử ... thượng thiên ban tên ... Thiên Linh Hồ Điệp."  // "Thiên Linh Điệp, tám đời cam nguyện làm sâu kiến không hoá điệp, liên tục kết kén cầu linh duyên. Giờ ngươi đi theo bản thiếu gia, cũng là linh duyên của ngươi, thế nào?" 
 
