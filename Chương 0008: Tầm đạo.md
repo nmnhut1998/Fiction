@@ -42,7 +42,11 @@ Hi vọng tiểu Lạc Vân sẽ tìm ra được đường tới Thanh Lâm H�
 
 Mọi con đường trong Mê Vụ Cổ Lâm đều có thể đến được Thanh Lâm Học Viện. Nhưng không phải con đường nào cũng có thể đi. Càng có những con đường chưa được khám phá. 
 
-Thanh Lâm Học Viện chưa bao giờ từ chối bất cứ ai, thậm chí cả hung thú cả quỷ hồn. Nhưng điều trên hết, học sinh phải đến được Thanh Lâm Học Viện. 
+Không có dị thú nào dám mạnh miệng khẳng định mình đã đi hết Cổ Lâm, khám phá hết đường ngầm lối rẽ, biết được hết những mảnh rừng núi ẩn dấu dưới mê vụ lượn lờ. 
+
+Cũng như vậy, Thanh Lâm Học Viện chưa bao giờ từ chối bất cứ ai, thậm chí cả hung thú cả quỷ hồn. 
+
+Nhưng điều trên hết, học sinh phải đến được Thanh Lâm Học Viện. 
 
 "Tìm con đường cho bản thân, đó là tầm đạo. 
 Biết được con đường mình phải đi, đó là tri đạo. 

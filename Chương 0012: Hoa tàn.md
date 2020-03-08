@@ -130,7 +130,7 @@ Nhưng mà, điều đó không có nghĩa là một hung thú dễ giết chế
 
 Tiểu Thiên Nhi làm xong nhiệm vụ, uể oải nằm trên người tiểu Lạc Vân, đang do dự cầm một khối hỗn độn chi tinh. Tiểu Ô Quy ở một bên vai khác, hiện tại cũng đang bất tỉnh. 
 
-Mà tiểu Lạc Vân cũng không ở chỗ này, từ lâu đã đến lưng chừng sườn núi thoai thoải, ngón tay ướt đẫm mồ hôi, mỗi khi chạm vào đá liền phát ra tiếng xèo xèo, đá bị ăn mòn hõm vào trong, tạo chỗ bám cho tiểu Lạc Vân. Tiểu hài tử cứ một dường đi lên, dựa vào ánh sáng lờ mờ toả ra từ người của Tiểu Thiên Nhi mà định hướng, vừa đi vừa rắc độc phấn. Dù sao đám hung thú đó bị thương, leo trèo chắc chắn gặp khó khăn, gặp phải độc phấn cũng không dễ chịu. 
+Mà tiểu Lạc Vân cũng không ở chỗ này, từ lâu đã đến lưng chừng sườn núi thoai thoải, ngón tay ướt đẫm mồ hôi, mỗi khi chạm vào đá liền phát ra tiếng xèo xèo, đá bị ăn mòn hõm vào trong, tạo chỗ bám cho tiểu Lạc Vân. Tiểu hài tử cứ một đường bám vào cây vào đá đi lên, dựa vào ánh sáng lờ mờ toả ra từ người của Tiểu Thiên Nhi mà định hướng, vừa đi vừa rắc độc phấn. Dù sao đám hung thú đó bị thương, leo trèo chắc chắn gặp khó khăn, gặp phải độc phấn cũng không dễ chịu. 
 
 "Tiểu Thiên Nhi, nghe lời, ăn đi, tuy hỗn tạp một chút, nhưng mà hỗn độn chi tinh đã thấm qua máu của bản thiếu gia, ngươi sẽ không sao!" 
 
@@ -232,7 +232,7 @@ Tiểu Lạc Vân lấy tay chấm một giọt hắc thuỷ trên người ti�
 
 Ầm! 
 
-Đúng lúc đó, sườn núi run rẩy kịch liệt. Long Giáp Tê Ngưu vì thân hình quá lớn, trọng lượng quá nặng, mỗi lần leo lên lên đều làm cho lở đá, không có chỗ bám mà té xuống nên hung tính bạo phát, dùng sừng đụng vào chân núi. 
+Đúng lúc đó, sườn núi run rẩy kịch liệt. Long Giáp Tê Ngưu vì thân hình quá lớn, trọng lượng quá nặng, mỗi lần leo lên lên đều làm cho lở đá, lại bị cổ thụ rậm rạp cản trở, không có chỗ bám mà té xuống nên hung tính bạo phát, dùng sừng đụng vào chân núi. 
 
 "Chỗ này không ở lâu, đi theo bản thiếu gia!" 
 
