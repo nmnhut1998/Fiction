@@ -20,7 +20,7 @@ Chỗ này cách đất bằng đã khá xa, các loại thực vật tầng th�
 
 Tiểu Ô Quy lắc lắc cái đuôi rùa, một chi trước đưa lên vuốt cằm, mở miệng nói tiếng người: 
 
-"Quy gia đi ngược sông Lưu Tiên vào chỗ này, tính ra là đi về phía Bắc, Thanh Lâm Học Viện ở trung tâm, tính ra là ngược đường. Càng đi về phía Bắc, núi càng cao càng dốc. Hiện tại chỗ này địa hình hiểm trở, hung thú hình thể to lớn bị cấm pháp lĩnh vực hạn chế, phần lớn rất khó ra vào chỗ này." 
+"Quy gia đi ngược sông Lưu Tiên vào chỗ này, là đi về phía Bắc, Thanh Lâm Học Viện ở trung tâm, tính ra là ngược đường. Càng đi về phía Bắc, núi càng cao càng dốc. Hiện tại chỗ này địa hình hiểm trở, hung thú hình thể to lớn bị cấm pháp lĩnh vực hạn chế, phần lớn rất khó ra vào chỗ này." 
 
 "Chỗ này núi cao đón gió, theo lí mà nói thời tiết cũng phải lạnh, hơn nữa cây cũng không thể mọc cao. Nhưng thực tế thì chỗ này nóng ẩm, cây cối phát triển như trong rừng nguyên thuỷ."
 
