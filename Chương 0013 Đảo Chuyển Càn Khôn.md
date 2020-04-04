@@ -22,7 +22,7 @@ Tiểu Ô Quy lắc lắc cái đuôi rùa, một chi trước đưa lên vuốt
 
 "Quy gia đi ngược sông Lưu Tiên vào chỗ này, là đi về phía Bắc, Thanh Lâm Học Viện ở trung tâm, tính ra là ngược đường. Càng đi về phía Bắc, núi càng cao càng dốc. Hiện tại chỗ này địa hình hiểm trở, hung thú hình thể to lớn bị cấm pháp lĩnh vực hạn chế, phần lớn rất khó ra vào chỗ này." 
 
-"Chỗ này núi cao đón gió, theo lí mà nói thời tiết cũng phải lạnh, hơn nữa cây cũng không thể mọc cao. Nhưng thực tế thì chỗ này nóng ẩm, cây cối phát triển như trong rừng nguyên thuỷ."
+"Chỗ này núi cao đón gió, hiện giờ đã là mùa đông, theo lí mà nói thời tiết cũng phải lạnh, hơn nữa cây cũng không thể mọc cao. Nhưng thực tế thì chỗ này nóng ẩm, cây cối phát triển như trong rừng nguyên thuỷ."
 
 "Hơn nữa Quy gia đọc sách nhiều như vậy, còn chưa thấy ghi chép về vùng núi này, thậm chí nhìn cũng chưa từng nhìn thấy. Ở trong Cổ Lâm, có hai trường hợp đất đai núi sông không được ghi chép chi tiết, một là lãnh thổ hoặc là động phủ của tộc quần nào đó, thứ hai là ..." 
 
@@ -120,7 +120,7 @@ Ném sừng tê giác cho tiểu Lạc Vân, Lục Nhãn Tuyết Hồ lướt qu
 
 "Tiểu Vân biết rồi, Tuyết di bảo trọng ... ách, Tuyết di, mau trả Kim Phát Phù lại cho Tiểu Vân!" 
 
-Trong ngực của tiểu Lạc Vân có hai đạo Kim Phát Phù, là Sư Vương dùng tóc của mình kết thành, khi cần có thể phóng ra thiên phạt chi lôi cứu tiểu Lạc Vân một mạng, nhưng lúc Lục Nhãn Tuyết Hồ lướt qua cũng thuận tay lấy đi rồi. 
+Trong ngực của tiểu Lạc Vân còn hai đạo Kim Phát Phù, là Sư Vương dùng tóc của mình kết thành, khi cần có thể phóng ra thiên phạt chi lôi cứu tiểu Lạc Vân một mạng, nhưng lúc Lục Nhãn Tuyết Hồ lướt qua cũng thuận tay lấy đi rồi. 
 
 Tiểu Lạc Vân vuốt vuốt ngực. 
 
@@ -128,6 +128,82 @@ Lần trước, tiểu Lạc Vân mặc nội y do Sư Vương luyện chế, Tu
 
 Nguy hiểm. Lần nào gặp phải Tuyết di cũng đều không có kết quả tốt. Cũng may, lần này Tuyết di đến nhanh đi cũng nhanh. 
 
-Tiểu Ô Quy một bên há mồm chưa khép lại được. Chuyện tới cũng nhanh, đi cũng nhanh, tiểu Ô Quy còn chưa kịp phản ứng. 
+Đúng lúc đó, một bóng xám khác xuất hiện bên cạnh tiểu Lạc Vân, giọng nói nhu hoà cất lên: 
+
+"Tiểu Vân, chỉ là tạp hồ ly tinh mà thôi, không cần sợ như vậy a?" 
+
+Xuất hiện bên cạnh tiểu Lạc Vân, là một con thỏ xám cực lớn, hai cái tai dài dựng đứng, cái đùi to đến mức tiểu Lạc Vân rướn người vẫn không thể chạm vào phía trên. 
+
+"Thố tỉ tỉ, tỉ tỉ cũng tới chỗ này sao?" 
+
+Hai tròng mắt to tròn nhìn tiểu Lạc Vân, "Thố tỉ tỉ" vỗ vỗ cái túi đeo trước bụng, mở miệng nói tiếng người: 
+
+"Tỉ tỉ ta nhận uỷ thác mà tới ..." 
+
+Lời nói vừa xong, "Thố tỉ tỉ" đưa cho tiểu Lạc Vân một cái mai rùa: 
+
+"Viên đại ca giận tiểu Vân đệ ngủ quên bị trộm mất đồ không chịu giúp, nhưng mà Sư Vương ép hắn đưa cái này cho đệ. Cái này là hàng nhái Càn Khôn Quy Giáp, có chừng không gian một thước chứa đồ vật, nhược điểm là không thể triệt tiêu trọng lượng." 
+
+"Dong gia gia lại nhắn rằng đệ chảy máu, khí tức bị lộ đã bị pháp tắc Cổ Lâm cảm ứng, thiên địa lôi kiếp không giáng xuống nhưng mà Thanh Lâm Đại Trận mở ra Đảo Chuyển Càn Khôn nhất định có liên quan tới việc này. Hành sự mọi thứ đều phải cẩn thận." 
+
+Mắt thỏ lại liếc nhìn tiểu Ô Quy một cái, lại lấy ra một vật bọc kĩ trong vải đen: 
+
+"Cái này là Thiên Huyền gửi cho ngươi, có dùng hay không là tuỳ ngươi chọn" 
+
+Thái độ đối với tiểu Ô Quy rõ ràng khác hẳn so với tiểu Lạc Vân. 
+
+Thố tỉ tỉ đến nhanh đi cũng nhanh, chỉ nói qua loa mấy tiếng rồi cũng phóng vào màn đêm mất hút. 
+
+Tiểu Lạc Vân cầm mai rùa lục tới lục lui. 
+
+Viên thúc thúc đối với tiểu Lạc Vân làm mất Càn Khôn Quy Giáp rất tức giận, bên trên Quy Giáp mới này còn vẽ thêm mấy cái trọng lực phù, phía trong lại vẽ thêm mấy cái hủ thực phù, làm cho đồ ăn thức uống nếu đặt bên trong nhanh hỏng gấp ba lần.
+
+Tiểu Lạc Vân vậy mà phát hiện bên trong có mấy gốc Xích Nhân Sâm, trong lòng cũng cảm động. Hắn biết Xích Nhân Sâm nhất định là do Thố tỉ tỉ tinh tế để vào. 
+
+Nói về dược viên, trong Mê Vụ Cổ Lâm, dược viên lớn nhất là rừng nguyên thuỷ phía Tây của Dong gia gia, tiếp đó là chỗ của Viên thúc thúc. Đứng thứ ba chính là Ngọc Lâm Viên của Thố tỉ tỉ. Xích Nhân Sâm là đặc sản của Ngọc Lâm Viên, tác dụng của nó rất quan trọng đối với tiểu Lạc Vân, dùng để làm no cái bụng. 
+
+"Thố tỉ tỉ vẫn là dễ thương nhất ..." 
+
+Tiểu Ô Quy một bên há mồm chưa khép lại được. Chuyện tới quá nhanh, tiểu Ô Quy cầm vật bọc kĩ ở trên tay, còn chưa kịp phản ứng. 
+
+"Tiểu Lạc Vân ... ngươi ... ngươi ..." 
+
+Tiểu Lạc Vân sờ sờ ngực, phát hiện Lưu Ly Bảo Y có hơi xộc xệch, Kim Phát Phù vốn có ba miếng giấu ở bên trong, một miếng đã kích phát tiêu tán, một miếng bị Tuyết di lấy đi, miếng còn lại hiện cũng biến mất. 
+
+Mà trên ngực của tiểu Lạc Vân lại viết thêm mấy chữ "Sư Vương ca ca thân mến, Tiểu Ngọc thương nhớ huynh ngày đêm". 
+
+Tiểu Ô Quy vội vàng che hai mắt, trầm giọng tụng niệm Thanh Tâm Chú. 
 
 "Tin đồn Sư Vương có bảy mươi hai mẫu thú theo đuổi thì ra là sự thật ... không được, Quy gia có khả năng bị giết rùa diệt khẩu ..." 
+
+Tiểu Lạc Vân khụ khụ hai tiếng ho khan: 
+
+"Thố tỉ tỉ tính ra cũng không dễ thương lắm." 
+
+Chữ viết trên ngực là loại mực đặc thù dùng để viết phù chú, một khi đã bám vào thì rất khó phai, nhưng mà tiểu Lạc Vân chỉ dùng tay chà nhẹ, lại phủi phủi mấy cái, toàn bộ đều bị lau sạch. 
+
+"Cầm!" 
+
+Thu sừng tê giác vào, tiểu Lạc Vân không khách khí đưa Quy Giáp kia cho tiểu Ô Quy. Đùa sao, để hắn đeo quy giáp bên hông, Quy giáp nặng như vậy nhất định sẽ làm đứt thắt lưng, cầm trên tay di chuyển thì rất bất tiện. 
+
+Có tiểu Ô Quy ăn bám này, phải lợi dụng một chút. 
+
+"Đi thôi, dựa theo cha nói, đi thêm một chút nữa sẽ tới được chỗ an toàn." 
+
+Một người một rùa men theo đường đá, leo dần đến đỉnh núi. 
+
+Thời tiết dần chuyển lạnh, tuyết rơi. Sương mù chuyển thành hàn vụ che đi tầm nhìn, cây cối cùng dần thưa thớt, bớt phần đồ sộ uy nghiêm, chuyển thành bụi thấp và cỏ dại. Chỉ có thấp thoáng mấy bóng cây tùng vẫn đứng hiên ngang trong trời gió tuyết. 
+
+Ở chỗ này, rất ít dị thú hoặc là hung thú xuất hiện, bởi vì thời tiết quá khắc nghiệt, nhưng một khi có nguy hiểm xuất hiện tuyệt đối là chí mạng. 
+
+Tiểu Lạc Vân biết Đảo Chuyển Càn Khôn đã đưa mình tới một chỗ khác, liền cố gắng đi thật nhanh, vận động thật nhiều, Quang Đăng Hoa Diễm trong cơ thể cũng bị bài tiết ra, sưởi ấm cơ thể, nói chung không có biểu hiện lo lắng quá nhiều. 
+
+Nhưng mà tiểu Ô Quy nhìn thấy Uẩn Lôi Tùng Mộc, lại nhớ lại lời của Sư Vương nói với tiểu Lạc Vân, trong lòng đột nhiên không yên, bất an, lo lắng, tựa như có một tảng đá đè nặng. 
+
+Mọi chuyện hiện tại, tính đến cùng đều là có lợi với tiểu Lạc Vân, nằm trong tầm kiểm soát của Sư Vương. 
+
+Không thể nào ... Cấm Pháp Lĩnh Vực ... Đảo Chuyển Càn Khôn ... Sư Vương không có bản lĩnh lớn như vậy. 
+
+Nhưng mà tiểu Lạc Vân cùng với tiểu hồ điệp kia tại sao có thể dùng được pháp thuật? 
+
+Tiểu Lạc Vân miệng kín như bưng, làm cho tiểu Ô Quy ngày càng bất an, càng thêm do dự có nên bỏ đi một mình hay không.

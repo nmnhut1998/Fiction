@@ -116,7 +116,7 @@ Bốn đầu hung thú còn lại ngửa mặt lên trời rống lớn, bản n
 
 Xoài Xanh Chua Giòn, tuy tên có chút khó nghe một khi gặp phải nhiệt độ đủ cao, sẽ làm cho kẻ trúng phải toàn thân bủn rủn, khí lực mất hết, thèm ăn đến cực độ, một thân máu huyết, tinh khí cũng từ từ trôi đi mất. 
 
-Mắm Ruốc Cay Nồng thì lại khác hẳn, tên càng khó nghe hơn, nhưng lại kích phát hung tính cực độ, trên người có hương khí này, trong mắt kẻ khác chính là mĩ vị khó cầu.
+Mắm Ruốc Cay Nồng thì lại khác hẳn, tên càng khó nghe hơn, nhưng lại kích phát hung tính cực độ, bên trong lại có một giọt máu tươi của Tiểu Lạc Vân, trên người có hương khí này, trong mắt kẻ khác chính là mĩ vị khó cầu.
 
 Bốn đầu hung thú xông vào bên trong Quang Đăng Hoa Diễm, như điên như dại cắn xé Hung Sát Ma Lang. 
 
@@ -208,7 +208,7 @@ Tiểu Lạc Vân nghe hai chữ Thanh Lâm Đại Trận, cũng hiếu kì, h�
 
 "Thanh Lâm Đại Trận là hậu chiêu phòng ngừa phong ấn có đại biến cố, không biết vì sao mấy ngày trước đột ngột phát ra cấm pháp lĩnh vực, bao trọn toàn bộ Mê Vụ Cổ Lâm. Cấm pháp lĩnh vực này phong kín khiếu huyệt, ngoại trừ một số loại thể thuật, đồng thuật, chân khí linh khí tác dụng lên bản thân, còn lại đều không thể sử dụng, vì chân khí linh khí không thể li thể! Nhưng mà lúc nãy Tiểu Hồ Điệp dùng một chiêu kia rõ ràng là linh khí li thể!" 
 
-Tiểu Lạc Vân nghe vậy, ngón tay nhỏ xoa xoa cằm, sau đó trên mặt hiện lên một nụ cười: 
+Tiểu Lạc Vân nghe vậy, ngón tay nhỏ xoa xoa cằm, sau đó trên mặt hiện lên một nụ cười bí hiểm: 
 
 "Thì ra là vậy. Nhưng mà Tiểu Ô Ô, ngươi nói xem, ta vừa cứu ngươi một mạng, mất không ít máu ..." 
 

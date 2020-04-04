@@ -162,7 +162,7 @@ Anh Túc Hoa rất dễ xử lí, trực tiếp đập giập cánh hoa, nghiề
 
 Phần tinh dầu còn lại, tiểu Lạc Vân cho vào Tử Hương Thảo. Tử Hương Thảo cho vào chút tinh dầu, dùng chày giã nhỏ, sau cùng mới cho vào thùng tinh dầu lớn khuấy đều, có như vậy mới có thể lấy ra toàn bộ mùi hương. 
 
-Làm xong hết thảy, tiểu Lạc Vân lọc bỏ cặn đi, lại xoa xoa cằm, quyết định cho vào hai loại hương mỗi loại một "phụ liệu" khác. Dù sao tỉ lệ nguyên liệu ngay từ đầu đã không đúng, tiểu Lạc Vân đành phải cứu hai thùng hương liệu bằng cách nhỏ vào trong mỗi thùng một giọt mồ hôi mang chút khí tức đặc thù của mình, thậm chí ở thùng thứ hai còn cho vào một giọt máu tươi. 
+Làm xong hết thảy, tiểu Lạc Vân lọc bỏ cặn đi, mỗi thứ hương liệu nếm qua một chút, phát hiện tỉ lệ cùng dược lực đều sai bét nhè, bèn xoa xoa cằm, quyết định cho vào hai loại hương mỗi loại một "phụ liệu" khác. Dù sao tỉ lệ nguyên liệu ngay từ đầu đã không đúng, tiểu Lạc Vân đành phải cứu hai thùng hương liệu bằng cách nhỏ vào trong mỗi thùng một giọt mồ hôi mang chút khí tức đặc thù của mình, thậm chí ở thùng thứ hai còn cho vào một giọt máu tươi. 
 
 Cảm thấy "dược" lực không sai biệt lắm đã đạt yêu cầu, tiểu Lạc Vân bắt đầu cô đọng hương liệu. Đùa sao, để hắn đem hai cái thùng nặng như vậy đến Thanh Lâm Học Viện, cho dù không bị mệt chết cũng bị cười chết, với điều kiện là ai đó có thể cười được khi bị hai thùng này giội vào đầu trước khi chết. 
 
