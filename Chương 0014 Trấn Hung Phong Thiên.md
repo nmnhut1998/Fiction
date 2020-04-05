@@ -90,52 +90,51 @@ Bia Trấn Hung Phong Thiên mỗi lần loé sáng, lôi điện vòng qua dị
 
 Hung Sát Đường Lang gặp phải lôi uy, có bản năng mách bảo, đồng loạt quay đầu, tranh nhau mà chạy. 
 
-Tiểu Lạc Vân đã tỉnh dậy từ lâu, nhưng trái với thường lệ, không có đưa tay vẫy chào. Tiểu hài tử đứng đó, dựa lưng vào bia đá, ngước nhìn bầu trời. 
+Tiểu Lạc Vân đã tỉnh dậy từ lâu, nhưng trái với thường lệ, không đưa tay vẫy chào hay là lễ phép chào hỏi. Tiểu hài tử đứng đó, khoanh tay ngước nhìn bầu trời, một giọt máu hoàng kim óng ánh thấm vào chất gỗ, âm điệu trầm trầm từ từ vang lên. 
 
-Tiểu Ô Quy ngược lại, lim dim dụi dụi hai mắt, đuôi rùa lúc lắc, trực tiếp khịt mũi khinh thường, nghịch bông tuyết rơi trên mặt đất. 
+Tiểu Thiên Nhi bị thương, nhìn qua là bị chim mổ thủng cánh, một thân dược liệu đều bị rút sạch, thảm không tả nổi. 
 
-Thanh Lôi Ưng thân hình to như đỉnh núi, cánh dang ra che hết bầu trời. Bầu trời tuyết giá, dưới cánh ưng lại là một mảnh trời ấm áp, lại mang theo chút mùi vị lôi điện, gió nóng thổi vào mặt tiểu Lạc Vân, mấy sợi tóc vốn đông cứng từ từ mềm xuống, bay phất phơ. 
+Xem ra kẻ tới không có ý tốt. 
 
-Thanh Lôi Ưng đáp xuống, đám phi cầm đi theo cũng rối rít theo sau. Tiểu Lạc Vân ở khoảng cách gần mới thấy được bên dưới bộ lông của Thanh Lôi Ưng có nhét thêm hoả linh thạch, hoả linh khí toả nhiệt ra xung quanh, cho nên đám phi cầm đi theo mới không bị gió tuyết ảnh hưởng. 
+Thanh Lôi Ưng thân hình to như đỉnh núi, cánh dang ra che hết bầu trời. Lôi điện vờn quanh, trời xám xịt gió tuyết, dưới cánh ưng lại là một mảnh trời ấm áp an yên, lại mang theo chút mùi vị lôi điện, gió nóng thổi vào mặt tiểu Lạc Vân, mấy sợi tóc vốn đông cứng từ từ mềm xuống, bay rối tung. 
 
-"Tiểu Lạc Vân phải không? Nói đi, nơi này là chỗ nào?" 
+Thanh Lôi Ưng đáp xuống, đám phi cầm đi theo cũng rối rít theo sau. Tiểu Lạc Vân ở khoảng cách có thể thấy rõ dưới bộ lông của Thanh Lôi Ưng có nhét thêm hoả linh thạch giã nhỏ thành bột, hoả linh khí toả nhiệt ra xung quanh, cho nên đám phi cầm đi theo mới không bị gió tuyết ảnh hưởng. 
 
-Thanh Lôi Ưng thấy tiểu Lạc Vân không chủ động chào hỏi, tiểu Ô Quy thì khịt mũi khinh thường, cho nên thái độ đối với tiểu Lạc Vân cũng không quá hoà nhã. 
+Thanh Lôi Ưng đáp xuống đất, đám ấu cầm phía sau cũng rối rít xuống theo, làm cho bông tuyết bay loạn một mảnh. 
 
-Tiểu Lạc Vân giật mình, thở mạnh một hơi, khói trắng bốc lên, vội vàng bước ra một bước để lộ ra bia đá sau lưng, chỉ chỉ lên trời, cười nói: 
+Tiểu Lạc Vân hít hít cái mũi, đột nhiên bàn tay bóp chặt, Thiên Hồ Pháp Địch rít lên cao vút, như là thiết kiếm cắt qua không khí. 
 
-"A, Thanh Ưng tỷ, đây là bia Trấn Hung Phong Thiên." 
+"Sụp" 
 
-"Bia Trấn Hung Phong Thiên là cái gì?"
+Một tiếng trầm đục vang lên, Thanh Lôi Ưng dẫn đường dùng thân đỡ lấy âm ba, sụp một cái, chân trước quỳ xuống. Thiên Hồ Pháp Địch bị tiểu Lạc Vân dùng tinh huyết phát động, âm ba phát ra như thiết kiếm, cắt một vết sâu trên ngực của Thanh Lôi Ưng. 
 
-Tiểu Ô Quy khịt mũi một cái, định mở miệng nói, nhưng bên cạnh một tiểu Anh Vũ đã nhanh miệng nói trước: 
+Không nói tới Sư Vương chống lưng, chỉ riêng Thiên Hồ Pháp Địch cái loại Thanh Liên Linh Bảo này, nếu tiểu Lạc Vân không e sợ hậu quả bị suy kiệt, căn cơ bất ổn, có thể một lần biến toàn bộ dị thú trong vòng mười trượng thành tro bụi. 
 
-"Bia Trấn Hung Phong Thiên luôn di động trong Cổ Lâm, chuẩn xác mà nói Trấn Hung Phong Thiên chi địa nằm ở trong lôi vân, lôi vân trôi đến nơi nào, bia Trấn Hung Phong Thiên sẽ đi tới nơi đó"
+"Tiểu Lạc Vân, thật xin lỗi, là Tiểu Lôi trong lúc không cố ý ngộ thương tiểu hồ điệp này, bá mẫu thay nó cho nó xin lỗi." 
 
-"Bên trong lôi vân, theo truyền thuyết trấn áp Hấp Huyết Hoả Ma Đằng. Hấp Huyết Hoả Ma Đằng có thể rút linh khí từ đại địa, hút lấy huyết khí, sát lục chi khí trong không khí mà tồn. Chỉ cần Cổ Lâm còn giết chóc, còn đổ máu, Hấp Huyết Hoả Ma Đằng vĩnh viễn không chết."
+Quỳ xuống, chủng tộc Thanh Lôi Ưng kiêu ngạo trên bầu trời quỳ trước tiểu Lạc Vân xin lỗi. 
 
-"Trăm năm trước lúc Sư Vương vào Cổ Lâm đã gặp phải Hấp Huyết Hoả Ma Đằng, cuối cùng dùng một khối bia kì lạ trấn áp được nó vào trong không gian đặc thù phong kín, giấu không gian đó bên trong Thiên Phạt Lôi Vân, cắt đứt liên hệ của nó với đại địa, để Thiên Phạt Chi Lôi ngày ngày luyện hoá."
+Truyền thuyết kể rằng, Thanh Lôi Ưng vì quá cao ngạo coi thường cả trời, cho nên thiên đạo giáng phong ấn, một khi Thanh Lôi Ưng phải cúi đầu với ai đó, cũng là phong ấn sẽ phát động, cả đời phải làm tuỳ tùng của kẻ đó cho đến chết. 
 
-Tiểu Ô Quy lại khịt mũi: 
+Truyết thuyết là truyền miệng, không ai có gan tìm Thanh Lôi Ưng nhất tộc để kiểm chứng, nhưng Viên thúc thúc nói, đó là sự thật. 
 
-"Mọt sách đúng là mọt sách. Quy gia hỏi tạp mao điểu ngươi, vậy làm sao đi vào Phong Thiên Chi Địa?" 
+Thanh Lôi Ưng cúi rạp người xuống, hai cánh dang ra trên mặt đất, một chân nửa quỳ, trên bộ lông phát ra thanh quang, quyện vào nhau kết thành một cái pháp trận. Chỉ cần nhỏ máu, pháp trận sẽ thành, đời này Thanh Lôi Ưng phải đi theo Tiểu Lạc Vân. 
 
-"Đi vào Phong Thiên Chi Địa? Muốn tìm chết sao?" 
+Tiểu Lạc Vân phát hiện bản thân lúng túng, không biết làm thế nào. Sách cũng không dạy tiểu Lạc Vân phải làm gì lúc này. 
 
-Tiểu Ô Quy lập tức vểnh mặt lên trời, đắc ý nói: 
+"Không sao, Tiểu Thiên Nhi không việc gì ..." 
 
-"Phong Thiên Chi Địa luyện hoá Hấp Huyết Hoả Ma Đằng. Bia Trấn Hung Phong Thiên là một phần của Vạn Thú Đồ, hay nói đúng hơn là trận nhãn của Vạn Thú Đồ, tìm được bia Trấn Hung Phong Thiên có thể bước vào Vạn Thú Đồ." 
+Tiểu Lạc Vân nói gần như là thì thào.  
 
-"Hấp Huyết Hoả Ma Đằng tuy là hung thú, nhưng cũng có ưu điểm, nhựa cây của nó có thể xúc tiến huyết mạch dung hợp, làm cho hai loại huyết mạch khác nhau dung hợp thành một, có tỉ lệ cao sinh ra biến dị." 
+Nhận Tiểu Thiên Nhi từ trên đầu của Thanh Lôi Ưng dẫn dường, kín đáo vuốt ống tay áo phải, ngón trỏ sờ nhẹ lên hai vết thủng trên cánh của Tiểu Thiên Nhi. Ánh mắt của Thanh Lôi Ưng dẫn đường rất sắc bén, có thể thấy được một chút bột mịn trên ngón tay tiểu Lạc Vân bám vào vết thương, sau đó vết thương nhanh chóng khép lại, hoả thuộc tính của Tiểu Thiên Nhi lại càng tăng mạnh. 
 
-"Bên trong Vạn Thú Đồ có chứa huyết mạch của trăm ngàn loại dị thú, lại có lực lượng Hấp Huyết Hoả Ma Đằng liên tục bị rút ra dần dần tạo thành một loại khoáng thạch gọi là Vạn Thú Tinh Thạch, có thể thúc đẩy huyết mạch tiến hoá. Ví dụ như tạp mao điểu ngươi nếu dùng Vạn Thú Tinh Thạch thành công, có thể vứt bỏ tạp mao, biến thành Ngũ Sắc Khổng Tước." 
+Vết thương trên cánh Tiểu Thiên Nhi vừa nhìn qua cũng đã biết là do bị vật nhọn xuyên thủng, là bị mỏ chim mổ trúng, hơn nữa Tiểu Thiên Nhi trong lúc chống cự đã dùng hai loại độc hương tấn công đối thủ, phấn độc trên hai cánh tiêu hao gần như không còn. 
 
-"Còn cách tiến vào rất đơn giản, tập trung đủ Hỗn Độn Chi Tinh làm chi phí vận chuyển pháp trận, lấy máu của Sư Vương làm dẫn liền có thể tiến vào." 
+Tiểu Thanh Lôi Ưng gọi là Tiểu Lôi thân thẳng thắp, toàn thân căng cứng, trong mắt dường như bốc lửa nhìn chằm chằm tiểu Lạc Vân. Trời gió to, nhưng trên người tiểu Thanh Lôi Ưng vẫn có thể ngửi thấy một mùi xú uế, đã cố tẩy rửa qua, lại dùng mùi gỗ quế che đậy, nhưng đứng cách xa năm thước vẫn có thể ngửi được. 
 
-Tiểu Ô Quy nói một tràng dài, đột nhiên quay sang tiểu Lạc Vân, mắt rùa ti hí nháy nháy mấy cái:
+Tiểu Thanh Lôi Ưng này trên người có mùi xú uế cùng với mùi quế rất nồng, nhưng dị thú giác quan rất nhạy, có thể cảm giác được một luồng hung lệ chi khí nhỏ như sợi tơ vờn quanh nó, tuy chưa đủ để làm hung hoá, nhưng lại làm cho tiểu Thanh Lôi Ưng trở nên nóng nảy khác thường. Toàn bộ ấu cầm đều tránh xa.  
 
-"Quy gia nói vậy có đúng không?" 
+Lắc lắc đầu choáng váng, tiểu Lạc Vân thở một cái:
 
-Tiểu Lạc Vân gật đầu: 
+"Bá mẫu xin đứng lên. Đây là do hung lệ chi khí làm thay đổi bản tâm, không thể trách được." 
 
-"Phải, phải, chỉ cần mỗi dị thú ở đây giao ra một hỗn độn chi tinh liền đủ năng lượng mở pháp trận, có thể tiến vào." 
