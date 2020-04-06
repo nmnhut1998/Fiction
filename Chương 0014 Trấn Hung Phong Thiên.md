@@ -114,7 +114,7 @@ Loại hung thú khó chơi như vậy, cuối cùng bị Sư Vương cùng vớ
 
 Cuối cùng Vạn Thú Chiến Linh dùng Lôi Vực bao phủ Hấp Huyết Hắc Hoả Hung Hoè, biến thành một bức hoạ đồ, bay vào trong lôi vân ở tầng trời cao của Cổ Lâm. Lôi Vân luôn di động, nhưng Lôi Vực kia lại có cách định vị và tiến vào. Sư Vương đúc hai tấm bia đá, một tấm cố định ở chỗ Dong lão, một tấm luôn di động theo lôi vân, mà lúc bia đá xuất hiện trên mặt đất, cũng ý nghĩa Lôi Vực có thể tiến vào thu hoạch bảo vật. 
 
-Hung thú như Hấp Huyết Hắc Hoả Hung Hoè mang song hệ mộc hoả, trái ngược với hung thú thuần tuý chỉ dựa vào bản năng và man lực, nó có pháp thuật hết sức cao minh. Những sinh vật như vậy một thân toàn là bảo vật, hơn nữa sở hữu năng lực độc nhất vô nhị. Ví dụ như, dùng nhựa cây của Hấp Huyết Hắc Hoả Hung Hoè có tỉ lệ khoảng chừng hai phần mười làm cho hai loại huyết mạch khác loài dung hợp. 
+Hung thú như Hấp Huyết Hắc Hoả Hung Hoè mang song hệ mộc hoả, trái ngược với hung thú thuần tuý chỉ dựa vào bản năng và man lực, nó có pháp thuật hết sức cao minh. Những sinh vật như vậy một thân toàn là bảo vật, hơn nữa sở hữu năng lực độc nhất vô nhị. Ví dụ như dùng nhựa cây của Hấp Huyết Hắc Hoả Hung Hoè có tỉ lệ khoảng chừng hai phần mười làm cho hai loại huyết mạch khác loài xảy ra biến dị mà dung hợp. 
 
 Sư Vương đúng là Sư Vương, dám để tiểu Lạc Vân ra đường một mình, thủ đoạn bảo mệnh mang theo đúng là tầng tầng lớp lớp, thật không ngờ Vạn Thú Đồ hiện tại vẫn do Sư Vương chưởng khống, hơn nữa tiểu Lạc Vân còn có thể lợi dụng một phần. 
 
