@@ -118,6 +118,8 @@ Hung thú như Hấp Huyết Hắc Hoả Hung Hoè mang song hệ mộc hoả, t
 
 Sư Vương đúng là Sư Vương, dám để tiểu Lạc Vân ra đường một mình, thủ đoạn bảo mệnh mang theo đúng là tầng tầng lớp lớp, thật không ngờ Vạn Thú Đồ hiện tại vẫn do Sư Vương chưởng khống, hơn nữa tiểu Lạc Vân còn có thể lợi dụng một phần. 
 
+"Xem ra, Quy gia cần phải cẩn thận một chút, nếu khi dễ tiểu Lạc Vân chắc chắn sẽ bị lật thuyền trong mương" 
+
 Cũng chỉ tiểu Lạc Vân cơ thể đặc thù như vậy mới có thể chịu tải được lôi đình chi lực cường đại như vậy, chỉ một lần quét qua đã có thể bức ra hung lệ chi khí ẩn giấu bên trong cơ thể đám phi cầm. 
 
 Đồng thời, tiểu Ô Quy đột nhiên nghĩ tới một vấn đề. 
