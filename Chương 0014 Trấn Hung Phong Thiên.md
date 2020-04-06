@@ -90,51 +90,38 @@ Bia Trấn Hung Phong Thiên mỗi lần loé sáng, lôi điện vòng qua dị
 
 Hung Sát Đường Lang gặp phải lôi uy, có bản năng mách bảo, đồng loạt quay đầu, tranh nhau mà chạy. 
 
-Tiểu Lạc Vân đã tỉnh dậy từ lâu, nhưng trái với thường lệ, không đưa tay vẫy chào hay là lễ phép chào hỏi. Tiểu hài tử đứng đó, khoanh tay ngước nhìn bầu trời, một giọt máu hoàng kim óng ánh thấm vào chất gỗ, âm điệu trầm trầm từ từ vang lên. 
+Tiểu Lạc Vân đã tỉnh dậy từ lâu, nhưng trái với thường lệ, không đưa tay vẫy chào hay là lễ phép chào hỏi. Tiểu hài tử đứng đó, một tay chạm vào bia đá Trấn Hung Phong Thiên, ngón tay lướt nhanh, mắt nhìn bầu trời, Thiên Hồ Pháp Địch đột nhiên quét ngang. 
 
-Tiểu Thiên Nhi bị thương, nhìn qua là bị chim mổ thủng cánh, một thân dược liệu đều bị rút sạch, thảm không tả nổi. 
+"Rít!" 
 
-Xem ra kẻ tới không có ý tốt. 
+Bia Trấn Hung Phong Thiên bộc phát lôi quang, một luồng hồ quang điện chạy dọc cơ thể tiểu Lạc Vân, dẫn tới Thiên Hồ Pháp Địch. 
 
-Thanh Lôi Ưng thân hình to như đỉnh núi, cánh dang ra che hết bầu trời. Lôi điện vờn quanh, trời xám xịt gió tuyết, dưới cánh ưng lại là một mảnh trời ấm áp an yên, lại mang theo chút mùi vị lôi điện, gió nóng thổi vào mặt tiểu Lạc Vân, mấy sợi tóc vốn đông cứng từ từ mềm xuống, bay rối tung. 
+Pháp Địch phát ra ngân quang, tiểu Lạc Vân dùng toàn bộ sức của mình khu động Pháp Địch, mỗi một lần quét ngang đều có ngân lôi phóng ra đánh trúng một đầu phi cầm. 
 
-Thanh Lôi Ưng đáp xuống, đám phi cầm đi theo cũng rối rít theo sau. Tiểu Lạc Vân ở khoảng cách có thể thấy rõ dưới bộ lông của Thanh Lôi Ưng có nhét thêm hoả linh thạch giã nhỏ thành bột, hoả linh khí toả nhiệt ra xung quanh, cho nên đám phi cầm đi theo mới không bị gió tuyết ảnh hưởng. 
+Mỗi phi cầm bị đánh trúng, trên cơ thể đều có một làn khói đen quỷ dị bị ép ra. Ngân lôi mang theo lực lượng tương tự như huyết mạch của dị thú, khói đen quỷ dị bị nó đánh tan thành từng hạt hỗn độn chi tinh nhỏ li ti, rơi xuống. 
 
-Thanh Lôi Ưng đáp xuống đất, đám ấu cầm phía sau cũng rối rít xuống theo, làm cho bông tuyết bay loạn một mảnh. 
+Một màn này làm cho tiểu Ô Quy sợ hết hồn. Ở chỗ này, tiểu Lạc Vân có thể mượn lực của bia Trấn Hung Phong Thiên! 
 
-Tiểu Lạc Vân hít hít cái mũi, đột nhiên bàn tay bóp chặt, Thiên Hồ Pháp Địch rít lên cao vút, như là thiết kiếm cắt qua không khí. 
+Tiểu Ô Quy lập tức nhớ tới một chuyện xưa. 
 
-"Sụp" 
+Năm đó Sư Vương lúc vào Cổ Lâm chỉ là một man thú, so với tiểu Ô Quy còn kém hơn. Nhưng Sư Vương huyết mạch dị biến, tu luyện không theo lẽ thường, một thân lôi thuật thần thông huyền diệu vô cùng. Lúc đó vì huyết mạch dị biến của Sư Vương đã hấp dẫn Hấp Huyết Hắc Hoả Hung Hoè ẩn thân mấy ngàn năm ở dưới lòng đất. 
 
-Một tiếng trầm đục vang lên, Thanh Lôi Ưng dẫn đường dùng thân đỡ lấy âm ba, sụp một cái, chân trước quỳ xuống. Thiên Hồ Pháp Địch bị tiểu Lạc Vân dùng tinh huyết phát động, âm ba phát ra như thiết kiếm, cắt một vết sâu trên ngực của Thanh Lôi Ưng. 
+Hấp Huyết Hắc Hoả Hung Hoè chuyên làm chuyện thất đức, đào trộm mộ phần hấp thu huyết dịch còn lại xong xác chết. Nó là Thiên Niên Hoè Thụ đã chết khô vùi trong đất, mộc linh vừa thành hình bị hung lệ chi khí làm cho hung hoá, sở hữu khả năng hấp huyết cùng hoả thuộc tính cực kì quỷ dị, không sợ huyết dịch dị thú luyện hoá. 
 
-Không nói tới Sư Vương chống lưng, chỉ riêng Thiên Hồ Pháp Địch cái loại Thanh Liên Linh Bảo này, nếu tiểu Lạc Vân không e sợ hậu quả bị suy kiệt, căn cơ bất ổn, có thể một lần biến toàn bộ dị thú trong vòng mười trượng thành tro bụi. 
+Hấp Huyết Hắc Hoả Hung Hoè này cực kì giỏi nguỵ trang, ngay cả Dong lão cũng không thể truy tung. Nó có thể từ đại địa rút ra sức lực gần như vô hạn, lại có thể hấp thu huyết khí trong không khí, mỗi một phân rễ đều cắm sâu trong lòng đất Cổ Lâm. Chỉ cần Cổ Lâm còn đổ máu, Hấp Huyết Hắc Hoả Hung Hoè liền có vô số cơ hội có thể sinh sôi nảy nở một lần nữa. 
 
-"Tiểu Lạc Vân, thật xin lỗi, là Tiểu Lôi trong lúc không cố ý ngộ thương tiểu hồ điệp này, bá mẫu thay nó cho nó xin lỗi." 
+Loại hung thú khó chơi như vậy, cuối cùng bị Sư Vương cùng với một gã nhân loại họ Liễu - vốn không mạnh hơn bao nhiêu - dùng huyết mạch của vạn loài dị thú trong Cổ Lâm, luyện thành Vạn Thú Chiến Linh, hoá thành Vạn Thú Đồ. Vạn Thú Chiến Linh có khả năng chưởng khống lôi điện, lại có Lôi Vực kì dị, kẻ ở trong Lôi Vực toàn bộ cơ thể đều bị Vạn Thú Chiến Linh điều khiển, huyết dịch chảy ngược, thần thức đảo loạn, thậm chí cả hung lệ chi khí cũng không điều khiển được. Hấp Huyết Hắc Hoả Hung Hoè chính là bị một chiêu này khắc chế triệt để, tuy vì sinh mệnh lực mạnh của nó quá mạnh, không thể lập tức giết chết, nhưng cũng bị phong ấn bên trong Lôi Vực. Sư Vương cũng vì vậy mà trở thành một trong Tứ Vương của Cổ Lâm. 
 
-Quỳ xuống, chủng tộc Thanh Lôi Ưng kiêu ngạo trên bầu trời quỳ trước tiểu Lạc Vân xin lỗi. 
+Cuối cùng Vạn Thú Chiến Linh dùng Lôi Vực bao phủ Hấp Huyết Hắc Hoả Hung Hoè, biến thành một bức hoạ đồ, bay vào trong lôi vân ở tầng trời cao của Cổ Lâm. Lôi Vân luôn di động, nhưng Lôi Vực kia lại có cách định vị và tiến vào. Sư Vương đúc hai tấm bia đá, một tấm cố định ở chỗ Dong lão, một tấm luôn di động theo lôi vân, mà lúc bia đá xuất hiện trên mặt đất, cũng ý nghĩa Lôi Vực có thể tiến vào thu hoạch bảo vật. 
 
-Truyền thuyết kể rằng, Thanh Lôi Ưng vì quá cao ngạo coi thường cả trời, cho nên thiên đạo giáng phong ấn, một khi Thanh Lôi Ưng phải cúi đầu với ai đó, cũng là phong ấn sẽ phát động, cả đời phải làm tuỳ tùng của kẻ đó cho đến chết. 
+Hung thú như Hấp Huyết Hắc Hoả Hung Hoè mang song hệ mộc hoả, trái ngược với hung thú thuần tuý chỉ dựa vào bản năng và man lực, nó có pháp thuật hết sức cao minh. Những sinh vật như vậy một thân toàn là bảo vật, hơn nữa sở hữu năng lực độc nhất vô nhị. Ví dụ như, dùng nhựa cây của Hấp Huyết Hắc Hoả Hung Hoè có tỉ lệ khoảng chừng hai phần mười làm cho hai loại huyết mạch khác loài dung hợp. 
 
-Truyết thuyết là truyền miệng, không ai có gan tìm Thanh Lôi Ưng nhất tộc để kiểm chứng, nhưng Viên thúc thúc nói, đó là sự thật. 
+Sư Vương đúng là Sư Vương, dám để tiểu Lạc Vân ra đường một mình, thủ đoạn bảo mệnh mang theo đúng là tầng tầng lớp lớp, thật không ngờ Vạn Thú Đồ hiện tại vẫn do Sư Vương chưởng khống, hơn nữa tiểu Lạc Vân còn có thể lợi dụng một phần. 
 
-Thanh Lôi Ưng cúi rạp người xuống, hai cánh dang ra trên mặt đất, một chân nửa quỳ, trên bộ lông phát ra thanh quang, quyện vào nhau kết thành một cái pháp trận. Chỉ cần nhỏ máu, pháp trận sẽ thành, đời này Thanh Lôi Ưng phải đi theo Tiểu Lạc Vân. 
+Cũng chỉ tiểu Lạc Vân cơ thể đặc thù như vậy mới có thể chịu tải được lôi đình chi lực cường đại như vậy. 
 
-Tiểu Lạc Vân phát hiện bản thân lúng túng, không biết làm thế nào. Sách cũng không dạy tiểu Lạc Vân phải làm gì lúc này. 
+Đồng thời, tiểu Ô Quy đột nhiên nghĩ tới một vấn đề. 
 
-"Không sao, Tiểu Thiên Nhi không việc gì ..." 
+Pháp thuật không thể rời thân thể, nhưng mà pháp bảo có thể sử dụng! 
 
-Tiểu Lạc Vân nói gần như là thì thào.  
-
-Nhận Tiểu Thiên Nhi từ trên đầu của Thanh Lôi Ưng dẫn dường, kín đáo vuốt ống tay áo phải, ngón trỏ sờ nhẹ lên hai vết thủng trên cánh của Tiểu Thiên Nhi. Ánh mắt của Thanh Lôi Ưng dẫn đường rất sắc bén, có thể thấy được một chút bột mịn trên ngón tay tiểu Lạc Vân bám vào vết thương, sau đó vết thương nhanh chóng khép lại, hoả thuộc tính của Tiểu Thiên Nhi lại càng tăng mạnh. 
-
-Vết thương trên cánh Tiểu Thiên Nhi vừa nhìn qua cũng đã biết là do bị vật nhọn xuyên thủng, là bị mỏ chim mổ trúng, hơn nữa Tiểu Thiên Nhi trong lúc chống cự đã dùng hai loại độc hương tấn công đối thủ, phấn độc trên hai cánh tiêu hao gần như không còn. 
-
-Tiểu Thanh Lôi Ưng gọi là Tiểu Lôi thân thẳng thắp, toàn thân căng cứng, trong mắt dường như bốc lửa nhìn chằm chằm tiểu Lạc Vân. Trời gió to, nhưng trên người tiểu Thanh Lôi Ưng vẫn có thể ngửi thấy một mùi xú uế, đã cố tẩy rửa qua, lại dùng mùi gỗ quế che đậy, nhưng đứng cách xa năm thước vẫn có thể ngửi được. 
-
-Tiểu Thanh Lôi Ưng này trên người có mùi xú uế cùng với mùi quế rất nồng, nhưng dị thú giác quan rất nhạy, có thể cảm giác được một luồng hung lệ chi khí nhỏ như sợi tơ vờn quanh nó, tuy chưa đủ để làm hung hoá, nhưng lại làm cho tiểu Thanh Lôi Ưng trở nên nóng nảy khác thường. Toàn bộ ấu cầm đều tránh xa.  
-
-Lắc lắc đầu choáng váng, tiểu Lạc Vân thở một cái:
-
-"Bá mẫu xin đứng lên. Đây là do hung lệ chi khí làm thay đổi bản tâm, không thể trách được." 
-
+Cấm pháp lĩnh vực chỉ có tác dụng lên vật sống! 
