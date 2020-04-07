@@ -106,9 +106,9 @@ Tiểu Ô Quy lập tức nhớ tới một chuyện xưa.
 
 Năm đó Sư Vương lúc vào Cổ Lâm chỉ là một man thú, so với tiểu Ô Quy còn kém hơn. Nhưng Sư Vương huyết mạch dị biến, tu luyện không theo lẽ thường, một thân lôi thuật thần thông huyền diệu vô cùng. Lúc đó vì huyết mạch dị biến của Sư Vương đã hấp dẫn Hấp Huyết Hắc Hoả Hung Hoè ẩn thân mấy ngàn năm ở dưới lòng đất. 
 
-Hấp Huyết Hắc Hoả Hung Hoè chuyên làm chuyện thất đức, đào trộm mộ phần hấp thu huyết dịch còn lại xong xác chết. Nó là Thiên Niên Hoè Thụ đã chết khô vùi trong đất, mộc linh vừa thành hình bị hung lệ chi khí làm cho hung hoá, sở hữu khả năng hấp huyết cùng hoả thuộc tính cực kì quỷ dị, không sợ huyết dịch dị thú luyện hoá. 
+Hấp Huyết Hắc Hoả Hung Hoè chuyên làm chuyện thất đức, đào trộm mộ phần hấp thu huyết dịch còn lại trong xác chết. Nó là Thiên Niên Hoè Thụ đã chết khô vùi trong đất, mộc linh vừa thành hình bị hung lệ chi khí làm cho hung hoá, sở hữu khả năng hấp huyết cùng hoả thuộc tính cực kì quỷ dị, không sợ huyết dịch dị thú luyện hoá. 
 
-Hấp Huyết Hắc Hoả Hung Hoè này cực kì giỏi nguỵ trang, ngay cả Dong lão cũng không thể truy tung. Nó có thể từ đại địa rút ra sức lực gần như vô hạn, lại có thể hấp thu huyết khí trong không khí, mỗi một phân rễ đều cắm sâu trong lòng đất Cổ Lâm. Chỉ cần Cổ Lâm còn đổ máu, Hấp Huyết Hắc Hoả Hung Hoè liền có vô số cơ hội có thể sinh sôi nảy nở một lần nữa. 
+Hấp Huyết Hắc Hoả Hung Hoè này cực kì giỏi nguỵ trang, ngay cả Dong lão cũng không thể truy tung. Nó có thể từ đại địa rút ra sức lực gần như vô hạn, lại có thể hấp thu huyết khí trong không khí, mỗi một phân rễ đều cắm sâu trong lòng đất Cổ Lâm. Chỉ cần Cổ Lâm còn đổ máu, Hấp Huyết Hắc Hoả Hung Hoè liền có vô số cơ hội sinh sôi nảy nở một lần nữa. 
 
 Loại hung thú khó chơi như vậy, cuối cùng bị Sư Vương cùng với một gã nhân loại họ Liễu - vốn không mạnh hơn bao nhiêu - dùng huyết mạch của vạn loài dị thú trong Cổ Lâm, luyện thành Vạn Thú Chiến Linh, hoá thành Vạn Thú Đồ. Vạn Thú Chiến Linh có khả năng chưởng khống lôi điện, lại có Lôi Vực kì dị, kẻ ở trong Lôi Vực toàn bộ cơ thể đều bị Vạn Thú Chiến Linh điều khiển, huyết dịch chảy ngược, thần thức đảo loạn, thậm chí cả hung lệ chi khí cũng không điều khiển được. Hấp Huyết Hắc Hoả Hung Hoè chính là bị một chiêu này khắc chế triệt để, tuy vì sinh mệnh lực mạnh của nó quá mạnh, không thể lập tức giết chết, nhưng cũng bị phong ấn bên trong Lôi Vực. Sư Vương cũng vì vậy mà trở thành một trong Tứ Vương của Cổ Lâm. 
 
@@ -140,4 +140,4 @@ Cứ nhìn Thiên Linh Điệp kia, so với Quy gia càng yếu hơn, trong cơ
 
 Hơn nữa, Thiên Linh Điệp có lại có khả năng hấp thụ độc ... Cứ nhìn hai Cuồng Khấp Ngạ Quỷ Hương cùng với Mỹ Thiên Hương hiện tại từng chút từng chút một được sinh ra trên cánh của nó ...
 
-"Xem ra, Quy gia cần phải cẩn thận một chút, nếu khi dễ tiểu Lạc Vân chắc chắn sẽ bị lật thuyền trong mương" 
+"Xem ra, Quy gia cần phải cẩn thận một chút, nếu coi thường tiểu Lạc Vân thì ngay cả cháo rùa cũng không có mà húp ..." 
