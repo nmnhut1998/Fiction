@@ -190,6 +190,16 @@ Tiểu Thiên Nhi hấp thu tinh dầu, trên người có quang mang lục sắ
 
 Mà khí tức của Tiểu Thiên Nhi cũng tăng lên một đoạn, cơ hồ đã đạt tới Nhất phẩm Linh thú trung kì đỉnh phong rồi, ước chừng lúc luyện hoá toàn bộ, liền có thể tiến vào hậu kì. 
 
+Cẩn thận quan sát một chút, phấn bướm của Tiểu Thiên Nhi có một số hạt màu nhạt hơn, dược lực cùng độc lực yếu hơn nhiều, cũng không ổn định. Theo Quy gia gia nói, đây là tương tác giữa linh khí đặc thù trong cơ thể cùng với ngoại lực. 
+
+Dị thú, đặc biệt là dị thú trong cơ thể có mộc thuộc tính thì linh khí trong cơ thể rất nhạy cảm, trong cơ thể thường xuyên sinh ra một loại khí đặc thù có thể đồng hoá và dung hoà ngoại vật, làm cho tính chất linh khí dễ bị biến đổi, giống như cây cỏ từ đất, nước và ánh sáng ngưng tụ ra quả ngọt. 
+
+Cơ thể Tiểu Thiên Nhi đang chuyển biến theo hướng dung hoà giữa độc lực, dược lực cùng với linh khí. 
+
+Nếu như có thể thành công, trong linh khí của Tiểu Thiên Nhi sẽ lây nhiễm tính chất của chúng, từ từ chuyển hoá thành độc hương, cuối cùng Tiểu Thiên Nhi có thể tự mình biến linh khí bản thân thành độc hương. 
+
+Những thứ kiến thức như vậy, tiểu Lạc Vân cũng chưa được chân chính tiếp xúc toàn bộ, Viên thúc thúc sợ hắn hiếu kì quá lớn, làm không đúng mà đi sai đường, chỉ có Quy gia gia thỉnh thoảng sẽ nói một chút. KHi nào tiểu Lạc Vân đến được Thanh Lâm Học Viện mới có quyền được biết những huyền cơ này. 
+
 Trong lòng tiểu Lạc Vân cảm khái không thôi, xem ra cha rất muốn mình đi theo con đường điều hương luyện dược, ngay cả chuyện này cũng đã tính từ trước. Thiên Linh Điệp chính là thiên hạ đệ nhất dược đồng của luyện hương sư.  
 
 Hai loại hương liệu mình tự chế ra, mặc dù so với công thức gốc không đúng lắm, nhưng chỉ cần nghĩ tới tác dụng của hai thứ này, cộng thêm phụ liệu mình cho vào, tiểu Lạc Vân liền nở một nụ cười xảo trá.
