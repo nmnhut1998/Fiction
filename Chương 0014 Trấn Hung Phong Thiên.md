@@ -126,7 +126,7 @@ Cũng chỉ tiểu Lạc Vân cơ thể đặc thù như vậy mới có thể c
 
 Pháp thuật không thể rời thân thể, nhưng mà pháp bảo có thể sử dụng! Lẽ nào, Cấm Pháp Lĩnh Vực chỉ có tác dụng lên vật sống? 
 
-Khoé miệng tiểu Ô Quy cong lên, Quy gia tại sao không nghĩ tới sớm hơn. Rõ ràng Cấm Pháp Lĩnh Vực tác động đối với từng dị thú có ảnh hưởng khác nhau. Thanh Lôi Ưng kia toàn thân pháp lực đều bị áp chế, không thể vận dụng linh khí li thể. Ít ra Hỗn Độn Chi Thuỷ của Quy gia vẫn có thể được sinh ra, Quy gia có thể sử dụng một chút pháp lực. Mà Tiểu Lạc Vân thì vốn dĩ không có pháp lực, nhưng cũng không bị ảnh hưởng, thậm chí có thể dùng năng lượng bên trong huyết dịch mà luyện dược. 
+Khoé miệng tiểu Ô Quy cong lên, Quy gia tại sao không nghĩ tới sớm hơn. Rõ ràng Cấm Pháp Lĩnh Vực tác động đối với từng dị thú có ảnh hưởng khác nhau. Thanh Lôi Ưng kia toàn thân pháp lực đều bị áp chế, không thể vận dụng linh khí li thể, ngay cả một tia lôi điện cũng không thể phát ra. Thiên Nga dùng toàn bộ sức lực lại có thể bức ra một đạo Thất Thải Chi Quang dùng để liệu thương. Lại nói, Hỗn Độn Chi Thuỷ của Quy gia vẫn có thể sinh ra liên tục không dứt, Quy gia có thể sử dụng một chút pháp lực. Mà Tiểu Lạc Vân thì vốn dĩ không có pháp lực, nhưng cũng không bị ảnh hưởng, thậm chí có thể dùng năng lượng bên trong huyết dịch mà luyện dược. 
 
 Đây là độc! Cấm Pháp Lĩnh Vực là thả ra một loại độc vô hình vô vị, bao trùm cả Cổ Lâm, mà thực lực càng cường đại, nhận áp chế càng lớn! Xem ra là một loại độc có thể tương tác với linh khí trong cơ thể, linh khí càng nhiều độc tính càng dễ xâm nhập. 
 
