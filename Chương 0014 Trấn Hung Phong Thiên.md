@@ -204,20 +204,32 @@ Quy thái tử, tự nhiên là tiểu Ô Quy, còn Kim thái tử, tự nhiên 
 
 Lời có bóng gió, giọng điệu nhấn nhá châm chọc vào mấy chữ "thái tử", ý tứ rất rõ ràng, một rùa là dựa vào gia thế, còn nhân loại kia thì chỉ là con nuôi, ngay cả họ Kim cũng không được theo, không có gì phải nghênh ngang kiêu ngạo. 
 
-"Thì ra là Thanh Lôi Ưng - Ưng Kiệt ..." 
+"Thì ra là Thanh Lôi Ưng - Ưng Kiệt, Tiểu Kiệt Kiệt." 
 
-Tiểu Ô Quy nhếch mép, làm ra động tác sửa móng tay, cũng không nói nữa. Ưng Kiệt này có điểm kì lạ, chững chạc hơn so với cùng tuổi, lời nói cũng thâm sâu hơn rất nhiều. 
+Tiểu Ô Quy nhếch mép, làm ra động tác bịt mũi kinh tởm, chân trước vẫy vẫy trước mặt xua đi mùi hôi. 
 
-"Tiểu Lạc Vân cái gì cũng tốt, chỉ là chưa bao giờ học qua mấy thứ phàm tục, không chạm vào ngôn từ khiếm nhã, giao phong với kẻ thô lỗ chắc chắn chịu thiệt. Lại thêm Sư Vương bình thường quá mức ôn hoà, làm gì cũng dùng lý lẽ, không dùng lực lượng ép người, nếu không phải lão bất tử nhà Quy gia ta thường ghé qua dạy cho mấy chiêu, không chừng bây giờ đã bị dụ dỗ bắt làm nhân hình đan." 
+Ưng Kiệt này có điểm kì lạ, chững chạc hơn so với cùng tuổi, lời nói cũng thâm sâu hơn rất nhiều. Trên vết thương của Tiểu Thiên Nhi, có chút ít do hung thú gây ra, nhưng rõ ràng nhất là hai vết thủng trên cánh do bị mỏ chim mổ vào, mà Tiểu Kiệt Kiệt ngày toàn thân một mùi mắm ruốc xoài xanh ngấm sâu vào từng sợi lông, hiển nhiên lúc trước đã giao đấu với Tiểu Thiên Nhi. 
+
+Tiểu Ô Quy lúc ở nhà bị cha mẹ dạy dỗ, cứ mười lần sẽ có chín lần "Con mở mắt ra mà nhìn Tiểu Kiệt Kiệt nhà người ta, lễ độ khuôn phép, ý chí kiên định, tâm cơ cẩn thận ..." 
+
+Nghĩ tới đây, tiểu Ô Quy lại sôi máu, muốn mượn tay tiểu Lạc Vân "chăm sóc" Tiểu Kiệt Kiệt này một lần cho bỏ tức. 
+
+"Tiểu Lạc Vân cái gì cũng tốt, chỉ là chưa bao giờ học qua mấy thứ phàm tục, không chạm vào ngôn từ khiếm nhã, giao phong với kẻ thô lỗ chắc chắn chịu thiệt. Lại thêm Sư Vương bình thường quá mức ôn hoà, làm gì cũng dùng lý lẽ, không dùng lực lượng ép người, càng không dùng âm mưu quỷ kế ..." 
 
 Nếu là dị thú thế hệ trước, không ai dám khinh thị Sư Vương, càng không ai dám động vào tiểu Lạc Vân; nhưng ấu thú mới lớn chỉ thấy Sư Vương hoà nhã chính trực, luôn làm việc theo lý lẽ, cho nên mới có can đảm làm ra những chuyện như vậy. 
 
-Tiểu Lạc Vân ngước nhìn Ưng Kiệt, bàn tay siết chặt Thiên Hồ Pháp Địch: 
+Tiểu Lạc Vân ngước nhìn Ưng Kiệt, bàn tay siết chặt Thiên Hồ Pháp Địch chỉ lên trời, tiếng nói như là gào thét mới không bị : 
 
-"Khổng Tước Thánh Vũ là có hung đồ tác quái, Thiên Nga a di đang truy tung, các ngươi không cần phải lo. Thiên Nga a di thần thông quản đại, cho dù bị Cấm Pháp Lĩnh Vực bao phủ vẫn có thể dùng được pháp thuật, không bao lâu nữa chắc chắn sẽ tìm được!" 
+"Khổng Tước Thánh Vũ bị mất là có hung đồ tác quái, Thiên Nga a di đang truy tung, các ngươi không cần phải lo. Thiên Nga a di thần thông quản đại, cho dù bị Cấm Pháp Lĩnh Vực bao phủ vẫn có thể dùng được pháp thuật, không bao lâu nữa chắc chắn sẽ tìm được!" 
 
-"Tiểu Thiên Nhi uống Mộc Tâm Hoa Dịch, ăn Mộc Linh Mễ do Khổng Tước Tộc trồng, đương nhiên trên người có linh khí đặc thù của Hoá Độc Linh Quyết. Cổ Lâm có luật, kẻ chưa định tội thì không có tội, huống hồ các ngươi cũng không có quyền bắt người, nếu không thả Tiểu Thiên Nhi ra, ta có thể kiện các ngươi tội bắt cóc!" 
+"Tiểu Thiên Nhi uống Mộc Tâm Hoa Dịch, ăn Mộc Linh Mễ do Khổng Tước Tộc trồng, đương nhiên trên người có linh khí đặc thù của Hoá Độc Linh Quyết. Cổ Lâm có luật, kẻ chưa định tội thì không có tội, huống hồ các ngươi cũng không phải chấp pháp đội, không có quyền bắt giữ, nếu không thả Tiểu Thiên Nhi ra, ta có thể kiện các ngươi tội bắt cóc!" 
 
 Tiểu Lạc Vân giơ nắm tay nhỏ, nhưng năm tay nhỏ nhỏ trắng trắng hồng hồng, mười phần dễ thương, không phần uy hiếp, đám ấu cầm ở trên trời cao đồng loạt bật cười. 
 
+Tiếng cười vang xa, rồi quỷ dị im bặt. Sau đó là tiếng ho khan, tiếng thở dốc đều đều. 
 
+Bộp. Bộp. Bộp. 
+
+Không biết là ấu cầm nào dẫn đầu, đột nhiên toàn thân căng cứng, cánh không thể đập, giống như chiếc lá khô rơi xuống nền tuyết dày, lún sâu không thấy được thân hình. 
+
+Tiểu Ô Quy chậm rì rì bò tới, đào được "Tiểu Kiệt Kiệt" toàn thân thâm tím, phía trên còn có mấy vết lở loét, mùi mắm ruốc đặc thù bao phủ toàn thân
