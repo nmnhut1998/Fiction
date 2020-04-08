@@ -138,6 +138,64 @@ Mà Tiểu Lạc Vân thì vốn dĩ không có pháp lực, nhưng cũng không
 
 Cứ nhìn Thiên Linh Điệp kia, so với Quy gia càng yếu hơn, trong cơ thể chỉ có một tia linh khí mỏng manh miễn cưỡng được xem là linh thú, thậm chí dù vì có linh khí nên được coi là linh thú nhưng thật ra cũng cũng chỉ tính là nửa dị thú, cho nên lượng pháp thuật có thể sử dụng lại càng nhiều. 
 
-Hơn nữa, Thiên Linh Điệp có lại có khả năng hấp thụ độc ... Cứ nhìn hai Cuồng Khấp Ngạ Quỷ Hương cùng với Mỹ Thiên Hương hiện tại từng chút từng chút một được sinh ra trên cánh của nó ...
+Hơn nữa, Thiên Linh Điệp dường như có khả năng hấp độc sinh độc ... Cứ nhìn hai Cuồng Khấp Ngạ Quỷ Hương cùng với Mỹ Thiên Hương hiện tại từng chút từng chút một được sinh ra trên cánh của nó ...
 
 "Xem ra, Quy gia cần phải cẩn thận một chút, nếu coi thường tiểu Lạc Vân thì ngay cả cháo rùa cũng không có mà húp ..." 
+
+Ngân lôi nổ đôm đốp trên người đám phi cầm, máu trong cơ thể như chạy ngược, chỉ một chốc đã giảm xuống, mất đi một phần ba. 
+
+Thanh Lôi Ưng dẫn đường kêu lên mấy tiếng “Các, các!” biểu thị cảm ơn, nhưng phần đông đám ấu cầm còn lại đều trừng mắt nhìn tiểu Lạc Vân.
+
+Thanh Lôi Ưng là giống loài kiêu ngạo, trong truyền thuyết vốn là Thái Thanh Thần Ưng vì coi thường cả trời nên bị thiên đạo phong ấn huyết mạch chi lực mà thoái hoá thành Thanh Lôi Ưng, tự nhiên cũng không nói ngôn ngữ con người, đối mặt tiểu Lạc Vân càng muốn tiểu Lạc Vân dùng Ưng tộc thú ngữ. Có Thanh Lôi Ưng dẫn đầu, đám ấu cầm càng không chủ động giao tiếp với tiểu Lạc Vân
+
+Một đàn phi cầm dàn trận trên bầu trời không đáp xuống. 
+
+Thiên Hồ Pháp Địch lại điểm ra, một tia sáng hai màu xích kim rọi lên người Tiểu Thiên Nhi mang theo một chút dược lực, làm cho vết thương nhanh chóng khép lại. 
+
+“Hyliaaa!”
+
+Tiểu hồ điệp đập cánh loạng choạng bay lên, gắng gượng hướng về phía tiểu Lạc Vân. 
+
+"Kwork kwork...!" 
+
+Tiếng chim trầm thấp mà dứt khoát, từ trong hàng ngũ ấu cầm bay ra một con vẹt xanh. Vẹt xanh trên đầu có một chùm lông tơ dài mềm mịn có hoa văn sọc đỏ vàng, mọc ngược kéo dài ra sau lưng. Hai con mắt lớn, khoé mắt nhọn, tròng mắt vàng, con ngươi đen, lông đuôi dài hệt như khổng tước. Đặc biệt, cặp chân của nó khá lớn, năm ngón chân linh hoạt như người, cơ hồ to bằng cánh tay của tiểu Lạc Vân, dài như chân hạc, nhưng lại cân đối với hai cánh cũng lớn không kém. Thoạt nhìn bề ngoài, vẹt xanh này toát ra vẻ vững chãi, tự tin, móng vuốt hợp lại thành một cái lồng giam giữ Tiểu Thiên Nhi ở bên trong. 
+
+"Thả Tiểu Thiên Nhi ra!" 
+
+Tiểu Lạc Vân cầm trong tay Thiên Hồ Pháp Địch, nâng cao lên ngang tầm môi. Chỉ cần một hơi nhẹ nhàng thổi, mượn lực lương của bia Trấn Hung Phong Thiên, âm ba có thể chấn ngất xỉu ba phần ấu cầm ở đây. 
+
+"Kworkkk ... kwork!" 
+
+Ý tứ rất rõ ràng, ta sẽ không nói tiếng nhân loại với ngươi. 
+
+Tiểu Ô Quy ở một bên xem kịch, hai mắt đảo loạn một vòng, khoé miệng nhếch lên, bước lên phía trước một bước, cũng không thèm nhìn, móng rùa vẽ vẽ trên mặt đất, giọng nói ngược lại rất lớn: 
+
+"Quy gia còn tưởng là ai, hoá ra là Đĩnh Đạc Điểu đại danh đỉnh đỉnh Tiểu Đạt Đạt!" 
+
+"Kwork! Kwork!" 
+
+Tiểu Ô Quy đưa chân trước, làm thành tư thế lắng nghe, sau đó lắc đầu: 
+
+"A? Ngươi nói gì? Ngươi nói từ lâu đã ngưỡng mộ Quy gia? Không sao, đừng ngại, Quy gia đã là truyền thuyết, rất nhiều dị thú xem Quy gia là thần tượng." 
+
+Tiểu Đạt Đạt tức giận trừng mắt lắc đầu, kêu lên mấy tiếng rõ to: 
+
+"Kwork! Kwork! Kwork!" 
+
+"A? Ngươi nói muốn hẹn hò Quy gia? Đừng nha, Quy gia chỉ thích ăn hàu nướng, cưới Quy nương tử, ngươi mau tránh xa Quy gia!" 
+
+"Kwork!!!!!!!" 
+
+"A? Không cần, cái gì mà trăm vạn linh thạch cực phẩm, ba mươi rùa cái theo hầu, tám trăm tờ giấy Ngũ sắc đổi lấy một đêm cùng Quy gia? Quy gia nhìn vậy nhưng mà là người đứng đắn, à không, Rùa đứng đắn. Đối với Quy gia vật chất chỉ là phù du." 
+
+Tiểu Đạt Đạt tức giận, con mắt trừng tiểu Ô Quy, khoé mắt căng ra, tiến tới thì không chiếm lí, dễ bị tên vô sỉ này mượn cớ tự vệ tấn công, lùi về thì rõ ràng mất đi khí thế. 
+
+Đúng lúc đó, từ hàng ngũ ấu cầm lại bay ra một con Thanh Lôi Ưng khác, chắn trước mặt Tiểu Đạt Đạt. Thanh Lôi Ưng này trên lông còn vết máu do chiến đấu, vết đen xám do lôi điện tạo thành. Cánh của Thanh Lôi Ưng này so với Thanh Lôi Ưng cùng tuổi to hơn một nửa, hơn nữa đập cánh rất nhẹ. Phi cầm khác phải dựa vào Thanh Lôi Ưng dẫn dường che chở mới không bị gió thổi ngược, nhưng Thanh Lôi Ưng này mỗi lần đập cánh đều tạo thành một cơn gió thổi ngược, va chạm với gió tuyết. Dù cho gió tuyết thổi mạnh, Thanh Lôi Ưng vẫn duy trì vị trí trên bầu trời không xê dịch một phân nào. 
+
+Điều làm tiểu Ô Quy không ngờ tới chính là Thanh Lôi Ưng này mở miệng nói tiếng người: 
+
+"Đã sớm nghe Quy thái tử đức hạnh vang xa vạn dặm, một bài hịch văn "tưởng nhớ tổ tông" cả Cổ Lâm đều biết, hôm nay mới được gặp mặt. Nhưng mà Khổng Tước Thánh Vũ là thánh vật của điểu tộc, lúc trước là do Viên Hoàng mượn đi, bây giờ Kim thái tử Lạc Vân để đạo tặc trộm mất, chuyện này cũng phải có một câu trả lời. Hơn nữa Đạt Đạt là hoàng trữ của điểu tộc ta, là con ruột của Khổng Tước Đại Vương, khẩn xin Quy thái tử không đặt điều nói xấu." 
+
+Quy thái tử, tự nhiên là tiểu Ô Quy, còn Kim thái tử, tự nhiên là tiểu Lạc Vân, Sư Vương trong thế giới loài người lấy họ Kim. Sư Vương, Ô Lão Quy, Cự Viên, Dong lão trấn bốn phía của Cổ Lâm, đều được dị thú tôn làm Hoàng, tuy cả bốn đều không dùng danh hiệu này, nhưng gọi là con cái của họ là thái tử cũng không có gì sai. 
+
+Lời có bóng gió, giọng điệu nhấn nhá châm chọc vào mấy chữ "thái tử", ý tứ rất rõ ràng, một rùa là dựa vào gia thế, còn nhân loại kia thì chỉ là con nuôi, ngay cả họ Kim cũng không được theo
