@@ -206,8 +206,18 @@ Lời có bóng gió, giọng điệu nhấn nhá châm chọc vào mấy chữ 
 
 "Thì ra là Thanh Lôi Ưng - Ưng Kiệt ..." 
 
-Tiểu Ô Quy nhếch mép, làm ra động tác sửa móng tay, cũng không nói nữa.
+Tiểu Ô Quy nhếch mép, làm ra động tác sửa móng tay, cũng không nói nữa. Ưng Kiệt này có điểm kì lạ, chững chạc hơn so với cùng tuổi, lời nói cũng thâm sâu hơn rất nhiều. 
 
 "Tiểu Lạc Vân cái gì cũng tốt, chỉ là chưa bao giờ học qua mấy thứ phàm tục, không chạm vào ngôn từ khiếm nhã, giao phong với kẻ thô lỗ chắc chắn chịu thiệt. Lại thêm Sư Vương bình thường quá mức ôn hoà, làm gì cũng dùng lý lẽ, không dùng lực lượng ép người, nếu không phải lão bất tử nhà Quy gia ta thường ghé qua dạy cho mấy chiêu, không chừng bây giờ đã bị dụ dỗ bắt làm nhân hình đan." 
 
 Nếu là dị thú thế hệ trước, không ai dám khinh thị Sư Vương, càng không ai dám động vào tiểu Lạc Vân; nhưng ấu thú mới lớn chỉ thấy Sư Vương hoà nhã chính trực, luôn làm việc theo lý lẽ, cho nên mới có can đảm làm ra những chuyện như vậy. 
+
+Tiểu Lạc Vân ngước nhìn Ưng Kiệt, bàn tay siết chặt Thiên Hồ Pháp Địch: 
+
+"Khổng Tước Thánh Vũ là có hung đồ tác quái, Thiên Nga a di đang truy tung, các ngươi không cần phải lo. Thiên Nga a di thần thông quản đại, cho dù bị Cấm Pháp Lĩnh Vực bao phủ vẫn có thể dùng được pháp thuật, không bao lâu nữa chắc chắn sẽ tìm được!" 
+
+"Tiểu Thiên Nhi uống Mộc Tâm Hoa Dịch, ăn Mộc Linh Mễ do Khổng Tước Tộc trồng, đương nhiên trên người có linh khí đặc thù của Hoá Độc Linh Quyết. Cổ Lâm có luật, kẻ chưa định tội thì không có tội, huống hồ các ngươi cũng không có quyền bắt người, nếu không thả Tiểu Thiên Nhi ra, ta có thể kiện các ngươi tội bắt cóc!" 
+
+Tiểu Lạc Vân giơ nắm tay nhỏ, nhưng năm tay nhỏ nhỏ trắng trắng hồng hồng, mười phần dễ thương, không phần uy hiếp, đám ấu cầm ở trên trời cao đồng loạt bật cười. 
+
+
