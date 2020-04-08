@@ -194,8 +194,20 @@ Tiểu Đạt Đạt tức giận, con mắt trừng tiểu Ô Quy, khoé mắt 
 
 Điều làm tiểu Ô Quy không ngờ tới chính là Thanh Lôi Ưng này mở miệng nói tiếng người: 
 
-"Đã sớm nghe Quy thái tử đức hạnh vang xa vạn dặm, một bài hịch văn "tưởng nhớ tổ tông" cả Cổ Lâm đều biết, hôm nay mới được gặp mặt. Nhưng mà Khổng Tước Thánh Vũ là thánh vật của điểu tộc, lúc trước là do Viên Hoàng mượn đi, bây giờ Kim thái tử Lạc Vân để đạo tặc trộm mất, chuyện này cũng phải có một câu trả lời. Hơn nữa Đạt Đạt là hoàng trữ của điểu tộc ta, là con ruột của Khổng Tước Đại Vương, khẩn xin Quy thái tử không đặt điều nói xấu." 
+"Đã sớm nghe Quy thái tử đức hạnh vang xa vạn dặm, một bài hịch văn "tưởng nhớ tổ tông" cả Cổ Lâm đều biết, hôm nay mới được gặp mặt. Nhưng mà Khổng Tước Thánh Vũ là thánh vật của điểu tộc, lúc trước là do Viên Hoàng mượn đi, bây giờ Kim thái tử Lạc Vân để đạo tặc trộm mất, chuyện này cũng phải có một câu trả lời." 
+
+"Hơn nữa Đạt Đạt là hoàng trữ của điểu tộc ta, là con ruột duy nhất của Khổng Tước Đại Vương, nào phải là thứ con hoang nhặt ở ngoài đường, huyết mạch rất cao quý, khẩn xin Quy thái tử không đặt điều nói xấu như vậy, lúc chết đi đầu thai còn bị ảnh hưởng tới âm đức." 
+
+"Tiểu hồ điệp này lai lịch bất thường, vốn chỉ là con tiểu trùng, làm sao lại tiến hoá thành dị thú Thiên Linh Điệp. Mẹ ta phát hiện trên người nó có một chút linh khí đặc thù của Hoá Độc Linh Quyết của Khổng Tước Tộc, nghi ngờ nó có liên quan tới việc Khổng Tước Thánh Vũ bị trộm, cần phải đem về tộc dùng bí pháp tra xét." 
 
 Quy thái tử, tự nhiên là tiểu Ô Quy, còn Kim thái tử, tự nhiên là tiểu Lạc Vân, Sư Vương trong thế giới loài người lấy họ Kim. Sư Vương, Ô Lão Quy, Cự Viên, Dong lão trấn bốn phía của Cổ Lâm, đều được dị thú tôn làm Hoàng, tuy cả bốn đều không dùng danh hiệu này, nhưng gọi là con cái của họ là thái tử cũng không có gì sai. 
 
-Lời có bóng gió, giọng điệu nhấn nhá châm chọc vào mấy chữ "thái tử", ý tứ rất rõ ràng, một rùa là dựa vào gia thế, còn nhân loại kia thì chỉ là con nuôi, ngay cả họ Kim cũng không được theo
+Lời có bóng gió, giọng điệu nhấn nhá châm chọc vào mấy chữ "thái tử", ý tứ rất rõ ràng, một rùa là dựa vào gia thế, còn nhân loại kia thì chỉ là con nuôi, ngay cả họ Kim cũng không được theo, không có gì phải nghênh ngang kiêu ngạo. 
+
+"Thì ra là Thanh Lôi Ưng - Ưng Kiệt ..." 
+
+Tiểu Ô Quy nhếch mép, làm ra động tác sửa móng tay, cũng không nói nữa.
+
+"Tiểu Lạc Vân cái gì cũng tốt, chỉ là chưa bao giờ học qua mấy thứ phàm tục, không chạm vào ngôn từ khiếm nhã, giao phong với kẻ thô lỗ chắc chắn chịu thiệt. Lại thêm Sư Vương bình thường quá mức ôn hoà, làm gì cũng dùng lý lẽ, không dùng lực lượng ép người, nếu không phải lão bất tử nhà Quy gia ta thường ghé qua dạy cho mấy chiêu, không chừng bây giờ đã bị dụ dỗ bắt làm nhân hình đan." 
+
+Nếu là dị thú thế hệ trước, không ai dám khinh thị Sư Vương, càng không ai dám động vào tiểu Lạc Vân; nhưng ấu thú mới lớn chỉ thấy Sư Vương hoà nhã chính trực, luôn làm việc theo lý lẽ, cho nên mới có can đảm làm ra những chuyện như vậy. 
