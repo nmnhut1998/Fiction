@@ -226,10 +226,12 @@ Tiểu Lạc Vân ngước nhìn Ưng Kiệt, bàn tay siết chặt Thiên Hồ
 
 Tiểu Lạc Vân giơ nắm tay nhỏ, nhưng năm tay nhỏ nhỏ trắng trắng hồng hồng, mười phần dễ thương, không phần uy hiếp, đám ấu cầm ở trên trời cao đồng loạt bật cười. 
 
-Tiếng cười vang xa, rồi quỷ dị im bặt. Sau đó là tiếng ho khan, tiếng thở dốc đều đều. 
+Tiếng cười vang xa, rồi quỷ dị im bặt. Dưới chân Tiểu Đạt Đạt, một làn khói xanh pha chút tím theo gió tuyết từ từ bay ra. 
 
 Bộp. Bộp. Bộp. 
 
-Không biết là ấu cầm nào dẫn đầu, đột nhiên toàn thân căng cứng, cánh không thể đập, giống như chiếc lá khô rơi xuống nền tuyết dày, lún sâu không thấy được thân hình. 
+Không biết là ấu cầm nào dẫn đầu, đột nhiên toàn thân vô lực, cánh không đập nổi, rơi xuống như sung rụng, lún sâu không thấy được thân hình. Tuyết vốn trắng xóa nên thơ lại bốc lên mùi xú uế khôn cùng, ngay cả gió lớn cũng không làm mùi này nhạt đi.  
 
-Tiểu Ô Quy chậm rì rì bò tới, đào được "Tiểu Kiệt Kiệt" toàn thân thâm tím, phía trên còn có mấy vết lở loét, mùi mắm ruốc đặc thù bao phủ toàn thân
+Tiểu Ô Quy chân trước che mũi, chậm rì rì bò tới, đào được Tiểu Đạt Đạt toàn thân rụng lông, da thịt thâm tím, phía trên còn có mấy vết lở loét. Gỡ móng của Tiểu Đạt Đạt ra, Tiểu Ô Quy đỡ Tiểu Thiên Nhi đang run cầm cầm vì lạnh. 
+
+Một đòn vừa rồi là của Tiểu Thiên Nhi. Dốc một kích toàn lực, toàn thân Tiểu Thiên Nhi khí tức lụi bại, ngay cả hai cánh cũng bị tan rã thành từng mảnh nhỏ, trên thân bướm dính đầy trùng dịch. 
