@@ -235,3 +235,7 @@ Không biết là ấu cầm nào dẫn đầu, đột nhiên toàn thân vô l�
 Tiểu Ô Quy chân trước che mũi, chậm rì rì bò tới, đào được Tiểu Đạt Đạt toàn thân rụng lông, da thịt thâm tím, phía trên còn có mấy vết lở loét. Gỡ móng của Tiểu Đạt Đạt ra, Tiểu Ô Quy đỡ Tiểu Thiên Nhi đang run cầm cầm vì lạnh. 
 
 Một đòn vừa rồi là của Tiểu Thiên Nhi. Dốc một kích toàn lực, toàn thân Tiểu Thiên Nhi khí tức lụi bại, ngay cả hai cánh cũng bị tan rã thành từng mảnh nhỏ, trên thân bướm dính đầy trùng dịch. 
+
+"Tộc huấn dạy không bao giờ sai a ... thủ đoạn bảo mệnh tốt nhất vẫn là độc, nếu muốn sinh tồn, càng nhỏ yếu, càng mong manh thì độc trên người phải càng lợi hại." 
+
+Trên trời cao, Thanh Lôi Ưng dẫn đường đập cánh liên hồi, xung quanh cơ thể hình thành một luồng gió lốc, độc hương không thể xâm nhập. Đây cũng là điểm yếu của điều hương thuật, cần phản thông qua không khí mà lan truyền. Ánh mắt Thanh Lôi Ưng nhìn tiểu Lạc Vân cùng Tiểu Thiên Nhi đã không còn khinh thường. 
