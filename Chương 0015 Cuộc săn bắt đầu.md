@@ -74,11 +74,11 @@ Một đạo lôi điện phóng ra, cũng khắc một ấn kí trên trán Ti�
 
 "Tiến vào Lôi Vực ngoài ấn kí bảo hộ, cũng phải luyện hoá một đầu hung thú, thu hoạch hỗn độn chi tinh làm nguồn năng lượng ..." 
 
-Ánh mắt của Thanh Lôi Ưng rơi vào người Tiểu Lạc Vân. Vóc người tiểu Lạc Vân nhỏ hơn đa số ấu cầm, sức lực cũng không bằng. Nhưng thân hình nhỏ nhắn đó tốc độ lại không chậm, bàn tay trắng trắng hồng hồng đặt ở chỗ nào, tuyết ở chỗ đó liền tan ra thành nước, sau đó có khói tím bốc lên, bị hút vào trong tay áo. 
+Ánh mắt của Thanh Lôi Ưng rơi vào người Tiểu Lạc Vân. Vóc người tiểu Lạc Vân nhỏ hơn đa số ấu cầm, sức lực cũng không bằng. Nhưng thân hình nhỏ nhắn đó tốc độ lại không chậm, bàn tay trắng trắng hồng hồng đặt ở chỗ nào, tuyết ở chỗ đó liền tan ra thành nước. Ống tay áo quét qua, chất độc hoá thành khói tím bốc lên, bị hút vào trong tay áo. 
 
-Ấu cầm nằm trong hố tuyết, hai mắt nhìn tiểu Lạc Vân giống như hai hòn lửa. Trên người tiểu Lạc Vân có mùi vị mà bất cứ dị thú nào cũng thèm muốn, nhưng lại càng có một chút gì đó, dù nhỏ nhoi khó thấy, nhưng uy nghiêm như đế hoàng, thánh thiện như thiên thần, không ai dám mạo phạm. Chúng bị trúng độc hương, toàn thân vô lực cần phải ăn uống phục hồi, dù muốn mổ cho tiểu Lạc Vân một cái cũng không có sức lực. Đồng thời, lúc độc lực bị rút ra, chúng cảm thấy chân khí trong cơ thể tuy trống rỗng, nhưng khả năng dung nạp chân khí lại tăng thêm một chút. 
+Ấu cầm nằm trong hố tuyết, hai mắt nhìn tiểu Lạc Vân giống như hai hòn lửa. Trên người tiểu Lạc Vân có mùi vị mà bất cứ dị thú nào cũng thèm muốn, nhưng lại càng có một chút gì đó, dù nhỏ nhoi khó thấy, nhưng uy nghiêm như đế hoàng, thánh thiện như thiên thần, không ai dám mạo phạm. Chúng bị trúng độc hương, lông vũ trên người rụng ít nhất một nửa, toàn thân vô lực cần phải ăn uống phục hồi, dù muốn mổ cho tiểu Lạc Vân một cái cũng không có sức lực. Đồng thời, lúc độc lực bị rút ra, chúng cảm thấy chân khí trong cơ thể tuy trống rỗng, nhưng khả năng dung nạp chân khí lại tăng thêm một chút. 
 
-Sư Vương trước nay đều ít khi cho tiểu Lạc Vân tiếp xúc dị thú, trong lòng Thanh Lôi Ưng tiểu Lạc Vân có lẽ chỉ sánh ngang với Tiểu Kiệt nhà mình. Nhưng hiện tại, Thanh Lôi Ưng đã thay đổi ý nghĩ. 
+Sư Vương trước nay đều ít khi cho tiểu Lạc Vân tiếp xúc dị thú, trong lòng Thanh Lôi Ưng tiểu Lạc Vân có lẽ chỉ sánh ngang với A Kiệt nhà mình. Nhưng hiện tại, Thanh Lôi Ưng đã thay đổi ý nghĩ. 
 
 Con người, mạnh nhất không bao giờ là vũ lực. 
 
@@ -90,8 +90,7 @@ Vô hình trung, tiểu Lạc Vân không còn bé nhỏ nhu nhược nữa, mà
 
 "Thanh Ưng bá mẫu, toàn bộ độc đã được giải." 
 
-Giọng của tiểu Lạc Vân không lớn, chỉ vừa đủ nghe, khi nói cũng không hành lễ trưởng bối, nhưng nét mặt có phần mỏi mệt vì lao lực làm Thanh Lôi Ưng không nỡ tức giận. 
+Giọng của tiểu Lạc Vân không lớn, chỉ vừa đủ nghe, khi nói cũng không hành lễ trưởng bối, nhưng nét mặt có phần mỏi mệt vì lao lực làm Thanh Lôi Ưng không thể tức giận. 
 
-
-
+Tiểu Ô Quy thầm hô lợi hại. Tiểu Lạc Vân không biết là vô tình hay cố ý, việc ác không đích thân làm, việc thiện thì nhanh chân làm trước, công phu "hai mặt" của Viên thúc thúc đã học được mấy phần. 
 
