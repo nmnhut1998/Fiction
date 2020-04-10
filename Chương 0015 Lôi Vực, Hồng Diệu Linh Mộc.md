@@ -58,23 +58,23 @@ Bàn về nghiên cứu huyết mạch, có lẽ trên Thiên Dư Đại Lục c
 
 Lần này là một luồng lôi điện bao phủ toàn bộ phi cầm, để lại trên trán một đạo ấn kí, phàm là lôi điện khi tiếp xúc trong vòng ba thước đều bị đẩy ra ngoài. Ấn kí tạo cho bọn chúng một Cách Lôi Lĩnh Vực tạm thời. 
 
-Tiểu Ô Quy nguýt dài, xoay người, hướng đuôi rùa về phía Đạt Đạt, liên tục chỉ thẳng lên trời ba lần. Điểu tộc đây là thực hiện một màn tự biên tự diễn, cái gì mà cần câu trả lời. Sư Vương đã sớm liên lạc với họ, náo loạn một hồi chẳng qua vì ghen ghét với Tiểu Lạc Vân. 
+Tiểu Ô Quy nguýt dài, xoay người, hướng đuôi rùa về phía Đạt Đạt, liên tục chỉ thẳng lên trời ba lần khinh miệt. Điểu tộc đây là thực hiện một màn tự biên tự diễn, cái gì mà cần câu trả lời. Sư Vương đã sớm liên lạc với họ, náo loạn một hồi chẳng qua vì ghen ghét với Tiểu Lạc Vân. 
 
 Vẻ mặt của đám phi cầm đều không được tự nhiên, càng không dám phách lối như lúc đầu. 
 
 Thanh âm của Sư Vương trên bầu trời vẫn tiếp tục: 
 
-"Lôi Vực là do ta mở ra, nhưng chính là lôi điện chi lực giữa trời đất tụ lại một chỗ mà thành, gần giống như là thiên kiếp, không nằm trong sự kiểm soát của ta, chỉ có thể dùng một số biện pháp gián tiếp làm suy yếu hoặc tăng cường Lôi Vực, hoặc rút ra một chút lực lượng của nó để Sử dụng. Nếu tiến vào Lôi vực thì không được sinh lòng tham, chỉ được hoạt động ở khu vực ngoài, sống chết đều do thực lực và tâm trí quyết định." 
+"Lôi Vực là do ta mở ra, nhưng là do lôi điện chi lực giữa trời đất tụ lại một chỗ mà thành, gần giống như thiên kiếp, không nằm trong sự kiểm soát của ta, chỉ có thể dùng một số biện pháp gián tiếp làm suy yếu hoặc tăng cường Lôi Vực, hoặc rút ra một chút lực lượng của nó để Sử dụng. Nếu tiến vào Lôi vực thì không được sinh lòng tham, chỉ được hoạt động ở khu vực ngoài, sống chết đều do thực lực và tâm trí quyết định." 
 
 Đột nhiên thanh âm dừng một chút, như là trầm ngâm suy nghĩ: 
 
-"Tiểu Ô Ô, vừa rồi cha con có truyền âm, Hồng Diệu Linh Mộc có tác dụng lớn nhất đối với con, cố gắng thu thập càng nhiều càng tốt. Còn nữa, lời nói tốt nhất nên chừa lại ba phần khẩu đức." 
+"Tiểu Ô Ô, vừa rồi Quy Vương có truyền âm, Hồng Diệu Linh Mộc có tác dụng lớn nhất đối với con, cố gắng thu thập càng nhiều càng tốt. Còn nữa, lời nói tốt nhất nên chừa lại ba phần khẩu đức. Ở trong Lôi Vực, lời nói phải cẩn thận, nếu không sẽ bị Vạn Thú Chiến Linh giáng xuống lôi phạt." 
 
-Một đạo lôi điện phóng ra, cũng khắc một ấn kí trên trán Tiểu Ô Quy. Dường như đã tiêu hao hết lực lượng, cuộn giấy bạc kia chui vào ống tên của tiểu Lạc Vân, biến thành một cuộn giấy bình thường giắt ở trong đó, mà âm thanh cũng nhỏ dần rồi tiêu tán: 
+Một đạo lôi điện phóng ra, cũng khắc một ấn kí trên trán Tiểu Ô Quy. Dường như đã tiêu hao hết lực lượng, cuộn giấy bạc kia chui vào ống đựng tên của tiểu Lạc Vân, biến thành một cuộn giấy bình thường giắt ở trong đó, mà âm thanh cũng nhỏ dần rồi tiêu tán: 
 
 "Tiến vào Lôi Vực ngoài ấn kí bảo hộ, cũng phải luyện hoá một đầu hung thú, thu hoạch hỗn độn chi tinh làm nguồn năng lượng ..." 
 
-Ánh mắt của Thanh Lôi Ưng rơi vào người Tiểu Lạc Vân. Vóc người tiểu Lạc Vân nhỏ hơn đa số ấu cầm, sức lực cũng không bằng. Nhưng thân hình nhỏ nhắn đó tốc độ lại không chậm, bàn tay trắng trắng hồng hồng đặt ở chỗ nào, tuyết ở chỗ đó liền tan ra thành nước. Ống tay áo quét qua, chất độc hoá thành khói tím bốc lên, bị hút vào trong tay áo. 
+Ánh mắt trầm tư của Thanh Lôi Ưng rơi vào người Tiểu Lạc Vân. Vóc người tiểu Lạc Vân nhỏ hơn đa số ấu cầm, sức lực cũng không bằng. Nhưng thân hình nhỏ nhắn đó tốc độ lại không chậm, bàn tay trắng trắng hồng hồng đặt ở chỗ nào, tuyết ở chỗ đó liền tan ra thành nước. Ống tay áo quét qua, chất độc hoá thành khói tím bốc lên, bị hút vào trong tay áo. 
 
 Ấu cầm nằm trong hố tuyết, hai mắt nhìn tiểu Lạc Vân giống như hai hòn lửa. Trên người tiểu Lạc Vân có mùi vị mà bất cứ dị thú nào cũng thèm muốn, nhưng lại càng có một chút gì đó, dù nhỏ nhoi khó thấy, nhưng uy nghiêm như đế hoàng, thánh thiện như thiên thần, không ai dám mạo phạm. Chúng bị trúng độc hương, lông vũ trên người rụng ít nhất một nửa, toàn thân vô lực cần phải ăn uống phục hồi, dù muốn mổ cho tiểu Lạc Vân một cái cũng không có sức lực. Đồng thời, lúc độc lực bị rút ra, chúng cảm thấy chân khí trong cơ thể tuy trống rỗng, nhưng khả năng dung nạp chân khí lại tăng thêm một chút. 
 
