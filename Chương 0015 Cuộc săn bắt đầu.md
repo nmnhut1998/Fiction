@@ -56,15 +56,19 @@ Bàn về nghiên cứu huyết mạch, có lẽ trên Thiên Dư Đại Lục c
 
 "Vì đền bù cho điểu tộc bị thất lạc Khổng Tước Thánh Linh, đặc biệt cho điểu tộc toàn bộ ấu cầm có thể tiến vào Lôi Vực thu hoạch Hồng Diệu Linh Mộc. Tin tưởng chỉ cần có Hồng Diệu Linh Mộc, sau mấy chục năm nữa Khổng Tước tộc sẽ có được nhân tài tu luyện ra Khổng Tước Thánh Vũ." 
 
-Lần này là một luồng lôi điện bao phủ toàn bộ phi cầm, để lại trên trán một đạo ấn kí, phàm là lôi điện khi tiếp xúc trong vòng ba thước đều bị đẩy sang một bên. 
+Lần này là một luồng lôi điện bao phủ toàn bộ phi cầm, để lại trên trán một đạo ấn kí, phàm là lôi điện khi tiếp xúc trong vòng ba thước đều bị đẩy ra ngoài. Ấn kí tạo cho bọn chúng một Cách Lôi Lĩnh Vực tạm thời. 
 
-Rõ ràng, điểu tộc thực hiện một màn tự biên tự diễn, cái gì mà cần câu trả lời. Sư Vương đã sớm liên lạc với họ. Vẻ mặt của đám phi cầm đều không được tự nhiên, càng không dám phách lối như lúc đầu. 
+Tiểu Ô Quy nguýt dài, xoay người, hướng đuôi rùa về phía Đạt Đạt, liên tục chỉ thẳng lên trời ba lần. Điểu tộc đây là thực hiện một màn tự biên tự diễn, cái gì mà cần câu trả lời. Sư Vương đã sớm liên lạc với họ, náo loạn một hồi chẳng qua vì ghen ghét với Tiểu Lạc Vân. 
+
+Vẻ mặt của đám phi cầm đều không được tự nhiên, càng không dám phách lối như lúc đầu. 
+
+Thanh âm của Sư Vương trên bầu trời vẫn tiếp tục: 
 
 "Lôi Vực là do ta mở ra, nhưng chính là lôi điện chi lực giữa trời đất tụ lại một chỗ mà thành, gần giống như là thiên kiếp, không nằm trong sự kiểm soát của ta, chỉ có thể dùng một số biện pháp gián tiếp làm suy yếu hoặc tăng cường Lôi Vực, hoặc rút ra một chút lực lượng của nó để Sử dụng. Nếu tiến vào Lôi vực thì không được sinh lòng tham, chỉ được hoạt động ở khu vực ngoài, sống chết đều do thực lực và tâm trí quyết định." 
 
-Đột nhiên thanh âm dừng một chút, sau đó tiếp tục: 
+Đột nhiên thanh âm dừng một chút, như là trầm ngâm suy nghĩ: 
 
-"Tiểu Ô Ô, vừa rồi cha con có truyền âm, Hồng Diệu Linh Mộc có tác dụng lớn nhất đối với con, con cố gắng thu thập càng nhiều càng tốt."
+"Tiểu Ô Ô, vừa rồi cha con có truyền âm, Hồng Diệu Linh Mộc có tác dụng lớn nhất đối với con, cố gắng thu thập càng nhiều càng tốt. Còn nữa, lời nói tốt nhất nên chừa lại ba phần khẩu đức." 
 
 Một đạo lôi điện phóng ra, cũng khắc một ấn kí trên trán Tiểu Ô Quy. Dường như đã tiêu hao hết lực lượng, cuộn giấy bạc kia chui vào ống tên của tiểu Lạc Vân, biến thành một cuộn giấy bình thường giắt ở trong đó, mà âm thanh cũng nhỏ dần rồi tiêu tán: 
 
