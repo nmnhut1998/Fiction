@@ -64,4 +64,7 @@ Một đạo lôi điện phóng ra, khắc ấn kí trên trán Tiểu Ô Quy. 
 
 "Tiến vào Lôi Vực ngoài ấn kí bảo hộ, cũng phải luyện hoá một đầu hung thú, thu hoạch hỗn độn chi tinh làm nguồn năng lượng ..." 
 
-Lời này vừa ra, trong đám ấu cầm lại có tiếng phản đối. 
+Ánh mắt của Thanh Lôi Ưng rơi vào người Tiểu Lạc Vân. Vóc người tiểu Lạc Vân nhỏ hơn đa số ấu cầm, sức lực cũng không bằng. Nhưng thân hình nhỏ nhắn đó tốc độ lại không chậm, bàn tay trắng trắng hồng hồng đặt ở chỗ nào, tuyết ở chỗ đó liền tan ra thành nước, sau đó có khói tím bốc lên, bị hút vào trong tay áo. 
+
+Ấu cầm nằm trong hố tuyết, hai mắt nhìn tiểu Lạc Vân giống như hai hòn lửa. Trên người tiểu Lạc Vân có mùi vị mà bất cứ dị thú nào cũng thèm muốn, nhưng lại càng có một chút gì đó, dù nhỏ nhoi khó thấy, nhưng uy nghiêm như đế hoàng, thánh thiện như thiên thần, không ai dám mạo phạm. Chúng bị trúng độc hương, toàn thân vô lực cần phải ăn uống phục hồi, dù muốn mổ cho tiểu Lạc Vân một cái cũng không có sức lực. Đồng thời, lúc độc lực bị rút ra, chúng cảm thấy chân khí trong cơ thể tuy trống rỗng, nhưng giới hạn dung nạp chân khí lại tăng thêm một chút, cảm giác thù địch đối với tiểu Lạc Vân tạm thời giảm xuống. 
+
