@@ -90,7 +90,7 @@ Vô hình trung, tiểu Lạc Vân không còn bé nhỏ nhu nhược nữa, mà
 
 "Thanh Ưng bá mẫu, toàn bộ độc đã được giải." 
 
-Giọng của tiểu Lạc Vân không lớn, chỉ vừa đủ nghe, khi nói cũng không hành lễ trưởng bối, nhưng nét mặt có phần mỏi mệt vì lao lực làm Thanh Lôi Ưng không thể tức giận. 
+Giọng của tiểu Lạc Vân không lớn, chỉ vừa đủ nghe, khi nói cũng không hành lễ trưởng bối, nhưng nét mặt có phần mỏi mệt vì lao lực làm Thanh Lôi Ưng không thể tức giận, chỉ có thể gật đầu một cái, hạ lệnh toàn bộ tập trung nghỉ ngơi dưỡng sức.  
 
 Tiểu Ô Quy thầm hô lợi hại. Tiểu Lạc Vân không biết là vô tình hay cố ý, việc ác không đích thân làm, việc thiện thì nhanh chân làm trước, công phu "hai mặt" của Viên thúc thúc đã học được mấy phần. 
 
