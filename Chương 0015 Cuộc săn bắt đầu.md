@@ -2,17 +2,19 @@ Chương 15: Cuộc săn bắt đầu
 
 Tiểu Ô Quy nhếch mép, làm ra động tác bịt mũi kinh tởm, chân trước vẫy vẫy trước mặt xua đi mùi hôi. 
 
-Ưng Kiệt này có điểm kì lạ, chững chạc hơn so với cùng tuổi, lời nói cũng thâm sâu hơn rất nhiều. Trên vết thương của Tiểu Thiên Nhi, có chút ít do hung thú gây ra, nhưng rõ ràng nhất là hai vết thủng trên cánh do bị mỏ chim mổ vào, mà Tiểu Kiệt Kiệt ngày toàn thân một mùi mắm ruốc xoài xanh ngấm sâu vào từng sợi lông, hiển nhiên lúc trước đã giao đấu với Tiểu Thiên Nhi. 
+Ưng Kiệt này có điểm kì lạ, chững chạc hơn so với cùng tuổi, lời nói cũng thâm sâu hơn rất nhiều. Trên vết thương của Tiểu Thiên Nhi, có chút ít do hung thú gây ra, nhưng rõ ràng nhất là hai vết thủng trên cánh do bị mỏ chim mổ vào, mà A Kiệt ngày toàn thân một mùi mắm ruốc xoài xanh ngấm sâu vào từng sợi lông, hiển nhiên lúc trước đã giao đấu với Tiểu Thiên Nhi. 
 
-Tiểu Ô Quy lúc ở nhà bị cha mẹ dạy dỗ, cứ mười lần sẽ có chín lần "Con mở mắt ra mà nhìn Tiểu Kiệt Kiệt nhà người ta, lễ độ khuôn phép, ý chí kiên định, tâm cơ cẩn thận ..." 
+Tiểu Ô Quy lúc ở nhà bị cha mẹ dạy dỗ, cứ mười lần sẽ có chín lần "Con mở mắt ra mà nhìn A Kiệt nhà người ta, lễ độ khuôn phép, ý chí kiên định, tâm cơ cẩn thận ..." 
 
-Nghĩ tới đây, tiểu Ô Quy lại sôi máu, muốn mượn tay tiểu Lạc Vân "chăm sóc" Tiểu Kiệt Kiệt này một lần cho bỏ tức. 
+Nghĩ tới đây, tiểu Ô Quy lại sôi máu, muốn mượn tay tiểu Lạc Vân "chăm sóc" A Kiệt này một lần cho bỏ tức. 
 
 "Tiểu Lạc Vân cái gì cũng tốt, chỉ là chưa bao giờ học qua mấy thứ phàm tục, không chạm vào ngôn từ khiếm nhã, giao phong với kẻ thô lỗ chắc chắn chịu thiệt. Lại thêm Sư Vương bình thường quá mức ôn hoà, làm gì cũng dùng lý lẽ, không dùng lực lượng ép người, càng không dùng âm mưu quỷ kế ..." 
 
 Nếu là dị thú thế hệ trước, không ai dám khinh thị Sư Vương, càng không ai dám động vào tiểu Lạc Vân; nhưng ấu thú mới lớn chỉ thấy Sư Vương hoà nhã chính trực, luôn làm việc theo lý lẽ, cho nên mới có can đảm làm ra những chuyện như vậy. 
 
-Tiểu Lạc Vân ngước nhìn Ưng Kiệt, bàn tay siết chặt Thiên Hồ Pháp Địch chỉ lên trời, tiếng nói như là gào thét mới không bị : 
+Nghĩ tới đây, tiểu Ô Quy lắc đuôi rùa mấy cái thật mạnh, lẩm nhẩm cái gì trong miệng, khẩu hình biến đổi cũng rất chậm, hơn nữa là dùng Hồ Điệp Chi Ngữ. 
+
+Tiểu Lạc Vân ngước nhìn Ưng Kiệt, bàn tay siết chặt Thiên Hồ Pháp Địch chỉ lên trời, tiếng nói như là gào thét mới không bị gió to át đi: 
 
 "Khổng Tước Thánh Vũ bị mất là có hung đồ tác quái, Thiên Nga a di đang truy tung, các ngươi không cần phải lo. Thiên Nga a di thần thông quản đại, cho dù bị Cấm Pháp Lĩnh Vực bao phủ vẫn có thể dùng được pháp thuật, không bao lâu nữa chắc chắn sẽ tìm được!" 
 
@@ -24,7 +26,7 @@ Tiếng cười vang xa, rồi quỷ dị im bặt. Dưới chân Tiểu Đạt 
 
 Bộp. Bộp. Bộp. 
 
-Không biết là ấu cầm nào dẫn đầu, đột nhiên toàn thân vô lực, cánh không đập nổi, rơi xuống như sung rụng, lún sâu không thấy được thân hình. Tuyết vốn trắng xóa nên thơ lại bốc lên mùi xú uế khôn cùng, ngay cả gió lớn cũng không làm mùi này nhạt đi.  
+Không biết là ấu cầm nào phát bệnh đầu tiên, đột nhiên toàn thân vô lực, cánh không đập nổi, rơi xuống như sung rụng, lún sâu không thấy được thân hình. Tuyết vốn trắng xóa nên thơ lại bốc lên mùi xú uế khôn cùng, ngay cả gió lớn cũng không làm mùi này nhạt đi.  
 
 Tiểu Ô Quy chân trước che mũi, chậm rì rì bò tới, đào được Tiểu Đạt Đạt toàn thân rụng lông, da thịt thâm tím, phía trên còn có mấy vết lở loét. Gỡ móng của Tiểu Đạt Đạt ra, Tiểu Ô Quy đỡ Tiểu Thiên Nhi đang run cầm cầm vì lạnh. 
 

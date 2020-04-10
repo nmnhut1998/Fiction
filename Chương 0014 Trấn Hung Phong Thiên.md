@@ -102,6 +102,8 @@ Mỗi phi cầm bị đánh trúng, trên cơ thể đều có một làn khói 
 
 Một màn này làm cho tiểu Ô Quy sợ hết hồn. Ở chỗ này, tiểu Lạc Vân có thể mượn lực của bia Trấn Hung Phong Thiên! 
 
+Sau lưng, mấy chữ "Cấm tranh đấu" cũng hiện ra, trong mắt người ngoài đây không phải là "Không được tấn công tiểu Lạc Vân nhỏ yếu" mà là "Đừng lo, ở chỗ này tiểu Lạc Vân sẽ nhẹ nhàng không làm tổn thương các ngươi!". 
+
 Tiểu Ô Quy lập tức nhớ tới một chuyện xưa. 
 
 Năm đó Sư Vương lúc vào Cổ Lâm chỉ là một man thú, so với tiểu Ô Quy còn kém hơn. Nhưng Sư Vương huyết mạch dị biến, tu luyện không theo lẽ thường, một thân lôi thuật thần thông huyền diệu vô cùng. Lúc đó vì huyết mạch dị biến của Sư Vương đã hấp dẫn Hấp Huyết Hắc Hoả Hung Hoè ẩn thân mấy ngàn năm ở dưới lòng đất. 
@@ -114,17 +116,17 @@ Loại hung thú khó chơi như vậy, cuối cùng bị Sư Vương cùng vớ
 
 Cuối cùng Vạn Thú Chiến Linh dùng Lôi Vực bao phủ Hấp Huyết Hắc Hoả Hung Hoè, biến thành một bức hoạ đồ, bay vào trong lôi vân ở tầng trời cao của Cổ Lâm. Lôi Vân luôn di động, nhưng Lôi Vực kia lại có cách định vị và tiến vào. Sư Vương đúc hai tấm bia đá, một tấm cố định ở chỗ Dong lão, một tấm luôn di động theo lôi vân, mà lúc bia đá xuất hiện trên mặt đất, cũng ý nghĩa Lôi Vực có thể tiến vào thu hoạch bảo vật. 
 
-Hung thú như Hấp Huyết Hắc Hoả Hung Hoè mang song hệ mộc hoả, trái ngược với hung thú thuần tuý chỉ dựa vào bản năng và man lực, nó có pháp thuật hết sức cao minh. Những sinh vật như vậy một thân toàn là bảo vật, hơn nữa sở hữu năng lực độc nhất vô nhị. Ví dụ như dùng nhựa cây của Hấp Huyết Hắc Hoả Hung Hoè có tỉ lệ khoảng chừng hai phần mười làm cho hai loại huyết mạch khác loài xảy ra biến dị mà dung hợp. 
+Hung thú như Hấp Huyết Hắc Hoả Hung Hoè mang song hệ mộc hoả, trái ngược với hung thú thuần tuý chỉ dựa vào bản năng và man lực, nó có pháp thuật cao thâm. Những sinh vật như vậy một thân toàn là bảo vật, hơn nữa sở hữu năng lực độc nhất vô nhị. Ví dụ như dùng nhựa cây của Hấp Huyết Hắc Hoả Hung Hoè có tỉ lệ khoảng chừng hai phần mười làm cho hai loại huyết mạch khác loài xảy ra biến dị mà dung hợp. 
 
 Sư Vương đúng là Sư Vương, dám để tiểu Lạc Vân ra đường một mình, thủ đoạn bảo mệnh mang theo đúng là tầng tầng lớp lớp, thật không ngờ Vạn Thú Đồ hiện tại vẫn do Sư Vương chưởng khống, hơn nữa tiểu Lạc Vân còn có thể lợi dụng một phần. 
 
-Cũng chỉ tiểu Lạc Vân cơ thể đặc thù như vậy mới có thể chịu tải được lôi đình chi lực cường đại như vậy, chỉ một lần quét qua đã có thể bức ra hung lệ chi khí ẩn giấu bên trong cơ thể đám phi cầm. 
+Cũng chỉ tiểu Lạc Vân cơ thể đặc thù như vậy mới có thể chịu tải được lôi đình chi lực cường đại như vậy, một lần quét qua đã có thể ép hung lệ chi khí ẩn giấu bên trong cơ thể đám phi cầm bay ra ngoài. 
 
 Đồng thời, tiểu Ô Quy đột nhiên nghĩ tới một vấn đề. 
 
 Pháp thuật không thể rời thân thể, nhưng mà pháp bảo có thể sử dụng! Lẽ nào, Cấm Pháp Lĩnh Vực chỉ có tác dụng lên vật sống? 
 
-Khoé miệng tiểu Ô Quy cong lên, Quy gia tại sao không nghĩ tới sớm hơn. Rõ ràng Cấm Pháp Lĩnh Vực tác động đối với từng dị thú có ảnh hưởng khác nhau. 
+Tiểu Ô Quy vỗ đầu liên tục mấy cái. Quy gia tại sao không nghĩ tới sớm hơn. Rõ ràng Cấm Pháp Lĩnh Vực tác động đối với từng dị thú có ảnh hưởng khác nhau. 
 
 Thanh Lôi Ưng kia toàn thân pháp lực đều bị áp chế, không thể vận dụng linh khí li thể, ngay cả một tia lôi điện cũng không thể phát ra. Thiên Nga dùng toàn bộ sức lực lại có thể bức ra một đạo Thất Thải Chi Quang dùng để trị thương. 
 
@@ -134,7 +136,7 @@ Mà Tiểu Lạc Vân thì vốn dĩ không có pháp lực, nhưng cũng không
 
 Đây là độc! Cấm Pháp Lĩnh Vực là thả ra một loại độc vô hình vô vị, bao trùm cả Cổ Lâm, mà thực lực càng cường đại, nhận áp chế càng lớn! Xem ra là một loại độc có thể tương tác với linh khí trong cơ thể, linh khí càng nhiều độc tính càng dễ xâm nhập. 
 
-Đúng nga! Quy gia vốn là có thể kháng độc từ nhỏ, mà tiểu Lạc Vân kia ngay cả bản mệnh độc của mẫu thân đại nhân cũng không có tác dụng. 
+Đúng! Quy gia vốn là có thể kháng độc từ nhỏ, mà tiểu Lạc Vân kia ngay cả bản mệnh độc của mẫu thân đại nhân cũng không có tác dụng. 
 
 Cứ nhìn Thiên Linh Điệp kia, so với Quy gia càng yếu hơn, trong cơ thể chỉ có một tia linh khí mỏng manh miễn cưỡng được xem là linh thú, thậm chí dù vì có linh khí nên được coi là linh thú nhưng thật ra cũng cũng chỉ tính là nửa dị thú, cho nên lượng pháp thuật có thể sử dụng lại càng nhiều. 
 
@@ -142,11 +144,11 @@ Hơn nữa, Thiên Linh Điệp dường như có khả năng hấp độc sinh 
 
 "Xem ra, Quy gia cần phải cẩn thận một chút, nếu coi thường tiểu Lạc Vân thì ngay cả cháo rùa cũng không có mà húp ..." 
 
-Ngân lôi nổ đôm đốp trên người đám phi cầm, máu trong cơ thể như chạy ngược, chỉ một chốc đã giảm xuống, mất đi một phần ba. 
+Ngân lôi nổ đôm đốp trên người đám phi cầm, máu trong cơ thể như chạy ngược rồi sôi trào, phút chốc đã mất đi một phần ba. 
 
 Thanh Lôi Ưng dẫn đường kêu lên mấy tiếng “Các, các!” biểu thị cảm ơn, nhưng phần đông đám ấu cầm còn lại đều trừng mắt nhìn tiểu Lạc Vân.
 
-Thanh Lôi Ưng là giống loài kiêu ngạo, trong truyền thuyết vốn là Thái Thanh Thần Ưng vì coi thường cả trời nên bị thiên đạo phong ấn huyết mạch chi lực mà thoái hoá thành Thanh Lôi Ưng, tự nhiên cũng không nói ngôn ngữ con người, đối mặt tiểu Lạc Vân càng muốn tiểu Lạc Vân dùng Ưng tộc thú ngữ. Có Thanh Lôi Ưng dẫn đầu, đám ấu cầm càng không chủ động giao tiếp với tiểu Lạc Vân
+Thanh Lôi Ưng là giống loài kiêu ngạo, trong truyền thuyết vốn là Thái Thanh Thần Ưng vì coi thường cả trời nên bị thiên đạo phong ấn huyết mạch chi lực mà thoái hoá thành Thanh Lôi Ưng, tự nhiên cũng không nói ngôn ngữ con người, đối mặt tiểu Lạc Vân càng muốn tiểu Lạc Vân dùng Ưng tộc thú ngữ. Có Thanh Lôi Ưng dẫn đầu, đám ấu cầm càng không chủ động giao tiếp với tiểu Lạc Vân. 
 
 Một đàn phi cầm dàn trận trên bầu trời không đáp xuống. 
 
@@ -162,13 +164,13 @@ Tiếng chim trầm thấp mà dứt khoát, từ trong hàng ngũ ấu cầm ba
 
 "Thả Tiểu Thiên Nhi ra!" 
 
-Tiểu Lạc Vân cầm trong tay Thiên Hồ Pháp Địch, nâng cao lên ngang tầm môi. Chỉ cần một hơi nhẹ nhàng thổi, mượn lực lương của bia Trấn Hung Phong Thiên, âm ba có thể chấn ngất xỉu ba phần ấu cầm ở đây. 
+Tiểu Lạc Vân cầm trong tay Thiên Hồ Pháp Địch, nâng cao lên ngang tầm môi, rồi không biết suy nghĩ như thế nào, hóp bụng thở mạnh một hơi, Pháp Địch lại hạ xuống. Kỳ thực, chỉ cần một hơi nhẹ nhàng thổi, mượn lực lương của bia Trấn Hung Phong Thiên, âm ba có thể chấn ngất xỉu ba phần ấu cầm ở đây. 
 
 "Kworkkk ... kwork!" 
 
 Ý tứ rất rõ ràng, ta sẽ không nói tiếng nhân loại với ngươi. 
 
-Tiểu Ô Quy ở một bên xem kịch, hai mắt đảo loạn một vòng, khoé miệng nhếch lên, bước lên phía trước một bước, cũng không thèm nhìn, móng rùa vẽ vẽ trên mặt đất, giọng nói ngược lại rất lớn: 
+Tiểu Ô Quy ở một bên xem kịch, hai mắt đảo loạn một vòng, đuôi rùa lúc lắc, bước lên phía trước một bước, cũng không thèm nhìn, móng rùa vẽ vẽ trên mặt đất, giọng nói ngược lại rất lớn: 
 
 "Quy gia còn tưởng là ai, hoá ra là Đĩnh Đạc Điểu đại danh đỉnh đỉnh Tiểu Đạt Đạt!" 
 
@@ -186,7 +188,7 @@ Tiểu Đạt Đạt tức giận trừng mắt lắc đầu, kêu lên mấy ti
 
 "Kwork!!!!!!!" 
 
-"A? Không cần, cái gì mà trăm vạn linh thạch cực phẩm, ba mươi rùa cái theo hầu, tám trăm tờ giấy Ngũ sắc đổi lấy một đêm cùng Quy gia? Quy gia nhìn vậy nhưng mà là người đứng đắn, à không, Rùa đứng đắn. Đối với Quy gia vật chất chỉ là phù du." 
+"A? Không cần, cái gì mà trăm vạn linh thạch cực phẩm, ba mươi rùa cái theo hầu, tám trăm tờ giấy Ngũ sắc chỉ để đổi lấy một đêm cùng Quy gia? Quy gia nhìn vậy nhưng mà là người đứng đắn, à không, Rùa đứng đắn. Đối với Quy gia vật chất chỉ là phù du." 
 
 Tiểu Đạt Đạt tức giận, con mắt trừng tiểu Ô Quy, khoé mắt căng ra, tiến tới thì không chiếm lí, dễ bị tên vô sỉ này mượn cớ tự vệ tấn công, lùi về thì rõ ràng mất đi khí thế. 
 
@@ -194,7 +196,7 @@ Tiểu Đạt Đạt tức giận, con mắt trừng tiểu Ô Quy, khoé mắt 
 
 Điều làm tiểu Ô Quy không ngờ tới chính là Thanh Lôi Ưng này mở miệng nói tiếng người: 
 
-"Đã sớm nghe Quy thái tử đức hạnh vang xa vạn dặm, một bài hịch văn "tưởng nhớ tổ tông" cả Cổ Lâm đều biết, hôm nay mới được gặp mặt. Nhưng mà Khổng Tước Thánh Vũ là thánh vật của điểu tộc, lúc trước là do Viên Hoàng mượn đi, bây giờ Kim thái tử Lạc Vân để đạo tặc trộm mất, chuyện này cũng phải có một câu trả lời." 
+"Đã sớm nghe Quy thái tử đức hạnh vang xa vạn dặm, một bài hịch văn "tưởng nhớ tổ tông" cả Cổ Lâm đều biết, hôm nay mới được gặp mặt. Nhưng mà Khổng Tước Thánh Vũ là thánh vật của điểu tộc, lúc trước là do Viên Hoàng mượn đi, bây giờ Kim thái tử Lạc Vân để đạo tặc trộm mất, chuyện này cũng phải có một câu trả lời thoả đáng." 
 
 "Hơn nữa Đạt Đạt là hoàng trữ của điểu tộc ta, là con ruột duy nhất của Khổng Tước Đại Vương, nào phải là thứ con hoang nhặt ở ngoài đường, huyết mạch rất cao quý, khẩn xin Quy thái tử không đặt điều nói xấu như vậy, lúc chết đi đầu thai còn bị ảnh hưởng tới âm đức." 
 
@@ -204,4 +206,4 @@ Quy thái tử, tự nhiên là tiểu Ô Quy, còn Kim thái tử, tự nhiên 
 
 Lời có bóng gió, giọng điệu nhấn nhá châm chọc vào mấy chữ "thái tử", ý tứ rất rõ ràng, một rùa là dựa vào gia thế, còn nhân loại kia thì chỉ là con nuôi, ngay cả họ Kim cũng không được theo, không có gì phải nghênh ngang kiêu ngạo. 
 
-"Thì ra là Thanh Lôi Ưng - Ưng Kiệt, Tiểu Kiệt Kiệt." 
+"Thì ra là Thanh Lôi Ưng - Ưng Kiệt, A Kiệt." 
