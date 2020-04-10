@@ -172,7 +172,7 @@ Tiểu Lạc Vân cầm trong tay Thiên Hồ Pháp Địch, nâng cao lên ngan
 
 Tiểu Ô Quy ở một bên xem kịch, hai mắt đảo loạn một vòng, đuôi rùa lúc lắc, bước lên phía trước một bước, cũng không thèm nhìn, móng rùa vẽ vẽ trên mặt đất, giọng nói ngược lại rất lớn: 
 
-"Quy gia còn tưởng là ai, hoá ra là Đĩnh Đạc Điểu đại danh đỉnh đỉnh Tiểu Đạt Đạt!" 
+"Quy gia còn tưởng là ai, hoá ra là Đĩnh Đạc Điểu đại danh đỉnh đỉnh Đạt Đạt!" 
 
 "Kwork! Kwork!" 
 
@@ -180,7 +180,7 @@ Tiểu Ô Quy đưa chân trước, làm thành tư thế lắng nghe, sau đó 
 
 "A? Ngươi nói gì? Ngươi nói từ lâu đã ngưỡng mộ Quy gia? Không sao, đừng ngại, Quy gia đã là truyền thuyết, rất nhiều dị thú xem Quy gia là thần tượng." 
 
-Tiểu Đạt Đạt tức giận trừng mắt lắc đầu, kêu lên mấy tiếng rõ to: 
+Đạt Đạt tức giận trừng mắt lắc đầu, kêu lên mấy tiếng rõ to: 
 
 "Kwork! Kwork! Kwork!" 
 
@@ -190,9 +190,9 @@ Tiểu Đạt Đạt tức giận trừng mắt lắc đầu, kêu lên mấy ti
 
 "A? Không cần, cái gì mà trăm vạn linh thạch cực phẩm, ba mươi rùa cái theo hầu, tám trăm tờ giấy Ngũ sắc chỉ để đổi lấy một đêm cùng Quy gia? Quy gia nhìn vậy nhưng mà là người đứng đắn, à không, Rùa đứng đắn. Đối với Quy gia vật chất chỉ là phù du." 
 
-Tiểu Đạt Đạt tức giận, con mắt trừng tiểu Ô Quy, khoé mắt căng ra, tiến tới thì không chiếm lí, dễ bị tên vô sỉ này mượn cớ tự vệ tấn công, lùi về thì rõ ràng mất đi khí thế. 
+Đạt Đạt tức giận, con mắt trừng tiểu Ô Quy, khoé mắt căng ra, tiến tới thì không chiếm lí, dễ bị tên vô sỉ này mượn cớ tự vệ tấn công, lùi về thì rõ ràng mất đi khí thế. 
 
-Đúng lúc đó, từ hàng ngũ ấu cầm lại bay ra một con Thanh Lôi Ưng khác, chắn trước mặt Tiểu Đạt Đạt. Thanh Lôi Ưng này trên lông còn vết máu do chiến đấu, vết đen xám do lôi điện tạo thành. Cánh của Thanh Lôi Ưng này so với Thanh Lôi Ưng cùng tuổi to hơn một nửa, hơn nữa đập cánh rất nhẹ. Phi cầm khác phải dựa vào Thanh Lôi Ưng dẫn dường che chở mới không bị gió thổi ngược, nhưng Thanh Lôi Ưng này mỗi lần đập cánh đều tạo thành một cơn gió thổi ngược, va chạm với gió tuyết. Dù cho gió tuyết thổi mạnh, Thanh Lôi Ưng vẫn duy trì vị trí trên bầu trời không xê dịch một phân nào. 
+Đúng lúc đó, từ hàng ngũ ấu cầm lại bay ra một con Thanh Lôi Ưng khác, chắn trước mặt Đạt Đạt. Thanh Lôi Ưng này trên lông còn vết máu do chiến đấu, vết đen xám do lôi điện tạo thành. Cánh của Thanh Lôi Ưng này so với Thanh Lôi Ưng cùng tuổi to hơn một nửa, hơn nữa đập cánh rất nhẹ. Phi cầm khác phải dựa vào Thanh Lôi Ưng dẫn dường che chở mới không bị gió thổi ngược, nhưng Thanh Lôi Ưng này mỗi lần đập cánh đều tạo thành một cơn gió thổi ngược, va chạm với gió tuyết. Dù cho gió tuyết thổi mạnh, Thanh Lôi Ưng vẫn duy trì vị trí trên bầu trời không xê dịch một phân nào. 
 
 Điều làm tiểu Ô Quy không ngờ tới chính là Thanh Lôi Ưng này mở miệng nói tiếng người: 
 
