@@ -1,6 +1,6 @@
 # 1. Map Mê Vụ Cổ Lâm
 
-## 1.1. Đệ nhất hương: Xoài xanh - Hùng Thiên Hương 
+## 1.1. Đệ nhất hương: Xoài xanh - Cuồng Khấp Ngạ Quỷ Hương cùng với Mỹ Thiên Hương 
 
 Điều chế gồm có Quang Đăng Hoa Hương, Anh Túc Hoa, Xích Địa Đằng. Quang Đăng Hoa Hương nặng hơn không khí, thường quanh quẩn, lại tan trong tinh dầu, có thể thu lấy bằng cách đẩy nước. Anh Túc Hoa đem nghiền nhỏ. Xích Địa Đằng ép lấy tinh dầu, sau đó thu Quang Đăng Hoa Hương vào trong Xích Địa Đằng, lại cho vào Quang Đăng Hoa Diễm mà đốt sẽ làm mùi hương bay xa. 
 
@@ -8,7 +8,7 @@ Tiểu Lạc Vân đặc biệt làm cho hương này có mùi xoài xanh bằng
 
 Tác dụng: làm cho người hít phải bụng đói cồn cào, chất dự trữ trong người (linh khí, chân khí, máu huyết, năng lượng) ... không ngừng tiết ra ngoài. 
 
-## 1.2. Đệ nhị hương: Mắm ruốc - Thư Thiên Hương 
+## 1.2. Đệ nhị hương: Mắm ruốc - Cuồng Khấp Ngạ Quỷ Hương cùng với Mỹ Thiên Hương 
 
 Điều chế gồm có Xích Địa Đằng, Tử Hương Thảo cùng với "hương đặc thù" của tiểu Lạc Vân. Xích Địa Đằng lấy tinh dầu. Tử Hương Thảo ép lấy nước, trộn chung với một giọt máu/ mồ hôi của tiểu Lạc Vân, dùng phương pháp xông tinh dầu mà phát tán. 
 

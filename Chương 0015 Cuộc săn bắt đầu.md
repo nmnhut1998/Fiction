@@ -66,5 +66,11 @@ Một đạo lôi điện phóng ra, khắc ấn kí trên trán Tiểu Ô Quy. 
 
 Ánh mắt của Thanh Lôi Ưng rơi vào người Tiểu Lạc Vân. Vóc người tiểu Lạc Vân nhỏ hơn đa số ấu cầm, sức lực cũng không bằng. Nhưng thân hình nhỏ nhắn đó tốc độ lại không chậm, bàn tay trắng trắng hồng hồng đặt ở chỗ nào, tuyết ở chỗ đó liền tan ra thành nước, sau đó có khói tím bốc lên, bị hút vào trong tay áo. 
 
-Ấu cầm nằm trong hố tuyết, hai mắt nhìn tiểu Lạc Vân giống như hai hòn lửa. Trên người tiểu Lạc Vân có mùi vị mà bất cứ dị thú nào cũng thèm muốn, nhưng lại càng có một chút gì đó, dù nhỏ nhoi khó thấy, nhưng uy nghiêm như đế hoàng, thánh thiện như thiên thần, không ai dám mạo phạm. Chúng bị trúng độc hương, toàn thân vô lực cần phải ăn uống phục hồi, dù muốn mổ cho tiểu Lạc Vân một cái cũng không có sức lực. Đồng thời, lúc độc lực bị rút ra, chúng cảm thấy chân khí trong cơ thể tuy trống rỗng, nhưng giới hạn dung nạp chân khí lại tăng thêm một chút, cảm giác thù địch đối với tiểu Lạc Vân tạm thời giảm xuống. 
+Ấu cầm nằm trong hố tuyết, hai mắt nhìn tiểu Lạc Vân giống như hai hòn lửa. Trên người tiểu Lạc Vân có mùi vị mà bất cứ dị thú nào cũng thèm muốn, nhưng lại càng có một chút gì đó, dù nhỏ nhoi khó thấy, nhưng uy nghiêm như đế hoàng, thánh thiện như thiên thần, không ai dám mạo phạm. Chúng bị trúng độc hương, toàn thân vô lực cần phải ăn uống phục hồi, dù muốn mổ cho tiểu Lạc Vân một cái cũng không có sức lực. Đồng thời, lúc độc lực bị rút ra, chúng cảm thấy chân khí trong cơ thể tuy trống rỗng, nhưng khả năng dung nạp chân khí lại tăng thêm một chút, cảm giác thù địch đối với tiểu Lạc Vân tạm thời giảm xuống. 
+
+Sư Vương trước nay đều ít khi cho tiểu Lạc Vân tiếp xúc dị thú, trong lòng Thanh Lôi Ưng tiểu Lạc Vân có lẽ chỉ sánh ngang với Tiểu Kiệt nhà mình. Nhưng hiện tại, Thanh Lôi Ưng đã thay đổi ý nghĩ. 
+
+Con người, mạnh nhất không bao giờ là vũ lực. Xem ra Sư Vương cùng Viên Vương muốn đào tạo tiểu Lạc Vân thành một đời dược sư. 
+
+Cuồng Khấp Ngạ Quỷ Hương cùng với Mỹ Thiên Hương không phải không ai biết, nhưng tuyệt đối không thể làm cho cơ thể càng thêm hòa hợp với chân khí, chỉ có thứ được tiểu Lạc Vân điều chế mới có tác dụng như vậy. Năm nay tiểu Lạc Vân ba tuổi đã có thể tạo ra dược hương như vậy, đến khi hoàn toàn trưởng thành, học được bản lãnh của Sư Vương, vậy thì sẽ thế nào? Có thể thấy rõ, trong tương lai không xa, Cổ Lâm hưng thịnh hay suy tàn, một phần lớn đều nắm trong tay tiểu Lạc Vân này. 
 
