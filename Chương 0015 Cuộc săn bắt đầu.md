@@ -60,8 +60,8 @@ Lần này là một luồng lôi điện bao phủ toàn bộ phi cầm, để 
 
 "Tiểu Ô Ô, vừa rồi cha con có truyền âm, Hồng Diệu Linh Mộc có tác dụng lớn nhất đối với con, con cố gắng thu thập càng nhiều càng tốt."
 
-Một đạo lôi điện phóng ra, khắc ấn kí trên trán Tiểu Ô Quy. Dường như đã tiêu hao hết lực lượng, cuộn giấy bạc kia chui vào ống tên của tiểu Lạc Vân, biến thành một cuộn giấy bình thường giắt ở trong đó, mà âm thanh cũng dần nhỏ xuống: 
+Một đạo lôi điện phóng ra, khắc ấn kí trên trán Tiểu Ô Quy. Dường như đã tiêu hao hết lực lượng, cuộn giấy bạc kia chui vào ống tên của tiểu Lạc Vân, biến thành một cuộn giấy bình thường giắt ở trong đó, mà âm thanh cũng nhỏ dần rồi tiêu tán: 
 
 "Tiến vào Lôi Vực ngoài ấn kí bảo hộ, cũng phải luyện hoá một đầu hung thú, thu hoạch hỗn độn chi tinh làm nguồn năng lượng ..." 
 
-Tới lúc này, tiểu Ô Quy mới biết thực sự Sư Vương thâm sâu! 
+Lời này vừa ra, trong đám ấu cầm lại có tiếng phản đối. 
