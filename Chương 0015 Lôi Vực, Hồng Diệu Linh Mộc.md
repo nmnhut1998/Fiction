@@ -1,4 +1,4 @@
-Chương 15: Cuộc săn bắt đầu
+Chương 15: Lôi Vực, Hồng Diệu Linh Mộc 
 
 Tiểu Ô Quy nhếch mép, làm ra động tác bịt mũi kinh tởm, chân trước vẫy vẫy trước mặt xua đi mùi hôi. 
 
@@ -92,5 +92,5 @@ Vô hình trung, tiểu Lạc Vân không còn bé nhỏ nhu nhược nữa, mà
 
 Giọng của tiểu Lạc Vân không lớn, chỉ vừa đủ nghe, khi nói cũng không hành lễ trưởng bối, nhưng nét mặt có phần mỏi mệt vì lao lực làm Thanh Lôi Ưng không thể tức giận, chỉ có thể gật đầu một cái, hạ lệnh toàn bộ tập trung nghỉ ngơi dưỡng sức.  
 
-Tiểu Ô Quy thầm hô lợi hại. Tiểu Lạc Vân không biết là vô tình hay cố ý, việc ác không đích thân làm, việc thiện thì nhanh chân làm trước, công phu "hai mặt" của Viên thúc thúc đã học được mấy phần. 
+Tiểu Ô Quy thầm hô lợi hại. Tiểu Lạc Vân không biết là vô tình hay cố ý, việc ác không đích thân làm, việc thiện thì nhanh chân làm trước, công phu "hai mặt" của Thiết Hoả Cự Viên đã học được mấy phần chân truyền. 
 
