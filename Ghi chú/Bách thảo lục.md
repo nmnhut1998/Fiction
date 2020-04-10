@@ -28,4 +28,5 @@ Riêng Lạc Vân ta khác thường, một củ Hoàng Sâm phải nướng, gi
 ## 1.11. Hoá Sát Thanh Đài: 
 Rêu cộng sinh với Linh Lung Tiên Lộc, có thể phá huỷ mọi vật chất, phát triển cực nhanh. Linh Lung Tiên Lộc có thể ăn Hoá Sát Thanh Đài, luyện hoá tăng cường tu vi, Hoá Sát Thanh Đài nhờ Linh Lung Tiên Lộc mà di chuyển được, lại hấp trọc tức của Linh Lung Tiên Lộc, làm cho cả hai mang khí tức như tiên, tu vi cũng tiến nhanh. Nhưng nếu Linh Lung Tiên Lộc huyết mạch quá tạp, thân mang trọc tức quá nhiều sẽ bị Hoá Sát Thanh Đài triệt để thôn phệ. 
 
-Xích Nhân Sâm: để ăn 
+## 1.12. Xích Nhân Sâm: 
+để ăn 

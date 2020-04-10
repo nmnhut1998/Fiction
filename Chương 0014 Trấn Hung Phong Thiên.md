@@ -30,11 +30,11 @@ Lửa bùng lên, tiểu Ô Quy quẹt quẹt khoé mắt, nhìn bầu trời th
 
 Quẹt quẹt khoé mặt dường như hơi ướt, tiểu Ô Quy thở dài, nghe qua thật não ruột. Nhưng mà cái miệng rùa đắc ý cười tươi như hoa đã bán đứng hắn. 
 
-Hắn năm nay mới có ba tuổi, tu luyện Huyền Vũ Chân Kinh đã tới đệ nhất cảnh Dùng Thuỷ Nuôi Hoả, sớm hơn so với lão Ô Quy cha hắn năm mươi năm, thiên phú có thể nói là yêu nghiệt. Chỉ cần đạt tới cảnh giới Dùng Hoả Sinh Thuỷ, tiểu Ô Quy có thể trở thành linh thú. 
+Hắn năm nay mới có ba tuổi, tu luyện Huyền Vũ Chân Kinh đã tới đệ nhất cảnh Dùng Thuỷ Nuôi Hoả, tuy nghiêm túc mà nói chỉ có thể gọi là Hỗn Độn Chi Thuỷ, hoặc là nguỵ Hỗn Độn Chân Thuỷ nhưng thời gian lại sớm hơn so với lão Ô Quy cha hắn năm mươi năm, thiên phú có thể nói là yêu nghiệt. Chỉ cần đạt tới cảnh giới Dùng Hoả Sinh Thuỷ, tiểu Ô Quy có thể trở thành linh thú. 
 
-Nhân loại ở man cảnh dùng đắp nền tảng, tẩy trửa trọc chất bẩn thỉu, tẩy tuỷ phạt cốt, để cơ thể thông linh thuần khiết có thể chứa được linh khí, dùng được thần thông. 
+Nhân loại tu luyện ở Man cảnh, tác dụng là dùng linh khí đắp nền tảng, tẩy trửa trọc chất bẩn thỉu, tẩy tuỷ phạt cốt, để cơ thể thông linh thuần khiết có thể chứa được linh khí, dùng được thần thông. 
 
-Man thú khác với nhân loại, ở man cảnh không chỉ dùng linh khí liên tục tẩy rửa thân thể, đặc biệt là cải tạo và kích phát huyết mạch, thậm chí có man cảnh có thể làm phát sinh dị biến trở thành loài khác, Thiên Linh Điệp là ví dụ rõ ràng nhất. Đối với tiểu Ô Quy, tiến trình man cảnh được thể hiện bằng độ tinh khiết của Hỗn Độn Chi Thuỷ cùng với khả năng biến hoá của nó. 
+Man thú khác với nhân loại, ở Man cảnh không chỉ dùng linh khí liên tục tẩy rửa thân thể, đặc biệt là cải tạo và kích phát huyết mạch, thậm chí có Man cảnh có thể làm phát sinh dị biến trở thành loài khác, Thiên Linh Điệp là ví dụ rõ ràng nhất. Đối với tiểu Ô Quy, tiến trình Man cảnh được thể hiện bằng độ tinh khiết của Hỗn Độn Chi Thuỷ cùng với khả năng biến hoá của nó. 
 
 Có huyết mạch tốt, Hỗn Độn Chi Thuỷ ngưng tụ, có thể biến hoá để duy trì được lửa, chứng tỏ con đường Man thú của tiểu Ô Quy đã đi được phân nửa. 
 
