@@ -28,7 +28,7 @@ Bộp. Bộp. Bộp.
 
 Không biết là ấu cầm nào phát bệnh đầu tiên, đột nhiên toàn thân vô lực, cánh không đập nổi, rơi xuống như sung rụng, lún sâu không thấy được thân hình. Tuyết vốn trắng xóa nên thơ lại bốc lên mùi xú uế khôn cùng, ngay cả gió lớn cũng không làm mùi này nhạt đi.  
 
-Tiểu Ô Quy chân trước che mũi, chậm rì rì bò tới, đào được Tiểu Đạt Đạt toàn thân rụng lông, da thịt thâm tím, phía trên còn có mấy vết lở loét. Gỡ móng của Tiểu Đạt Đạt ra, Tiểu Ô Quy đỡ Tiểu Thiên Nhi đang run cầm cầm vì lạnh. 
+Tiểu Ô Quy chân trước che mũi, chậm rì rì bò tới, đào được Tiểu Đạt Đạt toàn thân trụi lông, da thịt thâm tím, phía trên còn có mấy vết lở loét. Gỡ móng của Tiểu Đạt Đạt ra, Tiểu Ô Quy đỡ Tiểu Thiên Nhi đang run cầm cầm vì lạnh. 
 
 Một đòn vừa rồi là của Tiểu Thiên Nhi. Dốc một kích toàn lực, toàn thân Tiểu Thiên Nhi khí tức lụi bại, ngay cả hai cánh cũng bị tan rã thành từng mảnh nhỏ, trên thân bướm dính đầy trùng dịch. 
 
@@ -36,7 +36,9 @@ Một đòn vừa rồi là của Tiểu Thiên Nhi. Dốc một kích toàn l�
 
 Tiểu Ô Quy biết muốn Tiểu Lạc Vân chỉ cần muốn giết, ngoại trừ Thanh Lôi Ưng dẫn đường, ấu cầm ở đây một con cũng đừng hòng chạy thoát, nhưng muốn khống chế thì không đơn giản như vậy. 
 
-"Tiểu Thiên Nhi sau này đừng ra tay nặng như vậy, dù sao họ cũng là dị thú, không phải kẻ thù" - Tiểu Lạc Vân nhỏ giọng nói.
+"Tiểu Thiên Nhi sau này đừng ra tay nặng như vậy, dù sao họ cũng là dị thú, không phải kẻ thù" 
+
+Tiểu Lạc Vân che miệng, nói thì thào với Tiểu Thiên Nhi, nhưng kì thực trên miệng vẫn có một nụ cười bị kiềm nén. 
 
 Trên trời cao, Thanh Lôi Ưng dẫn đường đập cánh liên hồi, xung quanh cơ thể hình thành một luồng gió lốc, độc hương không thể xâm nhập. Đây cũng là điểm yếu của điều hương thuật, cần phản thông qua không khí mà lan truyền. Ánh mắt Thanh Lôi Ưng nhìn tiểu Lạc Vân cùng Tiểu Thiên Nhi đã không còn khinh thường. 
 
@@ -56,13 +58,15 @@ Bàn về nghiên cứu huyết mạch, có lẽ trên Thiên Dư Đại Lục c
 
 Lần này là một luồng lôi điện bao phủ toàn bộ phi cầm, để lại trên trán một đạo ấn kí, phàm là lôi điện khi tiếp xúc trong vòng ba thước đều bị đẩy sang một bên. 
 
+Rõ ràng, điểu tộc thực hiện một màn tự biên tự diễn, cái gì mà cần câu trả lời. Sư Vương đã sớm liên lạc với họ. Vẻ mặt của đám phi cầm đều không được tự nhiên, càng không dám phách lối như lúc đầu. 
+
 "Lôi Vực là do ta mở ra, nhưng chính là lôi điện chi lực giữa trời đất tụ lại một chỗ mà thành, gần giống như là thiên kiếp, không nằm trong sự kiểm soát của ta, chỉ có thể dùng một số biện pháp gián tiếp làm suy yếu hoặc tăng cường Lôi Vực, hoặc rút ra một chút lực lượng của nó để Sử dụng. Nếu tiến vào Lôi vực thì không được sinh lòng tham, chỉ được hoạt động ở khu vực ngoài, sống chết đều do thực lực và tâm trí quyết định." 
 
 Đột nhiên thanh âm dừng một chút, sau đó tiếp tục: 
 
 "Tiểu Ô Ô, vừa rồi cha con có truyền âm, Hồng Diệu Linh Mộc có tác dụng lớn nhất đối với con, con cố gắng thu thập càng nhiều càng tốt."
 
-Một đạo lôi điện phóng ra, khắc ấn kí trên trán Tiểu Ô Quy. Dường như đã tiêu hao hết lực lượng, cuộn giấy bạc kia chui vào ống tên của tiểu Lạc Vân, biến thành một cuộn giấy bình thường giắt ở trong đó, mà âm thanh cũng nhỏ dần rồi tiêu tán: 
+Một đạo lôi điện phóng ra, cũng khắc một ấn kí trên trán Tiểu Ô Quy. Dường như đã tiêu hao hết lực lượng, cuộn giấy bạc kia chui vào ống tên của tiểu Lạc Vân, biến thành một cuộn giấy bình thường giắt ở trong đó, mà âm thanh cũng nhỏ dần rồi tiêu tán: 
 
 "Tiến vào Lôi Vực ngoài ấn kí bảo hộ, cũng phải luyện hoá một đầu hung thú, thu hoạch hỗn độn chi tinh làm nguồn năng lượng ..." 
 
