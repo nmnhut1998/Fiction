@@ -30,3 +30,5 @@ Rêu cộng sinh với Linh Lung Tiên Lộc, có thể phá huỷ mọi vật c
 
 ## 1.12. Xích Nhân Sâm: 
 để ăn 
+
+## 1.13. Thiên Huyền Hủ Thuỷ 

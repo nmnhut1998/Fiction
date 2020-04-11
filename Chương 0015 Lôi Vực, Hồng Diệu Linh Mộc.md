@@ -92,5 +92,7 @@ Vô hình trung, tiểu Lạc Vân không còn bé nhỏ nhu nhược nữa, mà
 
 Giọng của tiểu Lạc Vân không lớn, chỉ vừa đủ nghe, khi nói cũng không hành lễ trưởng bối, nhưng nét mặt có phần mỏi mệt vì lao lực làm Thanh Lôi Ưng không thể tức giận, chỉ có thể gật đầu một cái, hạ lệnh toàn bộ tập trung nghỉ ngơi dưỡng sức.  
 
-Tiểu Ô Quy thầm hô lợi hại. Tiểu Lạc Vân không biết là vô tình hay cố ý, việc ác không đích thân làm, việc thiện thì nhanh chân làm trước, công phu "hai mặt" của Thiết Hoả Cự Viên đã học được mấy phần chân truyền. 
+Đỉnh núi chìm vào yên lặng, chỉ có gió tuyết và lôi vân gầm gừ thi thoảng xé rách không gian yên lặng. 
+
+Tiểu Lạc Vân lấy một gốc Xích Nhân Sâm, gỡ lớp vỏ bên ngoài, từ tốn ăn, đăm chiêu suy nghĩ, thi thoảng lại liếc nhìn dòng hắc thuỷ trên người Tiểu Ô Quy. 
 
