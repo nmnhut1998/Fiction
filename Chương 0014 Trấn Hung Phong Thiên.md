@@ -239,3 +239,28 @@ Một đòn vừa rồi là của Tiểu Thiên Nhi. Dốc một kích toàn l�
 "Tộc huấn dạy không bao giờ sai a ... thủ đoạn bảo mệnh tốt nhất vẫn là độc, nếu muốn sinh tồn, càng nhỏ yếu, càng mong manh thì độc trên người phải càng lợi hại." 
 
 Trên trời cao, Thanh Lôi Ưng dẫn đường đập cánh liên hồi, xung quanh cơ thể hình thành một luồng gió lốc, độc hương không thể xâm nhập. Đây cũng là điểm yếu của điều hương thuật, cần phản thông qua không khí mà lan truyền. Ánh mắt Thanh Lôi Ưng nhìn tiểu Lạc Vân cùng Tiểu Thiên Nhi đã không còn khinh thường. 
+
+"Chuyện này hai bên đều có lỗi, tốt nhất là bỏ qua cho nhau. Hôm nay điểu tộc chúng ta tới là vì muốn tiến vào Lôi Vực." 
+
+Móng muốt của Thanh Lôi Ưng mở ra, một cuộn giấy màu bạc từ từ bay lên, lơ lửng trong gió, hấp dẫn rồi thu lấy lôi điện xung quanh, trở nên càng ngày càng sáng. 
+
+Lôi âm dần dần trở nên có quy luật, cuối cùng biến thành âm thanh của Sư Vương: 
+
+"Tiểu Thiên Nhi ý chí kiên định, một lòng cầu đạo, hơn nữa lại có công phát hiện ra một mỏ Hỏa Linh Thạch. Viên Vương đã ngỏ lờ. Lúc con đến được Thanh Lâm sẽ làm lễ bái sư. Quà bái sư, đặc biệt ban cho một lần kết kén tân sinh, sau khi củng cố cảnh giới được một lần vào Linh Viên thu hoạch dược thảo."
+
+Lời vừa nói xong, từ trên cuộn giấy phóng thích một loạt phù văn, bám vào người Tiểu Thiên Nhi. Chỉ thấy trên người Tiểu Thiên Nhi trùng dịch sôi trào, tràn ra các miệng vết thương, kết thành kén tơ màu xanh biếc như ngọc bích. Sau đó, một luồng tử sắc hỏa diễm giống như đóa hoa kiều diễm xuất hiện bên trên, bập bùng tí tách. Tiểu Thiên Nhi thở đều đều trong tay áo Tiểu Lạc Vân, cũng không có lâm vào ngủ say, mà dường như đang thực hiện một quá trình biến đổi nào đó. 
+
+Bàn về nghiên cứu huyết mạch, có lẽ trên Thiên Dư Đại Lục chưa ai vượt qua được Thiết Hỏa Cự Viên, cho dù là Thần cảnh cường giả của nhân loại cũng không thể. Mà Linh Viên của Cự Viên chính là bảo địa chân chính, dược liệu trồng bên trong thiên kì bách quái, thậm chí là giống loài do Cự Viên tự lai tạo, mỗi một lần dược liệu bán ra đều phải lấy hình thức đấu giá cùng tỉ võ kết hợp mới có thể giải quyết tranh chấp. 
+
+"Vì đền bù cho điểu tộc bị thất lạc Khổng Tước Thánh Linh, đặc biệt cho điểu tộc toàn bộ ấu cầm có thể tiến vào Lôi Vực thu hoạch Hồng Diệu Linh Mộc. Tin tưởng chỉ cần có Hồng Diệu Linh Mộc, sau mấy chục năm nữa Khổng Tước tộc sẽ có được nhân tài tu luyện ra Khổng Tước Thánh Vũ." 
+
+Lần này là một luồng lôi điện bao phủ toàn bộ phi cầm, để lại trên trán một đạo ấn kí, phàm là lôi điện khi tiếp xúc trong vòng ba thước đều bị đẩy sang một bên. 
+
+"Dị thú chú ý, Lôi Vực là do ta mở ra, nhưng chính là lôi điện chi lực giữa trời đất tụ lại một chỗ mà thành, gần giống như là thiên kiếp, không nằm trong sự kiểm soát của ta, chỉ có thể dùng một số biện pháp gián tiếp làm suy yếu hoặc tăng cường Lôi Vực, hoặc rút ra một chút lực lượng của nó để Sử dụng. Nếu tiến vào Lôi vực thì không được sinh lòng tham, chỉ được hoạt động ở khu vực ngoài, sống chết đều do thực lực và tâm trí quyết định." 
+
+Đột nhiên thanh âm dừng một chút, sau đó tiếp tục: 
+
+"Tiểu Ô Ô, vừa rồi cha con có truyền âm, Hồng Diệu Linh Mộc có tác dụng lớn nhất đối với con, con cố gắng thu thập càng nhiều càng tốt."
+
+Một đạo lôi điện phóng ra, khắc ấn kí trên trán Tiểu Ô Quy. Dường như đã tiêu hao hết lực lượng, cuộn giấy bạc kia chui vào ống tên của tiểu Lạc Vân, biến thành một cuộn giấy bình thường giắt ở trong đó. 
+
