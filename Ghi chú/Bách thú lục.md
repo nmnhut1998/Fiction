@@ -41,3 +41,5 @@ khống chế Ám Dực.
 ## 1.10. Thiên Hồn Tuyết Lang: 
 khống chế Chiến Lang khôi lỗi
 
+### 1.11. Đĩnh Đạc Điểu Đạt Đạt: 
+Tiếng chim trầm thấp mà dứt khoát, từ trong hàng ngũ ấu cầm bay ra một con vẹt xanh. Vẹt xanh trên đầu có một chùm lông tơ dài mềm mịn có hoa văn sọc đỏ vàng, mọc ngược kéo dài ra sau lưng. Hai con mắt lớn, khoé mắt nhọn, tròng mắt vàng, con ngươi đen, lông đuôi dài hệt như khổng tước. Đặc biệt, cặp chân của nó khá lớn, năm ngón chân linh hoạt như người, cơ hồ to bằng cánh tay của tiểu Lạc Vân, dài như chân hạc, nhưng lại cân đối với hai cánh cũng lớn không kém. Thoạt nhìn bề ngoài, vẹt xanh này toát ra vẻ vững chãi, tự tin, móng vuốt hợp lại thành một cái lồng giam giữ Tiểu Thiên Nhi ở bên trong. 

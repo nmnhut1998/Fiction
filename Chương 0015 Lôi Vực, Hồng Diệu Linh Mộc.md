@@ -2,7 +2,7 @@ Chương 15: Lôi Vực, Hồng Diệu Linh Mộc
 
 Tiểu Ô Quy nhếch mép, làm ra động tác bịt mũi kinh tởm, chân trước vẫy vẫy trước mặt xua đi mùi hôi. 
 
-Ưng Kiệt này có điểm kì lạ, chững chạc hơn so với cùng tuổi, lời nói cũng thâm sâu hơn rất nhiều. Trên vết thương của Tiểu Thiên Nhi, có chút ít do hung thú gây ra, nhưng rõ ràng nhất là hai vết thủng trên cánh do bị mỏ chim mổ vào, mà A Kiệt ngày toàn thân một mùi mắm ruốc xoài xanh ngấm sâu vào từng sợi lông, hiển nhiên lúc trước đã giao đấu với Tiểu Thiên Nhi. 
+Ưng Kiệt này có điểm kì lạ, chững chạc hơn so với cùng tuổi, lời nói cũng thâm sâu hơn rất nhiều. Trên vết thương của Tiểu Thiên Nhi, có chút ít do hung thú gây ra, nhưng rõ ràng nhất là hai vết thLôitrên cánh do bị mỏ chim mổ vào, mà A Kiệt ngày toàn thân một mùi mắm ruốc xoài xanh ngấm sâu vào từng sợi lông, hiển nhiên lúc trước đã giao đấu với Tiểu Thiên Nhi. 
 
 Tiểu Ô Quy lúc ở nhà bị cha mẹ dạy dỗ, cứ mười lần sẽ có chín lần "Con mở mắt ra mà nhìn A Kiệt nhà người ta, lễ độ khuôn phép, ý chí kiên định, tâm cơ cẩn thận ..." 
 
@@ -92,7 +92,6 @@ Vô hình trung, tiểu Lạc Vân không còn bé nhỏ nhu nhược nữa, mà
 
 Giọng của tiểu Lạc Vân không lớn, chỉ vừa đủ nghe, khi nói cũng không hành lễ trưởng bối, nhưng nét mặt có phần mỏi mệt vì lao lực làm Thanh Lôi Ưng không thể tức giận, chỉ có thể gật đầu một cái, hạ lệnh toàn bộ tập trung nghỉ ngơi dưỡng sức.  
 
-Đỉnh núi chìm vào yên lặng, chỉ có gió tuyết và lôi vân gầm gừ thi thoảng xé rách không gian yên lặng. 
+Đỉnh núi chìm vào yên lặng. Gió tuyết không còn ù ù thổi, mà đám lôi vân cũng thôi không gầm gừ nữa. 
 
-Tiểu Lạc Vân lấy một gốc Xích Nhân Sâm, gỡ lớp vỏ bên ngoài, từ tốn ăn, đăm chiêu suy nghĩ, thi thoảng lại liếc nhìn dòng hắc thuỷ trên người Tiểu Ô Quy. 
-
+Tiểu Lạc Vân lấy một gốc Xích Nhân Sâm, gỡ lớp vỏ bên ngoài, từ tốn ăn. 
