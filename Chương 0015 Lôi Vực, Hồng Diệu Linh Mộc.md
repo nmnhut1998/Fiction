@@ -34,6 +34,10 @@ Một đòn vừa rồi là của Tiểu Thiên Nhi. Dốc một kích toàn l�
 
 "Tộc huấn dạy không bao giờ sai a ... thủ đoạn bảo mệnh tốt nhất vẫn là độc, nếu muốn sinh tồn, càng nhỏ yếu, càng mong manh thì độc trên người phải càng lợi hại." 
 
+"Hắc, Quy gia giúp ngươi một chút!" 
+
+Tiểu Ô Quy hai mắt đảo loạn, ra vẻ giảo huyệt, nhỏ một giọt Thiên Huyền Hủ Thuỷ ở trên mai rùa, lại thêm ba giọt Hỗn Độn Chi Thuỷ vào người tiểu Thiên Nhi, làm cho vết thương nhanh chóng khép vảy. 
+
 Tiểu Ô Quy biết muốn Tiểu Lạc Vân chỉ cần muốn giết, ngoại trừ Thanh Lôi Ưng dẫn đường, ấu cầm ở đây một con cũng đừng hòng chạy thoát, nhưng muốn khống chế thì không đơn giản như vậy. 
 
 "Tiểu Thiên Nhi sau này đừng ra tay nặng như vậy, dù sao họ cũng là dị thú, không phải kẻ thù" 
