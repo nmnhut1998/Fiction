@@ -72,7 +72,7 @@ Tiếng thét dài truyền tới, tiếp theo sau là một loạt âm thanh h�
 
 "Kworkk!"
 
-Trong tiếng sấm, mấy chục đầu phi cầm bay vội. Phía sau lưng, một đám mây đen kịt phát ra tiếng vù vù chói tai. Hung Sát Đường Lang. 
+Trong tiếng sấm, bốn mươi chín đầu phi cầm bay vội. Phía sau lưng, một đám mây đen kịt phát ra tiếng vù vù chói tai. Hung Sát Đường Lang. 
 
 Số lượng Hung Sát Đường Lang so với lúc trước ít hơn, nhưng mỗi con thể tích đều to hơn, hai lợi kiếm trước người càng thêm sắc bén. 
 

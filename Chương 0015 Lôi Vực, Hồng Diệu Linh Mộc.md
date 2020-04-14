@@ -60,7 +60,7 @@ Lần này là một luồng lôi điện bao phủ toàn bộ phi cầm, để 
 
 Tiểu Ô Quy nguýt dài, xoay người, hướng đuôi rùa về phía Đạt Đạt, liên tục chỉ thẳng lên trời ba lần khinh miệt. Điểu tộc đây là thực hiện một màn tự biên tự diễn, cái gì mà cần câu trả lời. Sư Vương đã sớm liên lạc với họ, náo loạn một hồi chẳng qua vì ghen ghét với Tiểu Lạc Vân. 
 
-Vẻ mặt của đám phi cầm đều không được tự nhiên, càng không dám phách lối như lúc đầu. 
+Vẻ mặt của đám phi cầm đều không được tự nhiên, càng không dám phách lối như lúc đầu. Tiểu Đạt Đạt híp mắt, mắt trái có lục hoả thiêu đốt, mắt phải có hắc lôi chớp động, nhìn chằm chằm tiểu Ô Quy. A Kiệt vỗ nhẹ một cái, một luồng gió lạnh, mỏng như sợi tơ, cực kì khó phát hiện, tốc độ lại nhanh như thiểm điện cắt lên mai rùa của tiểu Ô Quy tạo thành mấy tiếng "boong boong" thật nhỏ. 
 
 Thanh âm của Sư Vương trên bầu trời vẫn tiếp tục: 
 
@@ -68,13 +68,15 @@ Thanh âm của Sư Vương trên bầu trời vẫn tiếp tục:
 
 Đột nhiên thanh âm dừng một chút, như là trầm ngâm suy nghĩ: 
 
-"Tiểu Ô Ô, vừa rồi Quy Vương có truyền âm, Hồng Diệu Linh Mộc có tác dụng lớn nhất đối với con, cố gắng thu thập càng nhiều càng tốt. Còn nữa, lời nói tốt nhất nên chừa lại ba phần khẩu đức. Ở trong Lôi Vực, lời nói phải cẩn thận, nếu không sẽ bị Vạn Thú Chiến Linh giáng xuống lôi phạt." 
+"Tiểu Ô Ô, vừa rồi Quy Vương có truyền âm, Hồng Diệu Linh Mộc có tác dụng lớn nhất đối với con, cố gắng thu thập càng nhiều càng tốt. Còn nữa, lời nói tốt nhất nên chừa lại ba phần khẩu đức. Ở gần Lôi Vực, lời nói phải cẩn thận, đặc biệt cấm tranh đấu, nếu không sẽ bị Vạn Thú Chiến Linh giáng xuống lôi phạt." 
 
 Một đạo lôi điện phóng ra, cũng khắc một ấn kí trên trán Tiểu Ô Quy. Dường như đã tiêu hao hết lực lượng, cuộn giấy bạc kia chui vào ống đựng tên của tiểu Lạc Vân, biến thành một cuộn giấy bình thường giắt ở trong đó, mà âm thanh cũng nhỏ dần rồi tiêu tán: 
 
 "Tiến vào Lôi Vực ngoài ấn kí bảo hộ, cũng phải luyện hoá một đầu hung thú, thu hoạch hỗn độn chi tinh làm nguồn năng lượng ..." 
 
 Ánh mắt trầm tư của Thanh Lôi Ưng rơi vào người Tiểu Lạc Vân. Vóc người tiểu Lạc Vân nhỏ hơn đa số ấu cầm, sức lực cũng không bằng. Nhưng thân hình nhỏ nhắn đó tốc độ lại không chậm, bàn tay trắng trắng hồng hồng đặt ở chỗ nào, tuyết ở chỗ đó liền tan ra thành nước. Ống tay áo quét qua, chất độc hoá thành khói tím bốc lên, bị hút vào trong tay áo. 
+
+Tiểu Thiên Nhi nằm trong tay áo, từng luồng khói tím quấn quanh, kéo theo một tia huyết khí của ấu cầm bị độc hương rút ra, thẩm thấu vào trong kén bướm. Trên kén bướm có quầng sáng hai màu tử lục lưu chuyển, màu lục ngày càng đậm, dần dần ngả sang đen, màu tím ngày càng sáng, từ từ chuyển thành trắng. 
 
 Ấu cầm nằm trong hố tuyết, hai mắt nhìn tiểu Lạc Vân giống như hai hòn lửa. Trên người tiểu Lạc Vân có mùi vị mà bất cứ dị thú nào cũng thèm muốn, nhưng lại càng có một chút gì đó, dù nhỏ nhoi khó thấy, nhưng uy nghiêm như đế hoàng, thánh thiện như thiên thần, không ai dám mạo phạm. Chúng bị trúng độc hương, lông vũ trên người rụng ít nhất một nửa, toàn thân vô lực cần phải ăn uống phục hồi, dù muốn mổ cho tiểu Lạc Vân một cái cũng không có sức lực. Đồng thời, lúc độc lực bị rút ra, chúng cảm thấy chân khí trong cơ thể tuy trống rỗng, nhưng khả năng dung nạp chân khí lại tăng thêm một chút. 
 
@@ -94,4 +96,19 @@ Giọng của tiểu Lạc Vân không lớn, chỉ vừa đủ nghe, khi nói c
 
 Đỉnh núi chìm vào yên lặng. Gió tuyết không còn ù ù thổi, mà đám lôi vân cũng thôi không gầm gừ nữa. 
 
-Tiểu Lạc Vân lấy một gốc Xích Nhân Sâm, gỡ lớp vỏ bên ngoài, từ tốn ăn. 
+Tiểu Lạc Vân dựa lưng vào bia Trấn Hung Phong Thiên, Thiên Hồ Pháp Địch đặt trên môi. Đỉnh núi tuyết lạnh, một tiếng nhạc vang lên, một luồng sương trắng vu vơ bay ra, sau đó tan vào gió. Âm thanh rất trầm, rất nhỏ, nhỏ đến mức dường như chỉ có người thổi mới nghe được, êm đềm nhè nhẹ như tiếng ru, như bước đi vô hình. 
+
+Không ai để ý tiểu Lạc Vân đang thổi sáo, giống như tiếng sáo không hiện hữu, hoặc là nó đã hoà hợp khắp mọi nơi, trở thành một bộ phận bình thường của thế giới xung quanh, tựa như là tiếng gió, tiếng sấm, tiếng hít thở. 
+
+Cũng vào lúc đó, chợt có một âm thanh không hoà hợp, dù là rất nhỏ. 
+
+"Các!" 
+
+(Kẻ nào!)
+
+Con mắt nhắm nhắm hờ của Thanh Lôi Ưng dẫn đường đột nhiên mở ra, một tiếng ưng kêu vang vọng núi rừng, Uẩn Lôi Tùng Mộc mọc gần đó bị âm thanh chấn nổ tung. Toàn bộ phi cầm đều đập cánh bay lên không, tiểu Lạc Vân cũng đứng dậy rút cung lắp lên. 
+
+Một, hai, ba ... bốn mươi sáu đầu phi cầm kết thành trận hình, vững vàng ở trên không. 
+
+Không đúng! Vẫn thiếu ba đầu phi cầm! 
+
