@@ -24,7 +24,7 @@ Lửa cháy rất vượng, nhiệt độ không tính là cao, nhưng giữa tr
 
 Tiểu Ô Quy xoa xoa cằm, đắn đo suy nghĩ một hồi, quyết định nhỏ một giọt hắc thuỷ trên lưng vào. 
 
-Lửa bùng lên, tiểu Ô Quy quẹt quẹt khoé mắt, nhìn bầu trời than thở: 
+Lửa bùng lên, tiểu Ô Quy chớp chớp mắt, đôi mắt vì gió tuyết mà hơi nhiễm hồng, nhìn bầu trời than thở: 
 
 "Trên trời dưới đất, dùng nước nhóm lửa chỉ có Quy gia ... thật không ngờ Quy gia lại lưu lạc tới mức dùng Hỗn Độn Chân Thuỷ nhóm lửa ... tủi thay, buồn thay, chán chường thay ... aizz ..." 
 
@@ -38,7 +38,7 @@ Man thú khác với nhân loại, ở Man cảnh không chỉ dùng linh khí l
 
 Có huyết mạch tốt, Hỗn Độn Chi Thuỷ ngưng tụ, có thể biến hoá để duy trì được lửa, chứng tỏ con đường Man thú của tiểu Ô Quy đã đi được phân nửa. 
 
-Đắc ý, tiểu Ô Quy ngửa mặt lên trời cười to ba tiếng: 
+Đắc ý, tiểu Ô Quy ngửa mặt lên trời cười to ba tiếng, trên người khí huyết một trận nhộn nhạo, Hỗn Độn Chi Thuỷ biến thành hắc khí bay lên, không cần tiểu Ô Quy điều khiển mà tự mình ngưng tụ thành một hư ảnh Huyền Quy khổng lồ, chập chờn chừng ba giây mới tan rã. 
 
 "Ai dám khinh thường Quy gia? Quy gia chỉ tuỳ tiện đi tắm một lần liền có thể lên cấp! Không phục? Ngươi có thể nhảy vào Thiên Huyền Hủ Tuyền, Quy gia chà lưng miễn phí cho ngươi!" 
 
@@ -52,7 +52,7 @@ Hai mắt đảo đảo, tiểu Ô Quy cũng dùng móng chấm vào Thiên Huy�
 
 Âm thanh ong ong, tiếng quát như sấm dội trong đầu óc, đẩy tiểu Ô Quy văng ra xa ba thước. Ngay sau đó, long ngâm phượng minh, lôi đình thiên nộ, đại hải gào thét, vạn thú tê hống, tạo thành linh hồn trùng kích đánh thẳng vào tiểu Ô Quy. 
 
-Tiểu Ô Quy không thể né tránh, ngửa mặt lên trời kêu to hai tiếng "Ta hận!", hai mắt trợn tròn, ngất xỉu. 
+Tiểu Ô Quy không thể né tránh, ngửa mặt lên trời kêu to hai tiếng "Ta hận!", hai mắt chuyển thành một màu huyết dụ, con ngươi trợn tròn, khoé mắt chảy ra một dòng huyết lệ màu đen, ngất xỉu. Hỗn độn chi thuỷ trên mai rùa tự hành chuyển thành hơi, hoá thành đám sương, từ từ thấm vào da thịt tiểu Ô Quy, điều trị vết thương của hắn. 
 
 Lửa cháy tí tách, một người một rùa nhìn qua không phòng bị, cứ vậy mà nằm yên. 
 
