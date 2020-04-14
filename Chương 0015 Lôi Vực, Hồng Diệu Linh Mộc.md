@@ -34,7 +34,7 @@ Một đòn vừa rồi là của Tiểu Thiên Nhi. Dốc một kích toàn l�
 
 "Tộc huấn dạy không bao giờ sai a ... thủ đoạn bảo mệnh tốt nhất vẫn là độc, nếu muốn sinh tồn, càng nhỏ yếu, càng mong manh thì độc trên người phải càng lợi hại." 
 
-"Hắc, Quy gia giúp ngươi một chút!" 
+"Hắc, Quy gia giúp ngươi một chút, coi như cảm tạ ngươi đánh tên kia một trận." 
 
 Tiểu Ô Quy hai mắt đảo loạn, ra vẻ giảo huyệt, nhỏ một giọt Thiên Huyền Hủ Thuỷ ở trên mai rùa, lại thêm ba giọt Hỗn Độn Chi Thuỷ vào người tiểu Thiên Nhi, làm cho vết thương nhanh chóng khép vảy. 
 
@@ -44,7 +44,7 @@ Tiểu Ô Quy biết muốn Tiểu Lạc Vân chỉ cần muốn giết, ngoại
 
 Tiểu Lạc Vân che miệng, nói thì thào với Tiểu Thiên Nhi, nhưng kì thực trên miệng vẫn có một nụ cười bị kiềm nén. 
 
-Trên trời cao, Thanh Lôi Ưng dẫn đường đập cánh liên hồi, xung quanh cơ thể hình thành một luồng gió lốc, độc hương không thể xâm nhập. Đây cũng là điểm yếu của điều hương thuật, cần phản thông qua không khí mà lan truyền. Ánh mắt Thanh Lôi Ưng nhìn tiểu Lạc Vân cùng Tiểu Thiên Nhi đã không còn khinh thường. 
+Trên trời cao, Thanh Lôi Ưng dẫn đường đập cánh liên hồi, xung quanh cơ thể hình thành một luồng gió lốc, độc hương không thể xâm nhập. Đây cũng là điểm yếu của điều hương thuật, cần phải thông qua không khí mà lan truyền. 
 
 "Chuyện này hai bên đều có lỗi, tốt nhất là bỏ qua cho nhau. Hôm nay điểu tộc chúng ta tới là vì muốn tiến vào Lôi Vực." 
 
@@ -52,13 +52,21 @@ Móng muốt của Thanh Lôi Ưng mở ra, một cuộn giấy màu bạc từ 
 
 Lôi âm dần dần trở nên có quy luật, cuối cùng biến thành âm thanh của Sư Vương: 
 
-"Tiểu Thiên Nhi ý chí kiên định, một lòng cầu đạo, hơn nữa lại có công phát hiện ra một mỏ Hỏa Linh Thạch. Viên Vương đã ngỏ lờ. Lúc con đến được Thanh Lâm sẽ làm lễ bái sư. Quà bái sư, đặc biệt ban cho một lần kết kén tân sinh, sau khi củng cố cảnh giới được một lần vào Linh Viên thu hoạch dược thảo."
+"Tiểu Thiên Nhi ý chí kiên định, một lòng cầu đạo, hơn nữa lại có công phát hiện ra một mỏ Hỏa Linh Thạch. Viên Vương đã ngỏ lời. Lúc con đến được Thanh Lâm sẽ làm lễ bái sư. Quà bái sư, đặc biệt ban cho một lần kết kén tân sinh, sau khi củng cố cảnh giới được một lần vào Linh Viên thu hoạch dược thảo."
 
 Lời vừa nói xong, từ trên cuộn giấy phóng thích một loạt phù văn, bám vào người Tiểu Thiên Nhi. Chỉ thấy trên người Tiểu Thiên Nhi trùng dịch sôi trào, tràn ra các miệng vết thương, kết thành kén tơ màu xanh biếc như ngọc bích. Sau đó, một luồng tử sắc hỏa diễm giống như đóa hoa kiều diễm xuất hiện bên trên, bập bùng tí tách. Tiểu Thiên Nhi thở đều đều trong tay áo Tiểu Lạc Vân, cũng không có lâm vào ngủ say, mà dường như đang thực hiện một quá trình biến đổi nào đó. 
 
 Bàn về nghiên cứu huyết mạch, có lẽ trên Thiên Dư Đại Lục chưa ai vượt qua được Thiết Hỏa Cự Viên, cho dù là Thần cảnh cường giả của nhân loại cũng không thể. Mà Linh Viên của Cự Viên chính là bảo địa chân chính, dược liệu trồng bên trong thiên kì bách quái, thậm chí là giống loài do Cự Viên tự lai tạo, mỗi một lần dược liệu bán ra đều phải lấy hình thức đấu giá cùng tỉ võ kết hợp mới có thể giải quyết tranh chấp. 
 
 "Vì đền bù cho điểu tộc bị thất lạc Khổng Tước Thánh Linh, đặc biệt cho điểu tộc toàn bộ ấu cầm có thể tiến vào Lôi Vực thu hoạch Hồng Diệu Linh Mộc. Tin tưởng chỉ cần có Hồng Diệu Linh Mộc, sau mấy chục năm nữa Khổng Tước tộc sẽ có được nhân tài tu luyện ra Khổng Tước Thánh Vũ." 
+
+Sư Vương có thể thống lĩnh quần thú, thực lực là một phần, tài nguyên lại là một phần khác. Ví dụ như Sư Vương sở hữu độc môn dược hương, có thể che đậy lôi kiếp hoặc kéo dài thập niên chi kiếp của dị thú. Các dược viên của Sư Vương đều có tình huống đặc thù, trồng một vài loại thực vật đặc biệt mà ngay cả Dong lão cũng không thể làm được. 
+
+Ví dụ như trong Lôi Vực, mầm cây Hấp Huyết Hắc Hoả Hung Hoè quanh năm bị lôi điện luyện hoá, tiếp xúc với máu huyết của vạn thú, đã sinh biến dị, trở thành Hồng Diệu Linh Mộc. Hồng Diệu Linh Mộc nếu dùng đơn độc có thể tinh lọc huyết mạch, nhưng tác dụng chính là có thể giảm rủi ro khi dung hợp huyết mạch, làm cho khả năng xảy ra dị biến có lợi tăng lên, dị biến có hại giảm xuống. Ví dụ như Đạt Đạt nếu dung hợp tinh huyết của cha hắn trước khi vào Linh cảnh, có Hồng Diệu Linh Mộc giúp đỡ thì rất có khả năng lúc tấn thăng Linh cảnh, hắn sẽ áp đảo huyết mạch vốn yếu hơn của mẫu thân, từ Đĩnh Đạc Điểu biến thành Ngũ Sắc Khổng Tước. 
+
+Hồng Diệu Linh Mộc ở trung tâm Lôi Vực còn có thể trợ giúp dung hợp hai loại huyết mạch hoàn toàn khác biệt ở một bộ phận trên cơ thể, tương tự như "di hoa tiếp mộc". Tộc trưởng Linh Lung Tiên Lộc có thể dung hợp được với Hoá Sát Thanh Đài là do dùng Hồng Diệu Linh Mộc cấy mộc huyết của Dong lão vào sừng của mình. Trên người hắn vẫn là huyết mạch Linh Lung Tiên Lộc, nhưng cặp sừng lại có một nửa huyết mạch của Dong lão, xem như là một nửa thảo mộc chi linh, do đó có thể cộng sinh cùng Hoá Sát Thanh Đài. 
+
+----------------
 
 Lần này là một luồng lôi điện bao phủ toàn bộ phi cầm, để lại trên trán một đạo ấn kí, phàm là lôi điện khi tiếp xúc trong vòng ba thước đều bị đẩy ra ngoài. Ấn kí tạo cho bọn chúng một Cách Lôi Lĩnh Vực tạm thời. 
 
