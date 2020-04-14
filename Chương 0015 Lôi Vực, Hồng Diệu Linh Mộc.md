@@ -106,7 +106,9 @@ Cũng vào lúc đó, chợt có một âm thanh không hoà hợp, giống như
 
 (Kẻ nào!)
 
-Con mắt nhắm nhắm hờ của Thanh Lôi Ưng dẫn đường đột nhiên mở ra, một tiếng ưng kêu vang vọng núi rừng, Uẩn Lôi Tùng Mộc mọc gần đó bị âm thanh chấn nổ tung. Toàn bộ phi cầm đều đập cánh bay lên không, tiểu Lạc Vân cũng đứng dậy rút cung lắp lên. Lưu Ly Bảo Y của tiểu Lạc Vân 
+Con mắt nhắm nhắm hờ của Thanh Lôi Ưng dẫn đường đột nhiên mở ra, một tiếng ưng kêu vang vọng núi rừng, Uẩn Lôi Tùng Mộc mọc gần đó bị âm thanh chấn nổ tung. Toàn bộ phi cầm đều đập cánh bay lên không. 
+
+Tiểu Lạc Vân đứng phắt dậy, Thiên Hồ Pháp Địch rít lên một tiếng, một đám lôi vân hiện ra, nâng tiểu Lạc Vân đứng trên bia Trấn Hung Phong Thiên. Lưu Ly Bảo Y phấp phới, phát ra từng đợt linh khí dao động, Tang Cung đã lắp tên, kéo căng ra, lôi quang sáng loà, làm cho Thanh Lôi Ưng cũng ba phần kiêng kị. 
 
 Một, hai, ba ... bốn mươi sáu đầu phi cầm kết thành trận hình, vững vàng ở trên không. 
 

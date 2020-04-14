@@ -60,7 +60,7 @@ Sau lưng bọn chúng, bia đá vốn ghi Trấn Hung Phong Thiên, giờ lại
 
 Hai canh giờ sau. 
 
-Núi cao tuyết phủ đọng thành một tầng băng, phản chiếu ánh chớp bạc từ bầu trời, lấp lánh như pha lê. 
+Đống lửa đã tàn, núi cao tuyết phủ đọng thành một tầng băng, phản chiếu ánh chớp bạc từ bầu trời, lấp lánh như pha lê. 
 
 Tiếng sấm trầm trầm dần trở nên gấp gáp, bia Trấn Hung Phong Thiên sau lưng tiểu Lạc Vân phát ra từng đợt ngân quang, cuối cùng toàn bộ sấm sét bên trong đám mây đột nhiên trở nên cuồng bạo, đồng loạt đánh về một hướng. 
 
