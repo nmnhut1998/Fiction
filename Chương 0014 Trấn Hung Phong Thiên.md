@@ -26,7 +26,7 @@ Uẩn Lôi Tùng Mộc vốn có hương thơm thanh nhẹ như lá non vừa đ
 
 Tiểu Ô Quy cũng là tay dùng độc, mặc kệ khói bám vào người, xoa xoa cằm, đắn đo suy nghĩ một hồi, quyết định nhỏ một giọt hắc thuỷ trên lưng vào. 
 
-Lửa bùng lên, tiểu Ô Quy chớp chớp mắt, đôi mắt vì gió tuyết và khói mà hơi nhiễm hồng, nhìn bầu trời than thở: 
+Lửa bùng lên, tiểu Ô Quy chớp chớp mắt, đôi mắt hơi nhiễm hồng không biết là vì gió hay là vì khói, nhìn bầu trời than thở: 
 
 "Trên trời dưới đất, dùng nước nhóm lửa chỉ có Quy gia ... thật không ngờ Quy gia lại lưu lạc tới mức dùng Hỗn Độn Chân Thuỷ nhóm lửa ... tủi thay, buồn thay, chán chường thay ... aizz ..." 
 

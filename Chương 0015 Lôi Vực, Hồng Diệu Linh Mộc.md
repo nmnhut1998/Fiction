@@ -145,3 +145,5 @@ __________________
 Đình viện u tĩnh, Sư Vương nhìn chằm chằm bản đồ trên bàn, sắc mặt trắng bệch, âm thanh run run: 
 
 "Không thể nào ... làm sao xuất hiện ở đây ... Vân nhi gặp nguy hiểm!"
+
+Sư Vương tung người muốn ra ngoài nhưng cuối cùng không đi, nằm trên giường, nhắm mắt thở dài. 
