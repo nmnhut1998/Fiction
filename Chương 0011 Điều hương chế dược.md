@@ -331,3 +331,5 @@ Tiếng nói nhỏ nhẹ, rụt rè, run rẩy mang theo chút ướt át, như 
 Một tay áo nâng lên che đầu, tiểu Lạc Vân cẩn thận không để nước mắt rơi vào Lưu Ly Bảo Y. 
 
 Cẩn thận như vậy, nên không ai biết tiểu Lạc Vân khóc. 
+
+Nước mắt như ngọc, lặng rơi vào nền đất, có chút hào quang sáng lên rồi biến mất không dấu vết. 

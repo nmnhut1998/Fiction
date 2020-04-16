@@ -4,7 +4,7 @@ Không biết bao lâu sau, một người một rùa lên tới đỉnh núi. �
 
 Bầu trời thả tuyết như rải hoa, mây đen lại chứa lôi điện liên tục chớp ánh bạc. 
 
-Tiểu Lạc Vân dựa người vào một khối bia đá, liên tục há miệng phun ra hơi nóng, cánh tay run lẩy bẩy vì kiệt sức, cầm Xích Nhâm Sâm, cả vỏ cả lá, từng miếng, từng miếng nuốt vào. Khuôn mặt trắng bệch, hai má ửng hồng, nhưng mà dáng người uể oải, đầu tóc cũng xác xơ. 
+Tiểu Lạc Vân dựa người vào một khối bia đá, liên tục há miệng phun ra hơi nóng, cánh tay run lẩy bẩy vì kiệt sức, cầm Xích Nhâm Sâm, cả vỏ cả lá, từng miếng, từng miếng nuốt vào. Khuôn mặt trắng bệch, hai má ửng hồng, nhưng mà dáng người uể oải, đầu tóc cũng xác xơ, mồ hôi đọng lại thành băng, rồi bị hơi nóng chuyển thành lỏng, cuối cùng bốc hơi, để lại một mùi hương thanh nhã dễ chịu.  
 
 Hai mắt tiểu Lạc Vân dần dần nhắm lại. 
 
@@ -22,9 +22,11 @@ Một đống lửa cứ như vậy mà thành.
 
 Lửa cháy rất vượng, nhiệt độ không tính là cao, nhưng giữa trời tuyết cũng không tắt, cũng không có dấu hiệu suy tàn. 
 
-Tiểu Ô Quy xoa xoa cằm, đắn đo suy nghĩ một hồi, quyết định nhỏ một giọt hắc thuỷ trên lưng vào. 
+Uẩn Lôi Tùng Mộc vốn có hương thơm thanh nhẹ như lá non vừa độ, lúc đốt lên thì ướm khói mà nồng hơn, tựa như vừa pha thêm chút ớt, có chút bay lên trời, phần nhiều lại bám vào người tiểu Ô Quy. 
 
-Lửa bùng lên, tiểu Ô Quy chớp chớp mắt, đôi mắt vì gió tuyết mà hơi nhiễm hồng, nhìn bầu trời than thở: 
+Tiểu Ô Quy cũng là tay dùng độc, mặc kệ khói bám vào người, xoa xoa cằm, đắn đo suy nghĩ một hồi, quyết định nhỏ một giọt hắc thuỷ trên lưng vào. 
+
+Lửa bùng lên, tiểu Ô Quy chớp chớp mắt, đôi mắt vì gió tuyết và khói mà hơi nhiễm hồng, nhìn bầu trời than thở: 
 
 "Trên trời dưới đất, dùng nước nhóm lửa chỉ có Quy gia ... thật không ngờ Quy gia lại lưu lạc tới mức dùng Hỗn Độn Chân Thuỷ nhóm lửa ... tủi thay, buồn thay, chán chường thay ... aizz ..." 
 

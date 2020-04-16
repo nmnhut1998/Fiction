@@ -86,17 +86,21 @@ Một đạo lôi điện phóng ra, cũng khắc một ấn kí trên trán Ti�
 
 "Tiến vào Lôi Vực ngoài ấn kí bảo hộ, cũng phải luyện hoá một đầu hung thú, thu hoạch hỗn độn chi tinh làm nguồn năng lượng ..." 
 
+Lôi vân trên bầu trời dần dần tụ hội, chẳng những không mỏng đi mà ngày càng dày đặc, tạo thành một liên kết kì dị với bia Trấn Hung Phong Thiên, toàn bộ lực lượng lôi điện áp súc bên trong, không tiết ra ngoài một chút nào. 
+
 Ánh mắt trầm tư của Thanh Lôi Ưng rơi vào người Tiểu Lạc Vân. Vóc người tiểu Lạc Vân nhỏ hơn đa số ấu cầm, sức lực cũng không bằng. Nhưng thân hình nhỏ nhắn đó tốc độ lại không chậm, bàn tay trắng trắng hồng hồng đặt ở chỗ nào, tuyết ở chỗ đó liền tan ra thành nước. Ống tay áo quét qua, chất độc hoá thành khói tím bốc lên, bị hút vào trong tay áo. 
 
 Tiểu Thiên Nhi nằm trong tay áo, từng luồng khói tím quấn quanh, kéo theo một tia huyết khí của ấu cầm bị độc hương rút ra, thẩm thấu vào trong kén bướm. Trên kén bướm có quầng sáng hai màu tử lục lưu chuyển, hút lấy lớp dược phấn và độc phấn tinh mịn vốn bị Tiểu Lạc Vân giấu trong tay áo, màu lục ngày càng đậm, dần dần ngả sang đen, màu tím ngày càng sáng, từ từ chuyển thành trắng. 
 
-Ấu cầm nằm trong hố tuyết, hai mắt nhìn tiểu Lạc Vân giống như hai hòn lửa. Trên người tiểu Lạc Vân có mùi vị mà bất cứ dị thú nào cũng thèm muốn, nhưng lại càng có một chút gì đó, dù nhỏ nhoi khó thấy, nhưng uy nghiêm như đế hoàng, thánh thiện như thiên thần, không ai dám mạo phạm. Chúng bị trúng độc hương, lông vũ trên người rụng ít nhất một nửa, toàn thân vô lực cần phải ăn uống phục hồi, dù muốn mổ cho tiểu Lạc Vân một cái cũng không có sức lực. Đồng thời, lúc độc lực bị rút ra, chúng cảm thấy chân khí trong cơ thể tuy trống rỗng, nhưng khả năng dung nạp chân khí lại tăng thêm một chút. 
+Ấu cầm nằm trong hố tuyết, hai mắt nhìn tiểu Lạc Vân giống như hai hòn lửa. Trên người tiểu Lạc Vân có mùi vị mà bất cứ dị thú nào cũng thèm muốn, nhưng lại càng có một chút gì đó, dù nhỏ nhoi khó thấy, nhưng uy nghiêm như đế hoàng, thánh thiện như thiên thần, không ai dám mạo phạm. Chúng bị trúng độc hương, lông vũ trên người rụng ít nhất một nửa, toàn thân vô lực cần phải ăn uống phục hồi, dù muốn mổ cho tiểu Lạc Vân một cái cũng không có sức lực. Đồng thời, lúc độc lực bị rút ra, chúng cảm thấy chân khí trong cơ thể tuy trống rỗng, nhưng khả năng dung nạp chân khí lại tăng thêm một chút, đồng nghĩa với tu vi trực tiếp tăng lên. 
 
 Sư Vương trước nay đều ít khi cho tiểu Lạc Vân tiếp xúc dị thú, trong lòng Thanh Lôi Ưng tiểu Lạc Vân có lẽ chỉ sánh ngang với A Kiệt nhà mình. Nhưng hiện tại, Thanh Lôi Ưng đã thay đổi ý nghĩ. 
 
 Con người, mạnh nhất không bao giờ là vũ lực. 
 
-Cuồng Khấp Ngạ Quỷ Hương cùng với Mỹ Thiên Hương không phải không ai biết, nhưng tuyệt đối không thể làm cho cơ thể càng thêm hòa hợp với chân khí, chỉ có thứ được tiểu Lạc Vân điều chế mới có tác dụng như vậy. Năm nay tiểu Lạc Vân ba tuổi đã có thể tạo ra dược hương như vậy, đến khi hoàn toàn trưởng thành, học được bản lãnh của Sư Vương, vậy thì sẽ thế nào?
+Cuồng Khấp Ngạ Quỷ Hương cùng với Mỹ Thiên Hương không phải không ai biết, có thể thúc đẩy quá trình tu luyện, làm cho tốc độ tu luyện nhanh gấp đôi, nhưng tuyệt đối không thể tăng mức độ hoà hợp của chân khí và cơ thể, trực tiếp tăng tu vi của man thú. Đây là do Sư Vương cải tiến hay là tiểu Lạc Vân tự làm? 
+
+Năm nay tiểu Lạc Vân ba tuổi đã có thể tạo ra dược hương như vậy, đến khi hoàn toàn trưởng thành, học được bản lãnh của Sư Vương, vậy thì sẽ thế nào?
 
 Tiểu Lạc Vân thực sự là một đứa trẻ loài người không có linh căn tu luyện sao? 
 
@@ -112,6 +116,10 @@ Tiểu Lạc Vân dựa lưng vào bia Trấn Hung Phong Thiên, Thiên Hồ Ph�
 
 Không ai để ý tiểu Lạc Vân đang thổi sáo, giống như tiếng sáo không hiện hữu, hoặc là nó đã hoà hợp khắp mọi nơi, trở thành một bộ phận bình thường của thế giới xung quanh, tựa như là tiếng gió, tiếng sấm, tiếng hít thở. 
 
+Thanh Lôi Ưng híp mắt, âm thầm gật đầu. Tiếng sáo này gần giống với dùng thần thức dò xét, có tác dụng cảnh giác rất tốt. Thủ đoạn như vậy rất giống với thiên phú dùng thanh âm dò xét của Ám Dực Tử Mao Bức, cần phải luyện tập rất nhiều mới có thể thuần thục. 
+
+Hiện giờ Lôi Vực cần tập trung năng lượng vận hành trận pháp, mở ra thông đạo tiến vào, không thể bảo hộ dị thú nữa, cẩn thận như vậy là cần thiết. 
+
 Cũng vào lúc đó, chợt có một âm thanh không hoà hợp, giống như một tiếng tim đập chệch, một tiếng thở mạnh không đúng lúc, làm phá huỷ không khí trầm lặng. 
 
 "Các!" 
@@ -120,9 +128,20 @@ Cũng vào lúc đó, chợt có một âm thanh không hoà hợp, giống như
 
 Con mắt nhắm nhắm hờ của Thanh Lôi Ưng dẫn đường đột nhiên mở ra, một tiếng ưng kêu vang vọng núi rừng, Uẩn Lôi Tùng Mộc mọc gần đó bị âm thanh chấn nổ tung. Toàn bộ phi cầm đều đập cánh bay lên không. 
 
-Tiểu Lạc Vân đứng phắt dậy, Thiên Hồ Pháp Địch rít lên một tiếng, một đám lôi vân hiện ra, nâng tiểu Lạc Vân đứng trên bia Trấn Hung Phong Thiên. Lưu Ly Bảo Y phấp phới, phát ra từng đợt linh khí dao động, Tang Cung đã lắp tên, kéo căng ra, lôi quang sáng loà, làm cho Thanh Lôi Ưng cũng ba phần kiêng kị. 
+Tiểu Lạc Vân đứng phắt dậy, Thiên Hồ Pháp Địch rít lên một tiếng, một đám lôi vân hiện ra, nâng tiểu Lạc Vân đứng trên bia Trấn Hung Phong Thiên. Lưu Ly Bảo Y phấp phới, phát ra từng đợt linh khí dao động, Tang Cung đã lắp tên, lôi quang sáng loà, làm cho Thanh Lôi Ưng cũng ba phần kiêng kị. 
 
 Một, hai, ba ... bốn mươi sáu đầu phi cầm kết thành trận hình, vững vàng ở trên không. 
 
 Không đúng! Vẫn thiếu ba đầu phi cầm! 
 
+"Tất cả cẩn thận!" 
+
+Gió tuyết ngày một lớn, xoáy bông tuyết xoay tròn. Có tiếng hát nhẹ nhàng cất lên từ hư vô: 
+
+"À ơi ... ru con con ngủ cho lành ... mẹ đi nấu cháo hành cho cha ... cha con đánh giặc xa nhà ... đường mây gió núi thân già ốm o ... " 
+
+Giữa bầy ấu cầm, một bóng người ngưng tụ từ vô số hoa tuyết xuất hiện. 
+__________________
+Đình viện u tĩnh, Sư Vương nhìn chằm chằm bản đồ trên bàn, sắc mặt trắng bệch, âm thanh run run: 
+
+"Không thể nào ... làm sao xuất hiện ở đây ... Vân nhi gặp nguy hiểm!"

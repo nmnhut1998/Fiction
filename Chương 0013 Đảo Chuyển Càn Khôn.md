@@ -198,7 +198,7 @@ Thời tiết dần chuyển lạnh, tuyết rơi. Sương mù chuyển thành h
 
 Tiểu Lạc Vân biết Đảo Chuyển Càn Khôn đã đưa mình tới một chỗ khác, liền cố gắng đi thật nhanh, vận động thật nhiều, Quang Đăng Hoa Diễm trong cơ thể cũng bị bài tiết ra, sưởi ấm cơ thể, nói chung không có biểu hiện lo lắng quá nhiều. 
 
-Nhưng mà tiểu Ô Quy nhìn thấy Uẩn Lôi Tùng Mộc, lại nhớ lại lời của Sư Vương nói với tiểu Lạc Vân, trong lòng đột nhiên không yên, bất an, lo lắng, tựa như có một tảng đá đè nặng. 
+Nhưng mà tiểu Ô Quy nhìn thấy Uẩn Lôi Tùng Mộc, lại nhớ lại lời của Sư Vương nói với tiểu Lạc Vân, trong lòng đột nhiên không yên, bất an, lo lắng, tựa như có một tảng đá đè nặng. Hắn cảm thấy giống như có một đôi mắt đang bí mật dõi theo, tuỳ thời sẽ ra tay đánh cho một kích trí mạng.  
 
 Mọi chuyện hiện tại, tính đến cùng đều là có lợi với tiểu Lạc Vân, nằm trong tầm kiểm soát của Sư Vương. 
 
