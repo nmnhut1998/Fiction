@@ -95,11 +95,11 @@ Nhưng chỉ bấy nhiêu thôi cũng đủ làm toàn bộ sinh vật ở chỗ
 
 Hồng Y Nữ Quỷ bị ba mũi tên bắn lui, cánh tay bị đẩy ra làm cho mấy giọt "cháo" màu xám văng tung toé, ấu cầm không may dính phải đều bốc hơi, biến thành một đám khói dung nhập vào cơ thể nàng. 
 
-Ba mũi tên cắm ở trên đoá hoa trên ngực nàng không một dấu vết bị hoà tan, ngay cả khí linh cũng biến mất, nàng không chút tổn hại, ánh mắt mờ mịt nhìn tiểu Lạc Vân sau bia đá. 
+Ba mũi tên cắm ở trên đoá hoa trên ngực nàng bị hoà tan, không dấu vết, ngay cả khí linh ở trên mũi tên cũng biến mất, nàng không chút tổn hại, ánh mắt mờ mịt nhìn tiểu Lạc Vân sau bia đá. 
 
 "Ngươi ... muốn giết con ta ..." 
 
-Lạc Vân hít sâu một hơi, phát hiện cơ thể nàng vậy mà có mùi hương đặc thù, thành phần bên trong chắc chắn có Uẩn Lôi Tùng Mộc, hơn nữa còn có một loại hương hoa mà tiểu Lạc Vân đã từng gặp qua, nhưng mà nhất thời không nhớ tên. 
+Lạc Vân hít sâu một hơi, phát hiện cơ thể nàng vậy mà có mùi hương đặc thù, thành phần bên trong chắc chắn có Uẩn Lôi Tùng Mộc, hơn nữa còn có một loại hương hoa mà tiểu Lạc Vân đã từng gặp qua, nhưng mà nhất thời không nhớ tên. Duy nhất chỉ chắc chắn một điều, mùi hương này khắc chế lôi điện. 
 
 "Vút! Vút" 
 
@@ -123,11 +123,11 @@ Tiểu Lạc Vân mười ngón tay lướt trên Thiên Hồ Pháp Địch, dò
 
 Thanh Lôi Ưng nghe âm thanh này lập tức tỉnh lại từ trong mê mang, ánh mắt hiện lên vẻ hoảng sợ, quỳ rạp xuống. Tiểu Lạc Vân nhảy lên lưng Thanh Lôi Ưng. Thanh Lôi Ưng hoá thành cự cầm, vung vuốt kéo đám ấu cầm bị hôn mê lên lưng, đập cánh bay lên, chẳng mấy chốc đã rời đỉnh núi. 
 
-Cơ thể tiểu Lạc Vân không có linh căn, thậm chí không chứa được chân khí linh khí, linh khí vào cơ thể theo thời gian sẽ bị bài tiết ra bên ngoài, từ từ tan biến, nhưng hắn có một người cha tốt. Sư Vương định kì sẽ rót tinh huyết vào người tiểu Lạc Vân, loại tinh huyết này đã trải qua bí thuật luyện hoá, có thể tồn tại trong người tiểu Lạc Vân một khoảng thời gian. Điều này giống như Sư Vương cắt bỏ một phần tu vi, đem đặt trên người tiểu Lạc Vân Cơ thể tiểu Lạc Vân lại có sức chịu tải tốt, linh khí không làm bạo thể. Vì vậy, phần lớn pháp thuật tiểu Lạc Vân đều dùng máu làm môi giới phát ra.
+Cơ thể tiểu Lạc Vân không có linh căn, thậm chí không chứa được chân khí linh khí, linh khí vào cơ thể theo thời gian sẽ bị bài tiết ra bên ngoài, từ từ tan biến, nhưng hắn có một người cha tốt. Sư Vương định kì sẽ rót tinh huyết vào người tiểu Lạc Vân, loại tinh huyết này đã trải qua bí thuật luyện hoá, có thể tồn tại trong người tiểu Lạc Vân một khoảng thời gian. Điều này giống như Sư Vương cắt bỏ một phần tu vi, đem đặt trên người tiểu Lạc Vân Cơ thể tiểu Lạc Vân lại có sức chịu tải, linh khí không làm bạo thể. Vì vậy, phần lớn pháp thuật tiểu Lạc Vân đều dùng máu làm môi giới phát ra.
 
 Cho nên tiểu Lạc Vân tuy không thể tu luyện, nhưng một chút tuyệt kĩ thần thông có thể học, tỉ như âm đạo chi thuật. Âm đạo chi thuật vô hình, chủ yếu là nhắm vào thần thức, con đường tu luyện giống như phù văn chi đạo, không cần tu vi cao siêu, thân thể cường hoành, mà cần lĩnh ngộ cùng với phương thức, số lượng linh khí chỉ là công cụ. 
 
-Âm thanh kia là Cự Viên tình cờ tìm được nhạc phổ, bên trong lưu giữ được một tiếng phượng hoàng cất cánh hót vang, để cho tiểu Lạc Vân khổ cực ba năm bắt chước, cuối cùng cũng giống được một chút da lông. Tác dụng của nó kì thực không có gì huyền diệu, là cáo mượn oai hùm trong lúc nguy cấp có thể tạm thời khống chế phi cầm. 
+Âm thanh kia là Cự Viên tình cờ tìm được nhạc phổ, bên trong lưu giữ được một tiếng phượng hoàng cất cánh hót vang, để cho tiểu Lạc Vân khổ cực ba năm bắt chước, cuối cùng cũng giống được một chút da lông. Tác dụng của nó kì thực không có gì huyền diệu, là cáo mượn oai hùm trong lúc nguy cấp có thể tạm thời khống chế phi cầm, chính là thủ đoạn đào mệnh áp đáy rương của tiểu Lạc Vân. 
 
 Phượng hoàng là vua của bách điểu, một lệnh ban ra tất phải được phục tùng. Thanh Lôi Ưng coi rẻ cả trời, nhưng lại kính trọng phượng hoàng, nếu lúc Thanh Lôi Ưng tỉnh lại biết tiểu Lạc Vân giả mạo, không chừng có thể liều mạng với hắn. 
 
