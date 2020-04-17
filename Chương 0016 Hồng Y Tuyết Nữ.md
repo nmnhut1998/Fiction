@@ -53,14 +53,81 @@ Không biết là chuyện gì, phía trước truyền đến tiếng va chạm
 
 Hồng Y Nữ Quỷ ghìm chặt tiểu Ô Quy trong lòng, tiếng hát ru trở nên càng dịu dàng, tay còn lại múc một muỗng "cháo" xám xịt gay mũi nhét vàng miệng Tiểu Ô Quy, bị tiểu Ô Quy hất văng đi. 
 
-"Cút! Quy gia có tay có chân, tự ăn tự lo! Quy gia không có cha mẹ!" 
+"Tiện xà, cút! Quy gia có tay có chân, tự ăn tự lo! Quy gia không có cha mẹ!" 
 
 Hồng Y Nữ Quỷ nhỏ giọng nói mấy tiếng "Con ngoan, đừng hư hỏng ...", cánh tay ghìm càng chặt, chiếc muỗng cạy hàm Tiểu Ô Quy muốn thọc sâu vào. 
 
-Tiểu Ô Quy không mở miệng chửi bới nữa, hai mắt đỏ ngầu, long lên sòng sọc. Quy văn trên mai rùa đột nhiên sáng lên, hỗn độn chi thuỷ chảy ngược. Liền sau đó, ầm một tiếng, mai rùa vỡ. 
+Tiểu Ô Quy không mở miệng chửi bới nữa, hai mắt đỏ ngầu, long lên sòng sọc, trong mắt hắn là hình ảnh một hắc sắc cự xà khổng lồ quấn quanh mình, cái đầu lớn cúi xuống mớm xà nhũ cho hắn.  
 
-"À ... ùm ..."
+Giãy dụa ngày càng dữ dội, quy văn trên mai rùa đột nhiên sáng lên, hỗn độn chi thuỷ chảy ngược. Liền sau đó, ầm một tiếng, mai rùa vỡ. 
 
-Tiếng thú rống như vọng về từ viễn cổ, Huyền Quy Toái Giáp triệu hồi ra một hư ảnh cự thú khổng lồ, bao bọc tiểu Ô Quy. 
+"Huyền ..."
 
-Nàng không phải thực thể, là một đám linh hồn bị xé vụn, bám vào tùng mộc hương, ngày qua ngày, đêm qua đêm, một tia hương khí vất vưởng mãi không tan, làm cho linh hồn nàng không tán. Chừng nào Tùng Mộc còn ra lá nở hoa, hồn nàng không tàn không diệt. 
+Âm bạo như vọng về từ viễn cổ, Huyền Quy Toái Giáp triệu hồi ra một hư ảnh cự thú khổng lồ, bao bọc tiểu Ô Quy, hàng trăm mạch máu trên người tiểu Ô Quy đứt ra, chuyển động như long xà bám vào hư ảnh, huyết dịch rót vào, làm cho hư ảnh thêm ngưng thực. 
+
+"V ..." 
+
+Một chữ Huyền, lại thêm nửa chữ chưa thành âm, giống như xuyên qua thời không, gia trì trên người tiểu Ô Quy. Hư ảnh khổng lồ gian nan nhấc một chân nhấc một chân, Hồng Y Nữ Quỷ bị đánh bay, tóc biến thành vô số huyết dịch rơi vãi đất, bộ váy lông vũ tán loạn. 
+
+Tiểu Ô Quy hai mắt đỏ như lệ quỷ, tơ máu giăng đầy, toàn thân be bét máu, bốn chân run run bám vào đất, đầu rùa duỗi thẳng ngẩng cao, hai mắt chảy huyết lệ, nói bằng một giọng khàn khàn như cổ họng bị xé rách: 
+
+"Cút! Tiện xà bò tới một bước, Huyền Vũ từ nay tuyệt diệt."  
+
+Một màn này còn máu me hơn cả Hồng Y Tuyết Nữ, nhưng lại thê lương quặn lòng. Máu tiểu Ô Quy hoà cùng Hỗn Độn Chi Thuỷ, nhuộm tuyết thành một màu đen sì
+
+Tiểu Lạc Vân đột ngột cảm thấy, thậm chí là mỗi lá cây ngọn cỏ trong Cổ Lâm cũng đều có chuyện xưa của riêng mình. 
+
+Trong mắt ấu cầm, Hồng Y Tuyết Nữ là chim mẹ bươn chải, ủ con trong tổ ấm. Trong mắt Phong Lôi Ưng dẫn đường, đó là kẻ đã ném một tiểu Thanh Lôi Ưng từ trên vách đá, sau đó quay mặt bỏ đi. Còn trong mắt tiểu Ô Quy, đó là một cự xà đáng căm hận. 
+
+Hồng Y Nữ Quỷ ánh mắt lại mờ mịt, một lần nữa bước tới. Trên người tiểu Ô Quy, hai chân sau nổ tung, hư ảnh cự thú một lần nữa ngưng thực, tiểu Ô Quy cuối cùng phát ra một chữ.
+
+"Vũ ..." 
+
+Huyền, Vũ. Hai chữ xuyên qua thời không tìm về hiện tại, tựa như có thiên đạo gia trì, vô số linh khí trong Cổ Lâm hướng về tuyết sơn mà đi. Hư ảnh cự lại nhấc chân quét ngang, thân hình Hồng Y Nữ Quỷ bị đánh nát một bên vai. Tiểu Ô Quy cũng giống như dầu hết đèn tắt, ngất xỉu, tim đập chậm dần dần, nhỏ yếu, nhỏ yếu. 
+
+"Vút! Vút! Vút"
+
+Ba tiếng vang lên gần như là cùng lúc, lôi quang mỏng như sợi tơ lướt qua không khí, cắm trên trái tim của Hồng Y Nữ Quỷ. Trong thân thể nàng phát ra tiếng sư ngâm, làm cho hoa tuyết rơi xuống, nhưng quỷ dị chính là tiểu lôi sư khí linh của Tang Cung không có hiện thân, hay nói đúng hơn, bị giam trong người nàng. 
+
+Vị trí tim nàng là cánh hoa trắng muốt, phía trên có trận pháp dùng máu huyết thần thánh thuần khiết mà hoạ thành, cho nên nàng có thể ngưng tụ hình thể, nhưng vì chỉ có tim mà không có đại não, cho nên chỉ có một chút chấp nhất của tàn hồn, hành động cứng ngắt. 
+
+Nhưng chỉ bấy nhiêu thôi cũng đủ làm toàn bộ sinh vật ở chỗ này biến thành xương vụn thịt nát. 
+
+Hồng Y Nữ Quỷ bị ba mũi tên bắn lui, cánh tay bị đẩy ra làm cho mấy giọt "cháo" màu xám văng tung toé, ấu cầm không may dính phải đều bốc hơi, biến thành một đám khói dung nhập vào cơ thể nàng. 
+
+Ba mũi tên cắm ở trên đoá hoa trên ngực nàng không một dấu vết bị hoà tan, ngay cả khí linh cũng biến mất, nàng không chút tổn hại, ánh mắt mờ mịt nhìn tiểu Lạc Vân sau bia đá. 
+
+"Ngươi ... muốn giết con ta ..." 
+
+Lạc Vân hít sâu một hơi, phát hiện cơ thể nàng vậy mà có mùi hương đặc thù, thành phần bên trong chắc chắn có Uẩn Lôi Tùng Mộc, hơn nữa còn có một loại hương hoa mà tiểu Lạc Vân đã từng gặp qua, nhưng mà nhất thời không nhớ tên. 
+
+"Vút! Vút" 
+
+Hồng Y Nữ Quỷ thét lên, lao về phía trước, tiểu Lạc Vân dậm chân nhảy ngược về phía sau, Tang Cung trên tay lắp ba mũi tên, bắn ra cùng lúc. 
+
+Dây của Tang Cung bị máu của tiểu Lạc Vân nhuộm đỏ, bên trong thân cung lại một lần nữa sinh ra tiếng sư ngâm. Tiểu Lạc Vân cầm Tang Cung nhả tên, trên người mất đi hương vị trẻ con dễ thương, ngược lại giống như quân nhân lão luyện, như thợ săn lành nghề, động tác không có nửa phần dư thừa. Kéo cung, cắt máu, lắp tên, bắn. Lưu loát.
+
+Ba mũi tên vẽ đường vòng cung, bay về ba hướng khác nhau. 
+
+Mũi tên thứ nhất là một mũi tên bằng vàng ròng, vừa rời cung phát ra Phật âm ngâm xướng, lúc chạm vào người Nữ Quỷ thì nổ tung, biến thành một sợi xích vàng, trên xích dán đầy phù lục. Mũi tên này không thể xuyên thủng đoá hoa trắng quỷ dị kia, nhưng lại trói buộc thân thể cùng linh hồn. Nữ Quỷ không có thực thể, hình thể của nàng là do tuyểt ngưng thành, tấn công vào bộ vị khác hoàn toàn không có kết quả. 
+
+Mũi tên thứ hai giống như một cành cây khô, phần đuôi buộc thêm tơ Lưu Ly Tri Chu, phóng về phía đàn ấu cầm. Khi đến gần đàn ấu cầm, mũi tên mọc ra dây leo, dệt thành lưới Thanh Võng, bao trọn đàn ấu cầm bên trong. Trên mũi tên mang theo độc hương, ấu cầm vừa ngửi vào đã ngất xỉu. 
+
+Mũi tên cuối cùng đen kịt, lạnh lẽo thấu xương như mặc băng vạn năm, cắm vào người tiểu Ô Quy, lập tức biến hắn trở thành một khối băng đen, sau đó cũng bị Thanh Võng thu vào. 
+
+Tim của tiểu Lạc Vân nhảy loạn xạ, toàn bộ đều làm việc theo bản năng, theo diễn luyện vô số lần, chỉ là bình thường lúc chiến đấu đều có Sư Vương âm thầm theo dõi. Hiện giờ, tiểu Lạc Vân đang liên tục tự nói với mình "Cha chắc chắn đã biết chuyện. Dong gia gia cũng đã biết, viện binh nhất định sẽ tới." 
+
+"Kworkkkkkkkkk!" 
+
+Tiểu Lạc Vân mười ngón tay lướt trên Thiên Hồ Pháp Địch, dòng máu màu vàng kim từ miệng phun ra, xuyên qua Thiên Hồ Pháp Địch biến thành một tiếng chim lảnh lót. Chỉ là một âm ba, nhưng lại mang theo đạo vận, cộng hưởng vạn vật xung quanh. Đây là tuyệt kĩ duy nhất tiểu Lạc Vân có thể dùng Thiên Hồ Pháp Địch phát ra. 
+
+Thanh Lôi Ưng nghe âm thanh này, ánh mắt lập tức hiện lên vẻ hoảng sợ, quỳ rạp xuống. Tiểu Lạc Vân nhảy lên lưng Thanh Lôi Ưng, lại buộc một lưới Thanh Võng toàn dị thú ngủ say. Thanh Lôi Ưng đập cánh bay lên, chẳng mấy chốc đã rời đỉnh núi. 
+
+Cơ thể tiểu Lạc Vân không có linh căn, thậm chí không chứa được chân khí linh khí, linh khí vào cơ thể theo thời gian sẽ bị bài tiết ra bên ngoài, từ từ tan biến, nhưng hắn có một người cha tốt. Sư Vương định kì sẽ rót tinh huyết vào người tiểu Lạc Vân, loại tinh huyết này đã trải qua bí thuật luyện hoá, có thể tồn tại trong người tiểu Lạc Vân một khoảng thời gian. Điều này giống như Sư Vương cắt bỏ một phần tu vi, đem đặt trên người tiểu Lạc Vân Cơ thể tiểu Lạc Vân lại có sức chịu tải tốt, linh khí không làm bạo thể. Vì vậy, phần lớn pháp thuật tiểu Lạc Vân đều dùng máu làm môi giới phát ra.
+
+Cho nên tiểu Lạc Vân tuy không thể tu luyện, nhưng một chút tuyệt kĩ thần thông có thể học, tỉ như âm đạo chi thuật. Âm đạo chi thuật vô hình, chủ yếu là nhắm vào thần thức, con đường tu luyện giống như phù văn chi đạo, không cần tu vi cao siêu, thân thể cường hoành, mà cần lĩnh ngộ cùng với phương thức, số lượng linh khí chỉ là công cụ. 
+
+Âm thanh kia là Cự Viên tình cờ tìm được nhạc phổ, bên trong lưu giữ được một tiếng phượng hoàng cất cánh hót vang, để cho tiểu Lạc Vân khổ cực ba năm bắt chước, cuối cùng cũng giống được một chút da lông. Tác dụng của nó kì thực không có gì huyền diệu, là cáo mượn oai hùm trong lúc nguy cấp có thể tạm thời khống chế phi cầm. 
+
+Phượng hoàng là vua của bách điểu, một lệnh ban ra tất phải được phục tùng, nhưng nếu lúc Thanh Lôi Ưng tỉnh lại biết tiểu Lạc Vân giả mạo, không chừng có thể liều mạng với hắn. 
+
