@@ -105,7 +105,7 @@ Lạc Vân hít sâu một hơi, phát hiện cơ thể nàng vậy mà có mùi
 
 Hồng Y Nữ Quỷ thét lên, lao về phía trước, tiểu Lạc Vân dậm chân nhảy ngược về phía sau, Tang Cung trên tay lắp ba mũi tên, bắn ra cùng lúc. 
 
-Dây của Tang Cung bị máu của tiểu Lạc Vân nhuộm đỏ, bên trong thân cung lại một lần nữa sinh ra tiếng sư ngâm. Tiểu Lạc Vân cầm Tang Cung nhả tên, trên người mất đi hương vị trẻ con dễ thương, ngược lại giống như quân nhân lão luyện, như thợ săn lành nghề, động tác không có nửa phần dư thừa. Kéo cung, cắt máu, lắp tên, bắn. Lưu loát.
+Dây của Tang Cung bị máu của tiểu Lạc Vân nhuộm đỏ, bên trong thân cung lại một lần nữa sinh ra tiếng sư ngâm. Tiểu Lạc Vân cầm Tang Cung nhả tên, trên người mất đi hương vị trẻ con dễ thương, ngược lại giống như quân nhân lão luyện, như thợ săn lành nghề, động tác không có nửa phần dư thừa. Kéo cung, cắt máu, lắp tên, bắn. Lưu loát. Toàn bộ chiến lực bộc phát. 
 
 Ba mũi tên vẽ đường vòng cung, bay về ba hướng khác nhau. 
 
@@ -121,7 +121,7 @@ Tim của tiểu Lạc Vân nhảy loạn xạ, toàn bộ đều làm việc th
 
 Tiểu Lạc Vân mười ngón tay lướt trên Thiên Hồ Pháp Địch, dòng máu màu vàng kim từ miệng phun ra, xuyên qua Thiên Hồ Pháp Địch biến thành một tiếng chim lảnh lót. Chỉ là một âm ba, nhưng lại mang theo đạo vận, cộng hưởng vạn vật xung quanh. Đây là tuyệt kĩ duy nhất tiểu Lạc Vân có thể dùng Thiên Hồ Pháp Địch phát ra. 
 
-Thanh Lôi Ưng nghe âm thanh này, ánh mắt lập tức hiện lên vẻ hoảng sợ, quỳ rạp xuống. Tiểu Lạc Vân nhảy lên lưng Thanh Lôi Ưng, lại buộc một lưới Thanh Võng toàn dị thú ngủ say. Thanh Lôi Ưng đập cánh bay lên, chẳng mấy chốc đã rời đỉnh núi. 
+Thanh Lôi Ưng nghe âm thanh này lập tức tỉnh lại từ trong mê mang, ánh mắt hiện lên vẻ hoảng sợ, quỳ rạp xuống. Tiểu Lạc Vân nhảy lên lưng Thanh Lôi Ưng. Thanh Lôi Ưng hoá thành cự cầm, vung vuốt kéo đám ấu cầm bị hôn mê lên lưng, đập cánh bay lên, chẳng mấy chốc đã rời đỉnh núi. 
 
 Cơ thể tiểu Lạc Vân không có linh căn, thậm chí không chứa được chân khí linh khí, linh khí vào cơ thể theo thời gian sẽ bị bài tiết ra bên ngoài, từ từ tan biến, nhưng hắn có một người cha tốt. Sư Vương định kì sẽ rót tinh huyết vào người tiểu Lạc Vân, loại tinh huyết này đã trải qua bí thuật luyện hoá, có thể tồn tại trong người tiểu Lạc Vân một khoảng thời gian. Điều này giống như Sư Vương cắt bỏ một phần tu vi, đem đặt trên người tiểu Lạc Vân Cơ thể tiểu Lạc Vân lại có sức chịu tải tốt, linh khí không làm bạo thể. Vì vậy, phần lớn pháp thuật tiểu Lạc Vân đều dùng máu làm môi giới phát ra.
 
@@ -129,5 +129,15 @@ Cho nên tiểu Lạc Vân tuy không thể tu luyện, nhưng một chút tuy�
 
 Âm thanh kia là Cự Viên tình cờ tìm được nhạc phổ, bên trong lưu giữ được một tiếng phượng hoàng cất cánh hót vang, để cho tiểu Lạc Vân khổ cực ba năm bắt chước, cuối cùng cũng giống được một chút da lông. Tác dụng của nó kì thực không có gì huyền diệu, là cáo mượn oai hùm trong lúc nguy cấp có thể tạm thời khống chế phi cầm. 
 
-Phượng hoàng là vua của bách điểu, một lệnh ban ra tất phải được phục tùng, nhưng nếu lúc Thanh Lôi Ưng tỉnh lại biết tiểu Lạc Vân giả mạo, không chừng có thể liều mạng với hắn. 
+Phượng hoàng là vua của bách điểu, một lệnh ban ra tất phải được phục tùng. Thanh Lôi Ưng coi rẻ cả trời, nhưng lại kính trọng phượng hoàng, nếu lúc Thanh Lôi Ưng tỉnh lại biết tiểu Lạc Vân giả mạo, không chừng có thể liều mạng với hắn. 
+
+Tiểu Lạc Vân nằm bất tỉnh trên lưng Thanh Lôi Ưng, Hồng Y Nữ Quỷ đã thoát khỏi trói buộc, thân thể phiêu phiêu trong gió, đang đuổi theo. 
+
+Đúng lúc này, trong cổ tay tiểu Lạc Vân, một luồng sáng hai màu bay ra, kêu lên hai tiếng "Hyla?"
+
+Tiểu Thiên Nhi bám trên lưng Thanh Lôi Ưng, buồn bực kêu lên một tiếng. Tiểu Ô Quy đồ linh tinh giấu trong mai rùa rất nhiều, nhưng quý giá thì không có vật nào, ngay cả thuốc chữa thương cũng không mang theo. 
+
+"Hyla? Hylia ..." 
+
+(Đây là Quy thái tử sao? Rõ ràng là khỉ! Đỗ nghèo khỉ!)
 
