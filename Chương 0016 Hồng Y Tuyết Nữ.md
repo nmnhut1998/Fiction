@@ -131,7 +131,7 @@ Cho nên tiểu Lạc Vân tuy không thể tu luyện, nhưng một chút tuy�
 
 Phượng hoàng là vua của bách điểu, một lệnh ban ra tất phải được phục tùng. Thanh Lôi Ưng coi rẻ cả trời, nhưng lại kính trọng phượng hoàng cường giả, nếu lúc Thanh Lôi Ưng tỉnh lại biết tiểu Lạc Vân giả mạo, không chừng có thể liều mạng với hắn. 
 
-Tiểu Lạc Vân mất máu quá nhiều, nằm sấp trên lưng Thanh Lôi Ưng, Hồng Y Nữ Quỷ đã thoát khỏi trói buộc, thân thể phiêu phiêu trong gió, đang đuổi theo. Hồng Y Nữ Quỷ bay ngang, ngay cả cây cỏ cũng reo hò, tựa như gặp được mẫu thân, cực kì quỷ dị. 
+Tiểu Lạc Vân mất máu quá nhiều, nằm sấp trên lưng Thanh Lôi Ưng. Hồng Y Nữ Quỷ đã thoát khỏi trói buộc, thân thể phiêu phiêu trong gió, đang đuổi theo. Nơi nào nàng bay ngang qua, ngay cả cây cỏ cũng reo hò, tựa như gặp được mẫu thân, cực kì quỷ dị. 
 
 Đúng lúc này, trong cổ tay tiểu Lạc Vân, một luồng sáng hai màu bay ra, kêu lên hai tiếng "Hyla?"
 
@@ -143,4 +143,12 @@ Tiểu Thiên Nhi bám trên lưng Thanh Lôi Ưng, buồn bực kêu lên một
 
 Tiếng gió rít gào vang lên sau lưng, Tiểu Thiên Nhi kêu lên một tiếng, thần sắc cực kì sợ hãi. 
 
-Bầy Hung Sát Đường Lang vốn đã rời đi, lúc này quay ngược lại đuổi theo bọn họ. 
+"Hylia!" 
+
+Bầy Hung Sát Đường Lang vốn đã rời đi, lúc này quay ngược lại đuổi theo bọn họ. Tiểu Lạc Vân miệng ngậm một miếng Xích Nhân Sâm to như bàn tay, nhai hai ba cái liền nuốt xuống, ngay cả mùi vị thế nào cũng không thể nhớ. Xích Nhân Sâm tuy là không thể trị mất máu, nhưng cho tiểu Lạc Vân chút sức lực, không đến nỗi ngất xỉu vì kiệt sức. 
+
+Thanh Lôi Ưng đã tỉnh dậy, biết lúc này nguy cấp, lập tức tăng độ cao bay vút lên không trung, tránh né hai mặt giáp công, lại đảo một vòng lớn, ý đồ muốn chui thẳng vào Lôi Vân tránh nạn. 
+
+Lưu Ly Bảo Y trên người tiểu Lạc Vân phát sáng, mấy sợi tơ nhện bay ra, Hung Sát Đường Lang bị Tiểu Thiên Nhi dùng độc hạ gục đều bị Lạc Vân kéo về, ngón tay vừa quẹt qua một đường máu đã biến chúng trở thành hỗn độn chi tinh cực kì tinh khiết. 
+
+Tiểu Lạc Vân không hấp thu mấy thứ này, mà liên tục đập vào người tiểu Ô Quy. Bên trong hỗn độn chi tinh hàm chứa hỗn độn, nghe nói có thể diễn hoá vạn vật, cực kì huyền diệu. Có hỗn độn chi tinh liên tục dung nhập cơ thể, vết thương trên người tiểu Ô Quy dần chuyển biến tốt, Hỗn Độn Chi Thuỷ lần nữa từ một khiếu huyệt trên tim chảy ra, lan tràn khắp cơ thể, cứng dần dần tạo thành một chiếc mai rùa mềm như sụn cá. Tính mạng của tiểu Ô Quy coi như không có nguy hiểm. 
