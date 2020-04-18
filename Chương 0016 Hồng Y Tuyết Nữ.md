@@ -117,9 +117,9 @@ Mũi tên cuối cùng đen kịt, lạnh lẽo thấu xương như mặc băng 
 
 Tim của tiểu Lạc Vân nhảy loạn xạ, toàn bộ đều làm việc theo bản năng, theo diễn luyện vô số lần, chỉ là bình thường lúc chiến đấu đều có Sư Vương âm thầm theo dõi. Hiện giờ, tiểu Lạc Vân đang liên tục tự nói với mình "Cha chắc chắn đã biết chuyện. Dong gia gia cũng đã biết, viện binh nhất định sẽ tới." 
 
-"Kworkkkkkkkkk!" 
+"Kworkkkkkkkkkkkkkkkkkkkkkkkkk!" 
 
-Tiểu Lạc Vân mười ngón tay lướt trên Thiên Hồ Pháp Địch, dòng máu màu vàng kim từ miệng phun ra, xuyên qua Thiên Hồ Pháp Địch biến thành một tiếng chim lảnh lót. Chỉ là một âm ba, nhưng lại mang theo đạo vận, cộng hưởng vạn vật xung quanh. Đây là tuyệt kĩ duy nhất tiểu Lạc Vân có thể dùng Thiên Hồ Pháp Địch phát ra. 
+Tiểu Lạc Vân mười ngón tay lướt trên Thiên Hồ Pháp Địch, dòng máu màu vàng kim từ miệng phun ra, xuyên qua Thiên Hồ Pháp Địch lỗ phát ra một tiếng chim lảnh lót. Chỉ là một âm ba, nhưng lại mang theo đạo vận, cộng hưởng vạn vật xung quanh. Đây là tuyệt kĩ duy nhất tiểu Lạc Vân có thể dùng Thiên Hồ Pháp Địch phát ra. 
 
 Thanh Lôi Ưng nghe âm thanh này lập tức tỉnh lại từ trong mê mang, ánh mắt hiện lên vẻ hoảng sợ, quỳ rạp xuống. Tiểu Lạc Vân nhảy lên lưng Thanh Lôi Ưng. Thanh Lôi Ưng hoá thành cự cầm, vung vuốt kéo đám ấu cầm bị hôn mê lên lưng, đập cánh bay lên, chẳng mấy chốc đã rời đỉnh núi. 
 
@@ -127,11 +127,11 @@ Cơ thể tiểu Lạc Vân không có linh căn, thậm chí không chứa đư
 
 Cho nên tiểu Lạc Vân tuy không thể tu luyện, nhưng một chút tuyệt kĩ thần thông có thể học, tỉ như âm đạo chi thuật. Âm đạo chi thuật vô hình, chủ yếu là nhắm vào thần thức, con đường tu luyện giống như phù văn chi đạo, không cần tu vi cao siêu, thân thể cường hoành, mà cần lĩnh ngộ cùng với phương thức, số lượng linh khí chỉ là công cụ. 
 
-Âm thanh kia là Cự Viên tình cờ tìm được nhạc phổ, bên trong lưu giữ được một tiếng phượng hoàng cất cánh hót vang, để cho tiểu Lạc Vân khổ cực ba năm bắt chước, cuối cùng cũng giống được một chút da lông. Tác dụng của nó kì thực không có gì huyền diệu, là cáo mượn oai hùm trong lúc nguy cấp có thể tạm thời khống chế phi cầm, chính là thủ đoạn đào mệnh áp đáy rương của tiểu Lạc Vân. 
+Âm thanh kia là Cự Viên trong một tìm được nhạc phổ, bên trong lưu giữ được một tiếng phượng hoàng cất cánh hót vang, để cho tiểu Lạc Vân khổ cực ba năm bắt chước, cuối cùng cũng giống được một chút da lông. Tác dụng của nó kì thực không có gì huyền diệu, là cáo mượn oai hùm trong lúc nguy cấp có thể tạm thời khống chế phi cầm, chính là thủ đoạn đào mệnh áp đáy rương của tiểu Lạc Vân. 
 
-Phượng hoàng là vua của bách điểu, một lệnh ban ra tất phải được phục tùng. Thanh Lôi Ưng coi rẻ cả trời, nhưng lại kính trọng phượng hoàng, nếu lúc Thanh Lôi Ưng tỉnh lại biết tiểu Lạc Vân giả mạo, không chừng có thể liều mạng với hắn. 
+Phượng hoàng là vua của bách điểu, một lệnh ban ra tất phải được phục tùng. Thanh Lôi Ưng coi rẻ cả trời, nhưng lại kính trọng phượng hoàng cường giả, nếu lúc Thanh Lôi Ưng tỉnh lại biết tiểu Lạc Vân giả mạo, không chừng có thể liều mạng với hắn. 
 
-Tiểu Lạc Vân nằm bất tỉnh trên lưng Thanh Lôi Ưng, Hồng Y Nữ Quỷ đã thoát khỏi trói buộc, thân thể phiêu phiêu trong gió, đang đuổi theo. 
+Tiểu Lạc Vân mất máu quá nhiều, nằm bất tỉnh trên lưng Thanh Lôi Ưng, Hồng Y Nữ Quỷ đã thoát khỏi trói buộc, thân thể phiêu phiêu trong gió, đang đuổi theo. Hồng Y Nữ Quỷ bay ngang, ngay cả cây cỏ cũng reo hò, tựa như gặp được mẫu thân, cực kì quỷ dị. 
 
 Đúng lúc này, trong cổ tay tiểu Lạc Vân, một luồng sáng hai màu bay ra, kêu lên hai tiếng "Hyla?"
 
@@ -141,3 +141,6 @@ Tiểu Thiên Nhi bám trên lưng Thanh Lôi Ưng, buồn bực kêu lên một
 
 (Đây là Quy thái tử sao? Rõ ràng là khỉ! Đỗ nghèo khỉ!)
 
+Tiếng gió rít gào vang lên sau lưng, Tiểu Thiên Nhi kêu lên một tiếng, thần sắc cực kì sợ hãi. 
+
+Bầy Hung Sát Đường Lang vốn đã rời đi, lúc nào quay ngược lại đuổi theo bọn họ. 
