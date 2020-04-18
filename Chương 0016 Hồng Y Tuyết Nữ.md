@@ -131,7 +131,7 @@ Cho nên tiểu Lạc Vân tuy không thể tu luyện, nhưng một chút tuy�
 
 Phượng hoàng là vua của bách điểu, một lệnh ban ra tất phải được phục tùng. Thanh Lôi Ưng coi rẻ cả trời, nhưng lại kính trọng phượng hoàng cường giả, nếu lúc Thanh Lôi Ưng tỉnh lại biết tiểu Lạc Vân giả mạo, không chừng có thể liều mạng với hắn. 
 
-Tiểu Lạc Vân mất máu quá nhiều, nằm bất tỉnh trên lưng Thanh Lôi Ưng, Hồng Y Nữ Quỷ đã thoát khỏi trói buộc, thân thể phiêu phiêu trong gió, đang đuổi theo. Hồng Y Nữ Quỷ bay ngang, ngay cả cây cỏ cũng reo hò, tựa như gặp được mẫu thân, cực kì quỷ dị. 
+Tiểu Lạc Vân mất máu quá nhiều, nằm sấp trên lưng Thanh Lôi Ưng, Hồng Y Nữ Quỷ đã thoát khỏi trói buộc, thân thể phiêu phiêu trong gió, đang đuổi theo. Hồng Y Nữ Quỷ bay ngang, ngay cả cây cỏ cũng reo hò, tựa như gặp được mẫu thân, cực kì quỷ dị. 
 
 Đúng lúc này, trong cổ tay tiểu Lạc Vân, một luồng sáng hai màu bay ra, kêu lên hai tiếng "Hyla?"
 
