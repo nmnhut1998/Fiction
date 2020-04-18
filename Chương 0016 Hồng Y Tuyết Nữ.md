@@ -143,4 +143,4 @@ Tiểu Thiên Nhi bám trên lưng Thanh Lôi Ưng, buồn bực kêu lên một
 
 Tiếng gió rít gào vang lên sau lưng, Tiểu Thiên Nhi kêu lên một tiếng, thần sắc cực kì sợ hãi. 
 
-Bầy Hung Sát Đường Lang vốn đã rời đi, lúc nào quay ngược lại đuổi theo bọn họ. 
+Bầy Hung Sát Đường Lang vốn đã rời đi, lúc này quay ngược lại đuổi theo bọn họ. 
