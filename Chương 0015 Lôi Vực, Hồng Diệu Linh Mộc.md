@@ -138,7 +138,7 @@ Không đúng! Vẫn thiếu ba đầu phi cầm!
 
 Gió tuyết ngày một lớn, xoáy bông tuyết xoay tròn. Có tiếng hát nhẹ nhàng cất lên từ hư vô: 
 
-"À ơi ... ru con con ngủ cho lành ... mẹ đi nấu cháo hành cho cha ... cha con đánh giặc xa nhà ... đường mây gió núi thân già ốm o ... " 
+"À ơi ... quân đi đánh giặc đường xa ... con nhỏ ở nhà mỏi mặt đợi trông ... quân đi đánh giặc lập công ... 
 
 Giữa bầy ấu cầm, một bóng người ngưng tụ từ vô số hoa tuyết xuất hiện. 
 __________________

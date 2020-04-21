@@ -135,7 +135,7 @@ Tiểu Lạc Vân mất máu quá nhiều, nằm sấp trên lưng Thanh Lôi Ư
 
 Đúng lúc này, trong cổ tay tiểu Lạc Vân, một luồng sáng hai màu bay ra, kêu lên hai tiếng "Hyla?"
 
-Tiểu Thiên Nhi bám trên lưng Thanh Lôi Ưng, buồn bực kêu lên một tiếng. Tiểu Ô Quy đồ linh tinh giấu trong mai rùa rất nhiều, nhưng quý giá thì không có vật nào, ngay cả thuốc chữa thương cũng không mang theo. 
+Tiểu Thiên Nhi vẫn còn nằm trong kén, bám trên lưng Thanh Lôi Ưng, buồn bực kêu lên một tiếng. Tiểu Ô Quy đồ linh tinh giấu trong mai rùa rất nhiều, nhưng quý giá thì không có vật nào, ngay cả thuốc chữa thương cũng không mang theo. 
 
 "Hyla? Hylia ..." 
 
@@ -147,8 +147,18 @@ Tiếng gió rít gào vang lên sau lưng, Tiểu Thiên Nhi kêu lên một ti
 
 Bầy Hung Sát Đường Lang vốn đã rời đi, lúc này quay ngược lại đuổi theo bọn họ. Tiểu Lạc Vân miệng ngậm một miếng Xích Nhân Sâm to như bàn tay, nhai hai ba cái liền nuốt xuống, ngay cả mùi vị thế nào cũng không thể nhớ. Xích Nhân Sâm tuy là không thể trị mất máu, nhưng cho tiểu Lạc Vân chút sức lực, không đến nỗi ngất xỉu vì kiệt sức. 
 
+"Quay ngược về, trốn vào Lôi Vân" 
+
 Thanh Lôi Ưng đã tỉnh dậy, biết lúc này nguy cấp, lập tức tăng độ cao bay vút lên không trung, tránh né hai mặt giáp công, lại đảo một vòng lớn, ý đồ muốn chui thẳng vào Lôi Vân tránh nạn. 
 
 Lưu Ly Bảo Y trên người tiểu Lạc Vân phát sáng, mấy sợi tơ nhện bay ra, Hung Sát Đường Lang bị Tiểu Thiên Nhi dùng độc hạ gục đều bị Lạc Vân kéo về, ngón tay vừa quẹt qua một đường máu đã biến chúng trở thành hỗn độn chi tinh cực kì tinh khiết. 
 
 Tiểu Lạc Vân không hấp thu mấy thứ này, mà liên tục đập vào người tiểu Ô Quy. Bên trong hỗn độn chi tinh hàm chứa hỗn độn, nghe nói có thể diễn hoá vạn vật, cực kì huyền diệu. Có hỗn độn chi tinh liên tục dung nhập cơ thể, vết thương trên người tiểu Ô Quy dần chuyển biến tốt, Hỗn Độn Chi Thuỷ lần nữa từ một khiếu huyệt trên tim chảy ra, lan tràn khắp cơ thể, cứng dần dần tạo thành một chiếc mai rùa mềm như sụn cá. Tính mạng của tiểu Ô Quy coi như không có nguy hiểm. 
+
+"Đám tiểu trùng các ngươi coi bản thiếu gia là mèo bệnh sao?" 
+
+Tiểu Lạc Vân từ khi bước ra khỏi nhà tới giờ đều bị hung thủ truy đuổi, hết sức khổ sở, bây giờ bị một bầy tiểu hung trùng đuổi theo, nghẹn một bụng tức. Ngón tay lưu động trên Lưu Ly Bảo Y, viết thành một chữ "Trói" bằng máu. Lưu Ly Bảo Y phát sáng chói mắt, ba mươi sợi tơ phóng ra, đan thành lưới, chụp lấy Hung Sát Đường Lang phía sau hệt như đánh cá. 
+
+"Có tốc độ của Thanh Lôi Ưng, các ngươi đuổi không kịp bản thiếu gia!" 
+
+Một mẻ lại một mẻ Hung Sát Đường Lang đều bị một giọt máu nhỏ như đầu kim biến thành hỗn độn chi tinh. Thanh Lôi Ưng sau khi chứng kiến việc này, hai cánh run lên, suýt nữa quăng tiểu Lạc Vân xuống từ độ cao mấy ngàn trượng. 
