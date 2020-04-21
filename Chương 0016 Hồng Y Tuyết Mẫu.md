@@ -70,11 +70,11 @@ Kẻ nào đó đã dùng một đạo thần phù, biến nàng người không
 
 Tiểu Lạc Vân cũng cảm nhận được chấp niệm của nàng lúc nàng nhìn hắn bằng ánh mắt trìu mến. Thần thức của tiểu Lạc Vân vẫn chưa mở ra, nhưng vẫn cảm nhận được cảm xúc của bản thân giống như một vũng nước, bị niệm lực của nàng vặn vẹo, nhận thức nàng là mẹ. 
 
-Nàng muốn có một đứa con. Nàng muốn con của nàng. 
-
-"Thì ra cảm giác có mẹ là như vậy." - hắn cười với chính mình. 
+"Thì ra cảm giác có mẹ là như vậy."
 
 Luồng niệm lực kì dị này lại làm cho thần thức của dị thú sinh ra một luồng niệm lực khác phản hồi tác động lên bản thân nàng, làm cho nàng biến đổi. 
+
+Nàng muốn có một đứa con. Nàng muốn con của nàng. Vì con, nàng có thể biến đổi bản thân, làm hết thảy. 
 
 Đây là không phải lần đầu tiểu Lạc Vân tiếp xúc niệm lực, nhưng là lần đầu tiên gặp trường hợp niệm lực phản hồi như vậy. 
 
@@ -82,11 +82,22 @@ Luồng niệm lực kì dị này lại làm cho thần thức của dị thú 
 
 Vậy nên, niệm lực phản hồi cuối cùng không thành. Trong mắt Lạc Vân, nàng vẫn là Hồng Y Tuyết Mẫu. 
 
-"Trên đời không có thứ đáng sợ, chỉ là sợ thứ không biết. Đã biết rồi thì không còn đáng sợ." 
+Tuy vậy, tiểu Lạc Vân vẫn cảm thấy mất mát không hiểu, nhưng huấn luyện và dạy dỗ từ nhỏ của Sư Vương làm cho tiểu Lạc Vân hiểu được hiện tại mình cần phải làm chút gì đó. 
 
-Tiểu Lạc Vân lẩm bẩm một mình, cảm thấy cái mùi không thích hợp ở dưới chân làm mình quá mất mặt.
+"Viên thúc thúc hay nói: chuyện xấu thì đứng sau màn, chuyện tốt ra tay làm trước. Mặc dù đám phi cầm đáng ghét nhưng mà ... cứu một mạng chim còn hơn xây bảy tháp phù đồ." 
 
-Cha hay nói đây không phải là hèn nhát hay dũng cảm, mà là cách sống cần phải có. Kẻ hèn nhát nhất có đôi lúc là kẻ dũng cảm nhất, cho nên không cần phải cổ suý chuyện dũng khí. Nhưng mà đối với tiểu Lạc Vân, tè ra quần trước mặt một đám dị thú là chuyện đáng xấu hổ, rất là mất mặt. 
+"Trên đời không có thứ đáng sợ, chỉ là sợ thứ không biết. Đã biết rồi thì không còn đáng sợ. Phải, không đáng sợ, không đáng sợ."
+
+"Lạc Vân ta lúc hai tuổi đã đánh được với Hắc Ma Giao cửu giai, chạy thoát khỏi Mị Ly Miêu thập giai, đây chỉ là nữ quỷ không có linh trí, không đủ sợ, không đủ sợ, dù không có cha ở chỗ này vẫn không đủ sợ."
+
+"Nhưng mà chắc chắn cha vẫn còn dõi theo. Ta vẫn còn có Lưu Ly Bảo Y." 
+
+"Chính là như vậy, có thể đánh được." 
+
+Tiểu Lạc Vân lẩm bẩm một mình, cố gắng bỏ qua cảm xúc phức tạp trong đầu, lại chợt cảm thấy cái mùi không thích hợp ở dưới chân làm mình quá mất mặt. Thật là, bị doạ sợ tè ra quần. 
 
 "Nhưng mà đây là Thần Phù, Sinh Mệnh Lôi Phù a, làm sao phá?" 
 
+"Không đúng! Nhất định có người đứng phía sau thao túng, nàng chỉ là con rối!" 
+
+Tiểu Lạc Vân tuy có Sư Vương từ nhỏ rèn luyện cung tên, học cách chiến đấu nhưng kinh nghiệm vẫn rất non nớt, lúc nhận ra vấn đề thì Hồng Y Tuyết Mẫu đã lần nữa ngưng tụ thần hình. Lần này, liên tục ba đầu Mai Hoa Điểu bị Sinh Mệnh Lôi Phù thôn phệ. 
