@@ -138,7 +138,7 @@ Không đúng! Vẫn thiếu ba đầu phi cầm!
 
 Gió tuyết ngày một lớn, xoáy bông tuyết xoay tròn. Có tiếng hát nhẹ nhàng cất lên từ hư vô: 
 
-"Quân đi đánh giặc đường xa ... con nhỏ ở nhà mỏi mặt đợi trông ... quân đi đánh giặc lập công ... thiếp nhìn khung cửa chín trông mười chờ ..." 
+"Quân đi đánh giặc đường xa ... thiếp trồng một nhánh lan hoa đợi chàng ... đợi khi hoa trắng ngả vàng ... con ngoan đã lớn thì chàng về thăm ..."
 
 "Ầu ơ gió lạnh trời đông ... mẹ đốt than hồng ủ ấm cho con ... con ngoan ngủ giấc cho tròn ... thập phương thế giới còn chờ con đi ..." 
 

@@ -46,4 +46,20 @@ Tiểu Lạc Vân trên người có lực lượng thần bí bảo hộ, chỉ
 
 Phù văn đó là một đạo Thần Phù - Sinh Mệnh Lôi Phù, chỉ có ở trong sách. Thần Phù, ý chỉ cường giả Thần Cảnh mới đủ lực lượng tự mình vẽ ra. Cha Sư Vương cũng không thể làm được. 
 
-Chuyện tiếp theo cũng tới, Thần Phù loé sáng, tiểu Hoàng Tước biến mất không thấy. Tiểu Hoàng Tước đột ngột biến mất, cánh chim của Hoàng Tước mẹ trống rỗng. Nàng thét lên thê lương, một lần nữa biến thành Hồng Y Tuyết Mẫu. 
+Chuyện tiếp theo cũng tới, Thần Phù loé sáng, tiểu Hoàng Tước biến mất không thấy. Tiểu Hoàng Tước đột ngột biến mất, cánh chim của Hoàng Tước mẹ trống rỗng. 
+
+"Con của ta! Kẻ nào cướp con ta?" 
+
+Nàng thét lên thê lương, đau xé tâm can, lại lần nữa biến thành Hồng Y Tuyết Mẫu. Một trảo moi tim, muốn đánh bay Sinh Mệnh Lôi Phù ra ngoài, nhưng kim huyết không phải vật phàm, phù văn vẽ bằng kim huyết không dễ vỡ như vậy. 
+
+Nàng không có thực thể, hình dáng do tuyết ngưng thành, nước mắt chảy xuống cũng chỉ là băng tinh mong manh, rơi xuống đất liền vỡ tan tành. Ánh mắt của nàng mờ mịt mê mang, cánh tay quơ quào trong không khí. Nàng không có thị giác. 
+
+Nàng là gì? Là cương thi? Là quỷ hồn là hung thú? 
+
+Tiểu Lạc Vân không biết. Hắn chỉ cảm thấy trong lòng dâng lên một nỗi bi thương khó hiểu, có từ gì đó muốn thốt ra khỏi miệng, nhưng không làm được. Hắn thấy mình thật ra có chút đồng cảm. 
+
+Hẳn là một nữ hồn bị mất con, khi chết ngưng thành oán niệm, bị người ta lợi dụng? Kẻ nào ác độc đã dùng Sinh Mệnh Lôi Phù trói buộc nàng, không để nàng chuyển thế luân hồi? Là chấp niệm thế nào mà có thể ảnh hưởng cả linh thú, thậm chí làm ức chế linh tính của Thanh Liên Linh Bảo trên người tiểu Lạc Vân? 
+
+Nhưng tại sao mình cũng cảm thấy bi thương, thậm chí muốn gần nàng một chút? Cảm giác này làm tiểu Lạc Vân không hiểu, giống cuộc sống của mình vốn có một phần khuyết thiếu, mà cảm giác này là mảnh ghép còn thiếu. 
+
+Phi cầm tranh nhau cánh tay của nàng như bầy chim tranh mẹ. Cuối cùng, cánh tay chạm vào người A Kiệt. 
