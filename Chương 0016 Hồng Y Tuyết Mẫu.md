@@ -4,11 +4,13 @@ Thanh âm như tiếng thở than, nhập vào gió tuyết, bóng hình hiện 
 
 Quỷ dị chính là phi cầm khi nhìn thấy nàng, hai mắt đều đỏ hoe, giọt giọt nước mắt rơi xuống, đông thành băng châu trên nền tuyết trắng. 
 
+Hồng Y Tuyết Mẫu. 
+
 Ánh mắt nàng nhìn về tiểu Lạc Vân, đôi mắt trở nên hiền từ, trìu mến, môi đỏ mấp máy. Một luồng gió xuân thoảng qua giữa mùa đông lạnh lẽo, mang theo hương khí mới mẻ như hoa vừa chớm nở, như sữa mẹ còn ấm nóng. 
 
 "Con ngoan ... con ..."
 
-Phi cầm đồng loạt kêu lên ầm ĩ, hai cánh dang ra, vẫy vẫy như chim con tập bay, chen nhau đáp xuống mặt đất, chạy về phía nàng.
+Phi cầm - bao gồm cả Thanh Lôi Ưng dẫn đường - đồng loạt kêu lên ầm ĩ, hai cánh dang ra, vẫy vẫy như chim con tập bay, chen nhau đáp xuống mặt đất, chạy về phía nàng.
 
 "Các!" "Kwork!" "Riu ... riu ..." 
 
@@ -38,7 +40,10 @@ Cùng giai điệu, nhưng tiếng sáo của tiểu Lạc Vân như ngọc như
 
 Giai điệu quỷ dị này vang lên, trên ngực Hoàng Tước mẹ hiện ra một đoá hoa trắng muốt, hương thơm thanh nhã. Trên cánh hoa, kim huyết thánh khiết bị người dùng vẽ thành phù văn, một lần loé sáng đều thu lấy thiên phạt chi khí trong vòng mười trượng, lực lượng lôi phạt bị nàng hấp thu. 
 
-Tiểu Lạc Vân không nghiên cứu trận pháp, nhưng tiếp xúc nhiều với Sư Vương, đối với lực lượng lôi phạt rất quen thuộc, lập tức cảm nhận được điều quỷ dị này. Hắn cũng rất quen với kim huyết trên cánh hoa. Đây là tinh huyết của bản thân hắn. Có kẻ đã trộm tinh huyết, dùng máu vẽ phù. 
+Tiểu Lạc Vân suy nghĩ rất nhanh, từng hình ảnh lướt qua trong đầu. Hắn từng lén xem sách về Phù Đạo, lại tiếp xúc nhiều với Sư Vương, đối với lực lượng lôi phạt rất quen thuộc, lập tức cảm nhận được điều quỷ dị này. Hắn cũng rất quen với kim huyết trên cánh hoa. Đây là tinh huyết của bản thân hắn. Có kẻ đã trộm tinh huyết, dùng máu vẽ phù. 
 
-Chẳng lẽ tinh huyết để ở chỗ Viên thúc thúc bị trộm? 
+Tiểu Lạc Vân trên người có lực lượng thần bí bảo hộ, chỉ cần không tự nguyện, không ai có thể rút được tinh huyết. Chẳng lẽ tinh huyết để ở chỗ Viên thúc thúc bị trộm? 
 
+Phù văn đó là một đạo Thần Phù - Sinh Mệnh Lôi Phù, chỉ có ở trong sách. Thần Phù, ý chỉ cường giả Thần Cảnh mới đủ lực lượng tự mình vẽ ra. Cha Sư Vương cũng không thể làm được. 
+
+Chuyện tiếp theo cũng tới, Thần Phù loé sáng, tiểu Hoàng Tước biến mất không thấy. Tiểu Hoàng Tước đột ngột biến mất, cánh chim của Hoàng Tước mẹ trống rỗng. Nàng thét lên thê lương, một lần nữa biến thành Hồng Y Tuyết Mẫu. 
