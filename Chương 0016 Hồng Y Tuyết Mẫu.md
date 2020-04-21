@@ -54,12 +54,39 @@ Nàng thét lên thê lương, đau xé tâm can, lại lần nữa biến thàn
 
 Nàng không có thực thể, hình dáng do tuyết ngưng thành, nước mắt chảy xuống cũng chỉ là băng tinh mong manh, rơi xuống đất liền vỡ tan tành. Ánh mắt của nàng mờ mịt mê mang, cánh tay quơ quào trong không khí. Nàng không có thị giác. 
 
-Nàng là gì? Là cương thi? Là quỷ hồn là hung thú? 
+Một trảo lại đánh tới, tuyết vốn ngưng tụ thành thân thể bị đánh nát, chỉ còn một đoá hoa trắng muốt khẽ đập, nhưng mà tiếng khóc thê lương vẫn còn vang mãi. Chấp niệm của nàng mong manh mà bất diệt, tiếng thét đau đớn xé lòng người. Chấp niệm đó lan tràn trong không gian, giống như thứ cỏ mọc hoang, chỗ nào cũng bám rễ, chỗ nào cũng ảnh hưởng. 
 
-Tiểu Lạc Vân không biết. Hắn chỉ cảm thấy trong lòng dâng lên một nỗi bi thương khó hiểu, có từ gì đó muốn thốt ra khỏi miệng, nhưng không làm được. Hắn thấy mình thật ra có chút đồng cảm. 
+Dị thú nghe tiếng nàng, cảm nhận được chấp niệm của nàng tạo thành làn sóng vô hình, trong đầu lập có cảm giác đồng điệu, cùng rung động, ngũ giác cũng bị thay đổi, thần thức cũng bị che mờ. Nàng hát ru, dị thú xem nàng là mẹ. Nàng khóc gào, dị thú cùng bi thương.  
 
-Hẳn là một nữ hồn bị mất con, khi chết ngưng thành oán niệm, bị người ta lợi dụng? Kẻ nào ác độc đã dùng Sinh Mệnh Lôi Phù trói buộc nàng, không để nàng chuyển thế luân hồi? Là chấp niệm thế nào mà có thể ảnh hưởng cả linh thú, thậm chí làm ức chế linh tính của Thanh Liên Linh Bảo trên người tiểu Lạc Vân? 
+Tiểu Lạc Vân biết, thứ này gọi là niệm lực, là sức mạnh của thần thức. Niệm lực của nàng cực kì cường đại, nhưng lại bị chấp niệm nhiễu loạn. 
 
-Nhưng tại sao mình cũng cảm thấy bi thương, thậm chí muốn gần nàng một chút? Cảm giác này làm tiểu Lạc Vân không hiểu, giống cuộc sống của mình vốn có một phần khuyết thiếu, mà cảm giác này là mảnh ghép còn thiếu. 
+"Trả con lại cho ta ... ta muốn làm mẹ ..." 
 
-Phi cầm tranh nhau cánh tay của nàng như bầy chim tranh mẹ. Cuối cùng, cánh tay chạm vào người A Kiệt. 
+"Ta chỉ muốn làm mẹ một lần ... nó là con của ta ... là thai nhi ta mang ..."
+
+Thân thể tan rã chỉ còn một đoá hoa. Đó là trái tim nàng, cũng là một mảnh linh hồn nhỏ nhoi còn sót lại. Người có ba hồn bảy phách, nhưng linh hồn tựa như nước như khói, dù phân liệt thế nào cũng sẽ có đầy đủ hồn thể gồm đầu, thân, tứ chi. Là lực lượng nào có thể cắt xé ra thành từng mảnh nhỏ, chỉ còn lại trái tim, không có đầu, không tay không chân?
+
+Kẻ nào đó đã dùng một đạo thần phù, biến nàng người không ra người, quỷ không ra quỷ, chỉ để cho chấp niệm của nàng càng mạnh mẽ. 
+
+Tiểu Lạc Vân cũng cảm nhận được chấp niệm của nàng lúc nàng nhìn hắn bằng ánh mắt trìu mến. Thần thức của tiểu Lạc Vân vẫn chưa mở ra, nhưng vẫn cảm nhận được cảm xúc của bản thân giống như một vũng nước, bị niệm lực của nàng vặn vẹo, nhận thức nàng là mẹ. 
+
+Nàng muốn có một đứa con. Nàng muốn con của nàng. 
+
+"Thì ra cảm giác có mẹ là như vậy." - hắn cười với chính mình. 
+
+Luồng niệm lực kì dị này lại làm cho thần thức của dị thú sinh ra một luồng niệm lực khác phản hồi tác động lên bản thân nàng, làm cho nàng biến đổi. 
+
+Đây là không phải lần đầu tiểu Lạc Vân tiếp xúc niệm lực, nhưng là lần đầu tiên gặp trường hợp niệm lực phản hồi như vậy. 
+
+"Nhưng mà ta không có mẹ a ... ngay cả mẹ là thế nào cũng không biết."  
+
+Vậy nên, niệm lực phản hồi cuối cùng không thành. Trong mắt Lạc Vân, nàng vẫn là Hồng Y Tuyết Mẫu. 
+
+"Trên đời không có thứ đáng sợ, chỉ là sợ thứ không biết. Đã biết rồi thì không còn đáng sợ." 
+
+Tiểu Lạc Vân lẩm bẩm một mình, cảm thấy cái mùi không thích hợp ở dưới chân làm mình quá mất mặt.
+
+Cha hay nói đây không phải là hèn nhát hay dũng cảm, mà là cách sống cần phải có. Kẻ hèn nhát nhất có đôi lúc là kẻ dũng cảm nhất, cho nên không cần phải cổ suý chuyện dũng khí. Nhưng mà đối với tiểu Lạc Vân, tè ra quần trước mặt một đám dị thú là chuyện đáng xấu hổ, rất là mất mặt. 
+
+"Nhưng mà đây là Thần Phù, Sinh Mệnh Lôi Phù a, làm sao phá?" 
+
