@@ -138,9 +138,11 @@ Không đúng! Vẫn thiếu ba đầu phi cầm!
 
 Gió tuyết ngày một lớn, xoáy bông tuyết xoay tròn. Có tiếng hát nhẹ nhàng cất lên từ hư vô: 
 
-"À ơi ... quân đi đánh giặc đường xa ... con nhỏ ở nhà mỏi mặt đợi trông ... quân đi đánh giặc lập công ... 
+"Quân đi đánh giặc đường xa ... con nhỏ ở nhà mỏi mặt đợi trông ... quân đi đánh giặc lập công ... thiếp nhìn khung cửa chín trông mười chờ ..." 
 
-Giữa bầy ấu cầm, một bóng người ngưng tụ từ vô số hoa tuyết xuất hiện. 
+"Ầu ơ gió lạnh trời đông ... mẹ đốt than hồng ủ ấm cho con ... con ngoan ngủ giấc cho tròn ... thập phương thế giới còn chờ con đi ..." 
+
+Tiếng hát cùng tiếng sáo không hẹn mà hợp, làm cho tiểu Lạc Vân giật bắn người, ngừng thổi. Giữa bầy ấu cầm, một bóng người ngưng tụ từ vô số hoa tuyết xuất hiện. 
 __________________
 Đình viện u tĩnh, Sư Vương nhìn chằm chằm bản đồ trên bàn, sắc mặt trắng bệch, âm thanh run run: 
 
