@@ -230,7 +230,7 @@ Phi cầm phi thú nối đuôi nhau thành một dải bắc ngang trời.
 
 Phần phật! 
 
-Chân khí của dị thú điên cuồng rót xuống, lấy đạo tương sinh tương khắc mà bù khuyết cho nhau. Chân khí hoà vào ngọn lửa, lại quấn vào nhau, cuồng loạn khkkng ngừng, tạo nên chân khí phong bạo. 
+Chân khí của dị thú điên cuồng rót xuống, lấy đạo tương sinh tương khắc mà bù khuyết cho nhau. Chân khí hoà vào ngọn lửa, lại quấn vào nhau, cuồng loạn không ngừng, tạo nên chân khí phong bạo. 
 
 Cuồng phong nổi lên, từng cơn bão lửa như hổ mang lao vào bầy Hung Sát Đường Lang. 
 
@@ -241,6 +241,8 @@ Hung sát chi khí cung hoả diễm giằng co.
 “Uồm!” 
 
 Trong lửa đỏ, tiểu Linh Lung Tiên Lộc ưỡn ngực đứng thẳng, chân cắm vào đại địa, lộc giác càng ngày càng lớn, cuối cùng to như đại thụ, phân nhánh nở rộ, phát ra thất thải quang trụ như cây cao sừng sững, đón gió mà lên. Bụi mờ mờ mang theo thất thải chi quang khuếch tán ra. Cây cối trong rừng đón nhận thất thải chi quang, ở giữa biển lửa đâm chồi nảy lộc. 
+
+"Sinh Sinh Bất Tận!" 
 
 Mộc sinh hoả, hoả đốt thanh mộc, lửa cháy càng vượng! 
 
@@ -256,13 +258,13 @@ Năm mươi bóng trắng, năm mươi tiểu Tuyết Lang vẫn chưa dài hơn
 
 Xoạt xoạt. 
 
-Tiếng đi nhẹ nhàng như là nhảy múa, Kiếm Sư Hổ răng dài như kiếm, sắc bén vô song, so với quỷ hồn còn ma mị hơn, một cú nhảy, một con quỷ hồn tan xác.  
+Tiếng đi nhẹ nhàng như là nhảy múa, Kiếm Sư Hổ nanh dài như kiếm, sắc bén vô song, so với quỷ hồn còn ma mị hơn, một cú nhảy, một con quỷ hồn tan xác.  
 
 “Thanh Lâm Ngũ Tuyệt! Là Thanh Lâm Ngũ Tuyệt!” 
 
 “Các! Các!” 
 
-Trên bầu trời cao, ưng đề vọng xuống, một đạo quỷ hoả vô thanh vô tức xẹt qua, Thanh Lôi Ưng trong lúc vui mừng mất cảnh giác, cánh bị đốt trụi, thê lương cất lên tiếng hót cuối cùng. Như là hi vọng sáng lên. Như là hi vọng chợp tắt. 
+Trên bầu trời cao, ưng đề vọng xuống, một đạo quỷ hoả vô thanh vô tức xẹt qua, Thanh Lôi Ưng trong lúc vui mừng mất cảnh giác, cánh bị đốt trụi, thê lương cất lên tiếng hót cuối cùng. Như là hi vọng sáng lên. Như là hi vọng chợt tắt. 
 
 “Thay ta báo thù!” 
 
@@ -302,7 +304,7 @@ Hư ảnh hai chân đứng như người, đầu rồng vuốt hổ, cánh chim
 
 Guồng pháo xoay chuyển, Vạn Diệu Hồi Nguyên Pháo, bắn! 
 
-Hơn ngàn dị thú cùng hợp lực vận chuyển, Vạn Diệu Hồi Nguyên Quang sáng như mặt trời, đem đen trong Cổ Lâm trở thành một mảnh trắng xoá. 
+Hơn ngàn dị thú cùng hợp lực vận chuyển, Vạn Diệu Hồi Nguyên Quang sáng như mặt trời, đêm đen trong Cổ Lâm trở thành một mảnh trắng xoá. 
 
 Đầu rồng một trận tê hống, lôi quang đi trước, hoả diễm theo sau, hàn băng nối đuôi, cương phong áp cuối. 
 

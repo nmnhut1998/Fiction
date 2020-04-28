@@ -168,7 +168,7 @@ Từ đình viện của Sư Vương, một con ô quy bốn chân phấp phới
 
 Cuối cùng, sau khi Sư Vương mệt lả người như đại chiến xong ba trăm hiệp, tiểu Lạc Vân cũng uống xong, bàn tay nhỏ đang tai hoạ mái tóc của hắn. 
 
-Sư Vương đặt tiểu Lạc Vân lên giường nhỏ, có lẽ vì đã no say, tiểu hài tử mười phần ngoan ngoãn. 
+Sư Vương đặt tiểu Lạc Vân lên giường nhỏ, có lẽ vì đã no say, tiểu hài tử ngoan ngoãn như con mèo nhỏ. 
 
 Dong lão, Ô Lão Quy từ lâu đã trở lại, một bên uống trà, con mắt quét tới quét lui. 
 

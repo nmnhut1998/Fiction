@@ -16,9 +16,7 @@ Phi cầm - bao gồm cả Thanh Lôi Ưng dẫn đường - đồng loạt kêu
 
 Âm thanh hỗn loạn trộn vào nhau, nhưng đều có chung một nghĩa. Chúng đang gọi mẹ. 
 
-Nhưng mà, cơn gió này làm tiểu Lạc Vân toàn thân nổi da gà, bước chân nhích về phía sau, cánh tay căng cứng không thể động đậy. Gió lạnh thổi qua, tiểu Lạc Vân cảm thấy hai chân rét lạnh, thậm chí còn có chút mùi không thích hợp. 
-
-Tiểu Lạc Vân rất muốn la lên "Có ma!" nhưng mà hai hàm răng run cầm cập không thể nói ra một chữ nào. 
+Nhưng mà, cơn gió này làm tiểu Lạc Vân toàn thân nổi da gà, bước chân nhích về phía sau, cánh tay căng cứng không thể động đậy, dường như bị một lực lượng vô hình trói buộc huyết dịch toàn thân. 
 
 "Con ... con ta ..." 
 
@@ -26,7 +24,9 @@ Cánh tay của nàng làm từ tuyết, chạm vào một đầu Hoàng Tước
 
 Ánh mắt nàng rời tiểu Lạc Vân, hình ảnh lập tức đổi. Nàng biến thành một đầu Hoàng Tước mẹ, lông vàng óng ánh. Hoàng Tước mẹ mở rộng hai cánh choàng qua, cúi người rỉa bông tuyết rơi trên người con nhỏ. Hoàng Tước mẹ lại rỉa lông mình làm tổ, lông tơ rơi xuống phủ đầy trên đất biến thành lửa sưởi ấm. Đầu của tiểu Hoàng Tước nép trong cánh mẹ, đôi mắt nhắm lại an yên. 
 
-Tiểu Hoàng Tước líu ríu, dụi dụi đầu:
+"Lùi lại! Mau lùi lại!" - Tiểu Lạc Vân thảng thốt kêu lên. 
+
+Tiểu Hoàng Tước vẫn không nghe thấy, líu ríu, dụi dụi đầu:
 
 "Riu ... liu ... liu"
 
@@ -38,19 +38,49 @@ Tiếng chim khe khẽ ngâm nga:
 
 Cùng giai điệu, nhưng tiếng sáo của tiểu Lạc Vân như ngọc như ngà, thanh dịu dễ nghe, tiếng chim hót này rơi vào tai lại như quỷ như mị, như ai như oán, như khóc như than. 
 
-Giai điệu quỷ dị này vang lên, trên ngực Hoàng Tước mẹ hiện ra một đoá hoa trắng muốt, hương thơm thanh nhã. Trên cánh hoa, kim huyết thánh khiết bị người dùng vẽ thành phù văn, một lần loé sáng đều thu lấy thiên phạt chi khí trong vòng mười trượng, lực lượng lôi phạt bị nàng hấp thu. 
+Giai điệu quỷ dị này vừa cất lên, trên ngực Hoàng Tước mẹ hiện ra một đoá hoa trắng muốt, hương thơm thanh nhã. Trên cánh hoa, kim huyết thánh khiết bị người dùng vẽ thành phù văn, một lần loé sáng đều thu lấy thiên phạt chi khí trong vòng mười trượng, lực lượng lôi phạt bị nàng hấp thu. 
 
-Tiểu Lạc Vân suy nghĩ rất nhanh, từng hình ảnh lướt qua trong đầu. Hắn từng lén xem sách về Phù Đạo, lại tiếp xúc nhiều với Sư Vương, đối với lực lượng lôi phạt rất quen thuộc, lập tức cảm nhận được điều quỷ dị này. Hắn cũng rất quen với kim huyết trên cánh hoa. Đây là tinh huyết của bản thân hắn. Có kẻ đã trộm tinh huyết, dùng máu vẽ phù. 
+"Li ... la ..." 
+
+Tiếng sáo lần nữa vang lên, nhưng không còn trong trẻo thanh nhã, mà trầm đục u uất, như suối nước gian nan chèn trong khe đá. 
+
+Tiểu Lạc Vân vẻ mặt nghiêm túc chưa từng có, đột nhiên dùng tay đánh vào bụng, một ngụm huyết dịch từ cổ họng bắn lên, hoá thành huyết khí thổi vào Thiên Hồ Pháp Địch. Hấp thu huyết dịch, khí linh thanh hồ chín đuôi hiện ra. 
+
+Cửu Vĩ Thanh Hồ ưỡn ngực ngồi thẳng, chín cái đuôi đong đưa, ánh mắt cao ngạo, mang theo khinh miệt nhìn vào Hồng Y Tuyết Mẫu. Nó là tàn hồn của Cửu Vĩ Thiên Hồ còn sót lại bên trong hồ vĩ, cho dù thoả thuận với Dong lão làm khí linh của Thiên Hồ Pháp Địch, lấy hình thức khác để có thể tồn tại, nó vẫn có tự do, có quyền cao ngạo, hơn nữa thực lực cường đại, không sợ đối thủ mạnh bao nhiêu, chỉ sợ tiểu Lạc Vân không cung cấp đủ huyết khí. 
+
+Thanh Hồ ngửa mặt lên trời hú dài, âm thanh cùng nhịp với tiếng sáo, triển khai Thiên Hồ Ma Âm đối kháng với Hồng Y Tuyết Mẫu. Hai âm thanh hoà vào làm một, mang theo linh khí dao động, lấy xảo phá cường, có tác dụng quấy nhiễu pháp thuật, phù văn trên ngực Hồng Y Tuyết Mẫu mấy lần loé sáng nhưng đều bị nó ép trở về. 
+
+Cùng lúc đó, hai chiếc đuôi cuốn lấy Tang Cung sau lưng tiểu Lạc Vân, rót huyết khí vào. 
+
+Tang Cung vốn làm từ Không Tang Mộc, cây mọc trên đất thì vô ảnh, cành cây lấy xuống thì vô tướng. Có huyết khí liên tục rót vào, khí linh của Tang Cung hiện ra toàn vẹn. Đó là một con Ngân Lôi Sư, đầu sư mỏ ưng, trên lưng lại có hai cánh bằng thanh mộc kéo dài, mở ra tạo thành thân cung, khép lại thì tạo thành nỏ. 
+
+Lôi Sư hai cánh khép lại thành nỏ bám trên tay trái, trong miệng ngậm một mũi tên màu vàng, dây nỏ đang được kéo lên, gian nan từng chút từng chút một. 
+
+Tiểu Lạc Vân một bên dùng máu thổi sáo, một bên suy nghĩ rất nhanh, từng hình ảnh lướt qua trong đầu. Hắn từng lén xem sách về Phù Đạo, lại tiếp xúc nhiều với Sư Vương, đối với lực lượng lôi phạt rất quen thuộc, lập tức cảm nhận được điều quỷ dị này. Hắn cũng rất quen với kim huyết trên cánh hoa. Đây là tinh huyết của bản thân hắn. Có kẻ đã trộm tinh huyết, dùng máu vẽ phù. 
 
 Tiểu Lạc Vân trên người có lực lượng thần bí bảo hộ, chỉ cần không tự nguyện, không ai có thể rút được tinh huyết. Chẳng lẽ tinh huyết để ở chỗ Viên thúc thúc bị trộm? 
 
-Phù văn đó là một đạo Thần Phù - Sinh Mệnh Lôi Phù, chỉ có ở trong sách. Thần Phù, ý chỉ cường giả Thần Cảnh mới đủ lực lượng tự mình vẽ ra. Cha Sư Vương cũng không thể làm được. 
+Phàm là sách cấm kỵ phải lén lút trộm đọc đều gây để lại ấn tượng rất sâu, tiểu Lạc Vân thậm chí nghĩ tới nó đầu tiên. 
 
-Chuyện tiếp theo cũng tới, Thần Phù loé sáng, tiểu Hoàng Tước biến mất không thấy. Tiểu Hoàng Tước đột ngột biến mất, cánh chim của Hoàng Tước mẹ trống rỗng. 
+Phù văn đó là một đạo Thần Phù - Sinh Mệnh Lôi Phù, chỉ có ở trong sách được ghi trong "Thiên Đạo Phù Điển", phần Cấm Kỵ Thần Phù. Thần Phù, ý chỉ cường giả Thần Cảnh mới đủ lực lượng tự mình vẽ ra. Cha Sư Vương cũng không thể làm được. 
+
+Sinh Mệnh Lôi Phù thôn phệ sinh cơ hoá thần lôi, lại có thể dùng thần lôi tạo ra nguỵ sinh mệnh, cho dù tiểu Lạc Vân liều mạng, dùng thủ thuật ghi trong Thiên Đạo Phù Điển lấy xảo phá phù, cũng chỉ cản được một chút thời gian. 
+
+Tiểu Lạc Vân chứng kiến tiểu Hoàng Tước dần dần trầm luân, mắt thấy sắp phải bỏ mạng, trong lòng cảm thấy không đành. 
+
+"Liaaaaaaaaa ..." "Vút!" 
+
+Hai luồng sóng âm cắt ngang không khí, một là tiếng sáo cao vút, một là tiếng mũi tên lướt đi. 
+
+Mũi tên màu vàng, chưa chạm đã nổ tung, biến thành Phật quang, mang theo mênh mông Phật âm, chữ chữ như chuông đồng vạn cân đè xuống, làm nát hai chân của Hồng Y Tuyết Mẫu vỡ nát, biến thành một đám tuyết trắng.
+
+Tiếng sáo cao vút lại là khởi đầu của liên tiếp hàng chục tàn ảnh, chín cái đuôi bay múa, chuẩn xác cuốn lấy đám phi cầm kéo về phía sau. 
 
 "Con của ta! Kẻ nào cướp con ta?" 
 
-Nàng thét lên thê lương, đau xé tâm can, lại lần nữa biến thành Hồng Y Tuyết Mẫu. Một trảo moi tim, muốn đánh bay Sinh Mệnh Lôi Phù ra ngoài, nhưng kim huyết không phải vật phàm, phù văn vẽ bằng kim huyết không dễ vỡ như vậy. 
+Nàng thét lên thê lương, đau xé tâm can, lại lần nữa biến thành Hồng Y Tuyết Mẫu. Một trảo thật không ngờ lại moi tim mình, muốn đánh bay Sinh Mệnh Lôi Phù ra ngoài, nhưng kim huyết không phải vật phàm, phù văn vẽ bằng kim huyết không dễ vỡ như vậy. 
+
+Tiếng thét của nàng đánh rơi khỏi tay tiểu Lạc Vân, làm hắn giật ngược trở về sau, hư ảnh chập chờn sắp đổ. Tiểu Lạc vân vội vàng ngưng thần, ngón tay máy động vẽ phù văn trên Lưu Ly Bảo Y, làm nó phát ra bạch quang thủ hộ, một lần nữa cầm Thiên Hồ Pháp Địch lên. 
 
 Nàng không có thực thể, hình dáng do tuyết ngưng thành, nước mắt chảy xuống cũng chỉ là băng tinh mong manh, rơi xuống đất liền vỡ tan tành. Ánh mắt của nàng mờ mịt mê mang, cánh tay quơ quào trong không khí. Nàng không có thị giác. 
 
@@ -70,34 +100,19 @@ Kẻ nào đó đã dùng một đạo thần phù, biến nàng người không
 
 Tiểu Lạc Vân cũng cảm nhận được chấp niệm của nàng lúc nàng nhìn hắn bằng ánh mắt trìu mến. Thần thức của tiểu Lạc Vân vẫn chưa mở ra, nhưng vẫn cảm nhận được cảm xúc của bản thân giống như một vũng nước, bị niệm lực của nàng vặn vẹo, nhận thức nàng là mẹ. 
 
-"Thì ra cảm giác có mẹ là như vậy."
-
 Luồng niệm lực kì dị này lại làm cho thần thức của dị thú sinh ra một luồng niệm lực khác phản hồi tác động lên bản thân nàng, làm cho nàng biến đổi. 
-
-Nàng muốn có một đứa con. Nàng muốn con của nàng. Vì con, nàng có thể biến đổi bản thân, làm hết thảy. 
 
 Đây là không phải lần đầu tiểu Lạc Vân tiếp xúc niệm lực, nhưng là lần đầu tiên gặp trường hợp niệm lực phản hồi như vậy. 
 
-"Nhưng mà ta không có mẹ a ... ngay cả mẹ là thế nào cũng không biết."  
+"Thì ra cảm giác có mẹ là như vậy."
 
-Vậy nên, niệm lực phản hồi cuối cùng không thành. Trong mắt Lạc Vân, nàng vẫn là Hồng Y Tuyết Mẫu. 
+Nhưng mà tiểu hài tử không có mẹ, trong đầu trước nay đâu hiểu mẹ là thế nào, có mẹ sẽ ra sao. Vậy nên, niệm lực phản hồi cuối cùng không thành. Trong mắt Lạc Vân, nàng vẫn là Hồng Y Tuyết Mẫu. 
 
-Tuy vậy, tiểu Lạc Vân vẫn cảm thấy mất mát không hiểu, nhưng huấn luyện và dạy dỗ từ nhỏ của Sư Vương làm cho tiểu Lạc Vân hiểu được hiện tại mình cần phải làm chút gì đó. 
+Do mất máu quá nhiều, tiểu Lạc Vân đã có hơi choáng váng, mỗi lần liếc nhìn Hồng Y Tuyết Mẫu, trong đầu đều có cảm giác mất mát không hiểu thấu được. 
 
-"Viên thúc thúc hay nói: chuyện xấu thì đứng sau màn, chuyện tốt ra tay làm trước. Mặc dù đám phi cầm đáng ghét nhưng mà ... cứu một mạng chim còn hơn xây bảy tháp phù đồ." 
+Lắc đầu thật mạnh, hắn đang nghĩ có nên dùng tới đòn quyết định hay không. Nếu quần thú biết được thứ này tồn tại, e rằng tiểu Lạc Vân từ nay về sau không rời khỏi nhà được nữa. 
 
-"Trên đời không có thứ đáng sợ, chỉ là sợ thứ không biết. Đã biết rồi thì không còn đáng sợ. Phải, không đáng sợ, không đáng sợ."
+Tiểu Ô Quy trái với vẻ nhu thuận của phi cầm, hai mắt trừng trừng đỏ ngầu toàn thân run rẩy, liên tục hỏi:
 
-"Lạc Vân ta lúc hai tuổi đã đánh được với Hắc Ma Giao cửu giai, chạy thoát khỏi Mị Ly Miêu thập giai, đây chỉ là nữ quỷ không có linh trí, không đủ sợ, không đủ sợ, dù không có cha ở chỗ này vẫn không đủ sợ."
+"Các người giấu chúng nó ở đâu? Ở đâu?" 
 
-"Nhưng mà chắc chắn cha vẫn còn dõi theo. Ta vẫn còn có Lưu Ly Bảo Y." 
-
-"Chính là như vậy, có thể đánh được." 
-
-Tiểu Lạc Vân lẩm bẩm một mình, cố gắng bỏ qua cảm xúc phức tạp trong đầu, lại chợt cảm thấy cái mùi không thích hợp ở dưới chân làm mình quá mất mặt. Thật là, bị doạ sợ tè ra quần. 
-
-"Nhưng mà đây là Thần Phù, Sinh Mệnh Lôi Phù a, làm sao phá?" 
-
-"Không đúng! Nhất định có người đứng phía sau thao túng, nàng chỉ là con rối!" 
-
-Tiểu Lạc Vân tuy có Sư Vương từ nhỏ rèn luyện cung tên, học cách chiến đấu nhưng kinh nghiệm vẫn rất non nớt, lúc nhận ra vấn đề thì Hồng Y Tuyết Mẫu đã lần nữa ngưng tụ thần hình. Lần này, liên tục ba đầu Mai Hoa Điểu bị Sinh Mệnh Lôi Phù thôn phệ. 

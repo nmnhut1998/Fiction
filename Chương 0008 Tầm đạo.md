@@ -92,6 +92,8 @@ Tiểu Lạc Vân đi trên sườn dốc, vừa đi vừa lẩm bẩm nhắc nh
 
 “Khổng Tước Bình An Phù chỉ có năm viên linh thạch …” 
 
+"Tuyệt kĩ không phải lúc sống chết thì không được dùng." 
+
 Tiểu Lạc Vân dụi dụi cái mũi nhỏ, khuôn mặt trắng hồng ngửa lên nhìn trời. 
 
 Hôm nay, nhiệm vụ của tiểu Lạc Vân chính là tự mình đến Thanh Lâm Học Viện. Từ thái độ của cha, có lẽ con đường đi này sẽ nguy hiểm, hơn nữa rất quan trọng. 
@@ -120,7 +122,7 @@ Trộn cùng mắm ruốc thật cay ăn dần
 Chanh tươi lát mỏng nửa phân
 Lắc đều muối ớt thêm phần dưa chua
 Sau cùng thì uống nước mưa
-Một hai ba bốn ... đền mùa pháo hoa!" 
+Một hai ba bốn ... kìa, mùa pháo hoa!" 
 
 Sờ sờ Càn Khôn Quy Giáp, tiểu Lạc Vân lấy ra một quả xoài xanh, một con dao nhỏ, thuần thục mấy cái đã gọt vỏ xong. Xoài sống hãy còn xanh, cắt thành sợi dài có mùi đặc trưng, hương vị chua thanh chưa ăn đã dâng lên tận sống mũi. Mắm ruốc mùi có hơi nồng, ớt cay xé lưỡi, chấm một cái, vừa vào miệng đã cảm thấy toàn cơ thể ấm áp, mồ hôi xuất ra. 
 

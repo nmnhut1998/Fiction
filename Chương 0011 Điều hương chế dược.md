@@ -318,7 +318,9 @@ Giọt hồn lệ kia không bị thu lại, mà thấm vào tay của tiểu L�
 
 "Hồn Điệp Lệ này là thứ tốt, có thể để ngươi cải tạo huyết mạch, tác dụng còn mạnh hơn cả Hồn Huyết ... còn nếu rơi vào tay Thuần Thú Sư chân chính, họ còn có thủ đoạn càng tốt hơn nữa, có thể thực hiện bí thuật tinh thần làm một ăn mười ..."
 
-"Bản thiếu gia biết ngươi có tâm, Hồn Điệp Lệ này là kết tinh vô số dược liệu hai ngày nay ngươi ăn từ chỗ của bản thiếu gia, còn có lúc nãy ngươi đánh bản thiếu gia ... làm hại ta hao tổn hết lần duy nhất sử dụng Thiên Hồ Pháp Địch ... ngươi muốn bù đắp phải không?"
+"Bản thiếu gia biết ngươi có tâm, Hồn Điệp Lệ này là kết tinh vô số dược liệu hai ngày nay ngươi ăn từ chỗ của bản thiếu gia, còn có lúc nãy ngươi đánh bản thiếu gia ... làm hại ta hao tổn hết lần duy nhất sử dụng Thiên Hồ Pháp Địch ... ngươi muốn bù đắp phải không?" 
+
+"Thật ra lúc nãy ta chỉ dùng một xíu sức mạnh của Thiên Hồ Pháp Địch mà thôi, nếu không ngươi sẽ nói ta ăn gian. Bản thiếu gia kì thực rất lợi hại đó."
 
 "Nhưng mà ta chỉ là phàm nhân a ... dù có làm gì cũng chỉ quanh quẩnh mấy chục năm một kiếp ..." 
 

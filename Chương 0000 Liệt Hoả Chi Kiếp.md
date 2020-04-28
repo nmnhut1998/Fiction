@@ -46,7 +46,7 @@ Một vùng sơn thanh thủy tú, đình đài lầu các san sát. Tại trung
 
 Chợt, giữa không trung, không gian thoáng chút vặn vẹo, một cánh cổng không gian theo đó mở rộng ra. Bóng người nam tử mặc hồng bào từ bên trong bước ra. Nam tử này không ai khác chính là Liệt Hỏa Thần Đế.
 
-Nghìn người ngưỡng vọng thân ảnh vừa mới xuất hiện, ánh mắt lửa nóng, thái độ cực kỳ cung kính, ôm quyền cúi gập người, đồng thanh:
+Nghìn người ngưỡng vọng thân ảnh vừa mới xuất hiện, ánh mắt lửa nóng, thái độ cung kính, ôm quyền cúi gập người, đồng thanh:
 
 “Cung nghênh tông chủ. Chúc mừng tông chủ thành công vượt qua thiên kiếp, bước lên đỉnh phong.”
 
@@ -86,7 +86,7 @@ Giọng nam trầm thấp tràn ngập quỷ dị, tựa như từ chốn hư kh
 
 “Nhớ kỹ, ngươi còn thiếu nợ ta ba mươi bốn vạn, bảy nghìn tám trăm mười bốn khỏa cực phẩm linh thạch. Đừng quên trả nợ đúng hạn, lãi suất một phần trăm một năm…”
 
-Thanh âm lần nữa vang lên rồi dần dần nhỏ lại, tiêu thất. Tuy nhiên nam nhân tóc đỏ sắc mặt biến cực kỳ khó coi, đỏ rực, ngực phập phồng tựa hồ muốn thổ huyết…
+Thanh âm lần nữa vang lên rồi dần dần nhỏ lại, tiêu thất. Tuy nhiên nam nhân tóc đỏ sắc mặt trở nên khó coi, đỏ rực, ngực phập phồng tựa hồ muốn thổ huyết…
 
 …
 
