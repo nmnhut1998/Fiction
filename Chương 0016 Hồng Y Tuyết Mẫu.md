@@ -46,7 +46,7 @@ Giai điệu quỷ dị này vừa cất lên, trên ngực Hoàng Tước mẹ 
 
 Tiếng sáo lần nữa vang lên, nhưng không còn trong trẻo thanh nhã, mà trầm đục u uất, như suối nước gian nan chèn trong khe đá. 
 
-Tiểu Lạc Vân vẻ mặt nghiêm túc chưa từng có, Lưu Ly Bảo Y phát ra bạch quang chói lọi, cánh tay cuối cùng đã thoát khỏi trói buộc, đánh vào bụng liên tục mấy cái, một ngụm huyết dịch từ cổ họng bắn lên, hoá thành huyết khí thổi vào Thiên Hồ Pháp Địch. Hấp thu huyết dịch, khí linh thanh hồ chín đuôi hiện ra. 
+Tiểu Lạc Vân vẻ mặt nghiêm túc chưa từng có, Lưu Ly Bảo Y phát ra bạch quang chói lọi, xóa bỏ trói buộc. Bàn tay đánh vào bụng liên tục mấy cái, một ngụm huyết dịch từ cổ họng bắn lên, hoá thành huyết khí thổi vào Thiên Hồ Pháp Địch. Hấp thu huyết dịch, khí linh thanh hồ chín đuôi hiện ra. 
 
 Cửu Vĩ Thanh Hồ trên trán có ấn kí cửu diệp, tuy hư ảo nhưng lại toát ra khí thế uy nghiêm như đế như hoàng. Thanh Hồ có chín đuôi, mỗi chiếc lại có ấn kí thanh đằng kéo dài từ gốc cho tới chóp đuôi, liên tục chớp động theo tiếng sáo. 
 
