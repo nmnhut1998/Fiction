@@ -62,9 +62,11 @@ Trên ngực nàng rõ ràng mà một đạo phù văn, hơn nữa dùng máu c
 
 Tiểu Lạc Vân trên người có lực lượng thần bí bảo hộ, chỉ cần không tự nguyện, không ai có thể rút được tinh huyết. Chẳng lẽ tinh huyết để ở chỗ Viên thúc thúc bị trộm? 
 
-Phù văn này cực kì bá đạo, tuy nói Hồng Y Tuyết Mẫu sức tấn công không mạnh, nhưng có phù văn phát, cho dù tiểu Lạc Vân liều mạng dùng kĩ xảo chống lại cũng không được bao lâu, sớm muộn gì đám phi cầm cũng gặp chuyện không may. 
+Phù văn này cực kì bá đạo, tuy nói Hồng Y Tuyết Mẫu sức tấn công không mạnh, nhưng có phù văn phát, cho dù tiểu Lạc Vân liều mạng dùng kĩ xảo ghi trong "Thiên Đạo Phù Điển", được xưng là lấy yếu thắng mạnh cũng chống lại cũng không được bao lâu, sớm muộn gì đám phi cầm cũng gặp chuyện không may. 
 
 Mỗi một nhạc âm vang lên, tuổi thọ của Tiểu Lạc Vân lại mất đi một ngày, trước mắt hắn lại là cảnh tiểu Hoàng Tước dần dần trầm luân, trong lòng nổi lên một cơn đắng chát. Tiểu Lạc Vân vẫn mang trước tên mình một chữ "tiểu", so với thế giới to lớn vẫn còn bé nhỏ không đáng kể.
+
+Nhạc âm tiếng sau nối tiếng trước, chồng chất, cộng hưởng với nhau, cường độ ngày càng mạnh. 
 
 "Liaaaaaaaaa ..." "Grào!" 
 
@@ -114,15 +116,11 @@ Luồng niệm lực kì dị này lại làm cho thần thức của dị thú 
 
 Đây là không phải lần đầu tiểu Lạc Vân tiếp xúc niệm lực, nhưng là lần đầu tiên gặp trường hợp niệm lực phản hồi như vậy. 
 
-"Thì ra cảm giác có mẹ là như vậy."
-
 Nhưng mà tiểu hài tử không có mẹ, trong đầu trước nay đâu hiểu mẹ là thế nào, có mẹ sẽ ra sao. Vậy nên, niệm lực phản hồi cuối cùng không thành. Trong mắt Lạc Vân, nàng vẫn là Hồng Y Tuyết Mẫu. 
 
 Do mất máu quá nhiều, tiểu Lạc Vân đã có hơi choáng váng, mỗi lần liếc nhìn Hồng Y Tuyết Mẫu, trong đầu đều có cảm giác mất mát không hiểu thấu được. 
 
-Lắc đầu thật mạnh, hắn đang nghĩ có nên dùng tới đòn quyết định hay không. Nếu quần thú biết được thứ này tồn tại, e rằng tiểu Lạc Vân từ nay về sau không rời khỏi nhà được nữa. 
+"Thì ra cảm giác có mẹ là như vậy."
 
-Tiểu Ô Quy trái với vẻ nhu thuận của phi cầm, hai mắt trừng trừng đỏ ngầu toàn thân run rẩy, liên tục hỏi:
-
-"Các người giấu chúng nó ở đâu? Ở đâu?" 
+Lắc đầu thật mạnh, tiểu Lạc Vân cố gắng nhớ lại, dường như đạo phù văn này đã gặp ở đâu rồi. 
 
