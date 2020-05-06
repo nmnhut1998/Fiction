@@ -56,9 +56,9 @@ Linh hồn của nàng rách nát tàn phá, như bị răng nanh cắm xuyên, 
 
 Tiểu Lạc Vân chính là dựa vào điểm này mà kiên cường chống chọi. 
 
-Nhưng tiểu hài tử vẫn chưa khai thần thức, tiếng nàng nức nở len lỏi vào tai, như nước ngấm vào đất, cuối cùng vẫn không thể phòng tránh. 
+Nhưng tiểu hài tử vẫn chưa khai mở thần thức, cho nên trong một lần niệm lực cao trào, tiếng của Hồng Y Tuyết Mẫu nức nở len lỏi vào tai, như nước ngấm vào đất, cuối cùng vẫn không thể phòng tránh. 
 
-Tiểu hài tử vẫn kiên trì nhắm mắt, nhưng trên làn da lại như cảm nhận được hơi ấm, như có bàn tay vuốt ve, như có cái ôm thật chặt, mái tóc vốn ít được chăm chút có người vuốt thẳng, và hình như chỗ rách trong Lưu Ly Bảo Y đang được vá lại. Mũi của tiểu hài tử ngửi được một mùi như sữa thơm ấm nóng phả vào mặt, trong bụng lập tức sinh ra cảm giác thèm muốn. 
+Tiểu hài tử vẫn kiên trì nhắm mắt, nhưng trên làn da lại như cảm nhận được hơi ấm, như có bàn tay vuốt ve, như có cái ôm thật chặt, sống lưng ngứa ngáy khó chịu yên tĩnh trở lại, mái tóc vốn ít được chăm chút có người vuốt thẳng, đầu cũng không còn đau nhức và hình như chỗ rách trong Lưu Ly Bảo Y đang được vá lại. Mũi của tiểu hài tử ngửi được một mùi như sữa thơm ấm nóng phả vào mặt, trong bụng lập tức sinh ra cảm giác thèm muốn. 
 
 Thiên Hồ Pháp Địch đã ngưng không thổi nữa, tiểu Lạc Vân môi run run, có một từ muốn thoát ra khỏi đầu lưỡi. Tiểu Lạc Vân đọc sách ba năm, nghe kể chuyện vô số, tự nhiên cũng biết. 
 
@@ -66,7 +66,7 @@ Chỉ là, chưa bao giờ, chưa bao giờ tiểu Lạc Vân bật thốt ra ng
 
 Từ này, gọi là mẹ. 
 
-Tiểu Lạc Vân hai tay nắm chặt, cánh tay run lên bần bật, chân lảo đảo, tựa người vào bia đá, lại dậm mạnh một cái, cánh tay vung lên cầm Thiên Hồ Pháp Địch ném thẳng về phía trước:
+Tiểu Lạc Vân hai tay nắm chặt, cánh tay run lên bần bật, chân lảo đảo, tựa bia đá, lại dậm mạnh một cái, cánh tay vung lên cầm Thiên Hồ Pháp Địch ném thẳng về phía trước:
 
 "Không phải! Lạc Vân ta làm gì có mẹ!" 
 

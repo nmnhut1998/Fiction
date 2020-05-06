@@ -4,7 +4,7 @@ Không biết bao lâu sau, một người một rùa lên tới đỉnh núi. �
 
 Bầu trời thả tuyết như rải hoa, mây đen lại chứa lôi điện liên tục chớp ánh bạc. 
 
-Tiểu Lạc Vân dựa người vào một khối bia đá, liên tục há miệng phun ra hơi nóng, cánh tay run lẩy bẩy vì kiệt sức, cầm Xích Nhâm Sâm, cả vỏ cả lá, từng miếng, từng miếng nuốt vào. Khuôn mặt trắng bệch, hai má ửng hồng, nhưng mà dáng người uể oải, đầu tóc cũng xác xơ, mồ hôi đọng lại thành băng, rồi bị hơi nóng chuyển thành lỏng, cuối cùng bốc hơi, để lại một mùi hương thanh nhã dễ chịu.  
+Tiểu Lạc Vân dựa người vào một khối bia đá, Lưu Ly Bảo Y tiêu hao hết mấy đường chỉ vì tự cứu mình trong lúc leo suýt nữa ngã xuống, liên tục há miệng phun ra hơi nóng, cánh tay run lẩy bẩy vì kiệt sức, cầm Xích Nhâm Sâm, cả vỏ cả lá, từng miếng, từng miếng nuốt vào. Khuôn mặt trắng bệch, hai má ửng hồng, nhưng mà dáng người uể oải, đầu tóc cũng xác xơ, mồ hôi đọng lại thành băng, rồi bị hơi nóng chuyển thành lỏng, cuối cùng bốc hơi, để lại một mùi hương thanh nhã dễ chịu.  
 
 Hai mắt tiểu Lạc Vân dần dần nhắm lại. 
 
