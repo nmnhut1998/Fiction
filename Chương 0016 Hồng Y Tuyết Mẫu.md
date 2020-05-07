@@ -16,7 +16,7 @@ Phi cầm đồng loạt kêu lên ầm ĩ, hai cánh dang ra, vẫy vẫy như 
 
 Tiểu Lạc Vân tim đập thình thịch, vội vàng cắn mạnh vào môi, một giọt máu chảy ra, thổi vào trong Thiên Hồ Pháp Địch. Giọt máu màu vàng tươi, chứa linh khí đặc trưng vốn chỉ Sư Vương mới có thể tu luyện ra, lại có mấy phần thần thánh trang nghiêm. 
 
-Tiểu Lạc Vân nhắm mắt, ngón tay hoàn toàn dựa theo bản năng mà điêu luyện vê vỗ trên thân Thiên Hồ Pháp Địch, dùng linh khí thổi một khúc "Không du". 
+Tiểu Lạc Vân nhắm mắt, ngón tay hoàn toàn dựa theo bản năng mà điêu luyện vê vỗ trên thân Thiên Hồ Pháp Địch, thông qua Thiên Hồ Pháp Địch dùng linh khí thổi một khúc "Không du". 
 
 "Tiếng cười như gió, bay ngang qua người. Trời xanh mây trắng, lang thang phương trời, đi hình bóng ai ..." 
 
@@ -38,7 +38,7 @@ Tiếng sáo của tiểu Lạc Vân chợt tăng mạnh, tiểu Hoàng Tước 
 
 Âm luật so đấu, không phải so sánh ai có linh lực mạnh hơn, linh khí tinh thuần hơn, mà là so niệm lực.
 
-Niệm lực và linh khí, hai thứ tưởng chừng không liên quan lại có quan hệ mật thiết. Niệm lực do thần thức phát ra có thể khống chế chân khí linh khí, thần thức càng mạnh, niệm lực càng cường đại, khống chế càng có hiệu quả. Linh khí chân khí bình thường nhưng thành thần thông thuật pháp lại không có khả năng ảnh hưởng tới thần thức. 
+Niệm lực và linh khí, hai thứ tưởng chừng không liên quan lại có quan hệ mật thiết. Niệm lực do thần thức phát ra có thể khống chế chân khí linh khí, thần thức càng mạnh, niệm lực càng cường đại, khống chế càng có hiệu quả. Linh khí chân khí bình thường ngưng thành thần thông thuật pháp lại không có khả năng ảnh hưởng tới thần thức. 
 
 Tuy nhiên, lại có thủ đoạn tạo ra dao động linh khí đặc thù, chuyển nó thành niệm lực. Phàm nhân cũng hiểu được một chút về loại dao động này, nhưng họ chỉ cảm nhận được âm thanh, cảm xúc của bản thân bị ảnh hưởng, cho nên gọi nó là "âm nhạc". 
 
