@@ -18,7 +18,7 @@ Tiểu Lạc Vân tim đập thình thịch, vội vàng cắn mạnh vào môi,
 
 Tiểu Lạc Vân nhắm mắt, ngón tay hoàn toàn dựa theo bản năng mà điêu luyện vê vỗ trên thân Thiên Hồ Pháp Địch, thông qua Thiên Hồ Pháp Địch dùng linh khí thổi một khúc "Không du". 
 
-"Tiếng cười như gió, bay ngang qua người. Trời xanh mây trắng, lang thang phương trời, đi hình bóng ai ..." 
+"Tiếng cười như gió, bay ngang qua người, bay tà áo bay. Trời xanh mây trắng, lang thang phương trời, đi hình bóng ai ..." 
 
 Tiếng sáo không lời ca, nhưng nhạc vừa ra, không gian xung quanh chậm rãi dao động tạo thành tiếng hát.
 
@@ -277,4 +277,6 @@ Một tiếng thét dài truyền ra từ phía sau, tiểu Đạt Đạt giãy 
 
 Huyết dịch dị thú vừa ra, Yểm Ma Viên lập tức bốc cháy. Nó dùng sức lực cuối cùng chạy ra khỏi phù trận. Mang theo hỏa diễm do huyết dịch dị thú biến thành, Yểm Ma Viên vừa chạm vào phù trận lập tức làm cho phù trận bị hỏa diễm đốt thủng một lỗ, cuối cùng vẫn không thoát khỏi cảnh bị luyện hóa. 
 
-Cảnh này làm cho phi cầm phấn chấn. 
+Cảnh này làm cho phi cầm phấn chấn. Nhưng phấn chấn chưa được bao lâu, hai mươi chín hắc ảnh như quỷ mị đã lướt vào, trực diện tóm lấy phi cầm.  
+
+"Tiếng cười như gió, bay ngang qua người, bay tà áo bay. Trời xanh mây trắng, lang thang phương trời, đi hình bóng ai ..." 
