@@ -277,6 +277,8 @@ Một tiếng thét dài truyền ra từ phía sau, tiểu Đạt Đạt giãy 
 
 Huyết dịch dị thú vừa ra, Yểm Ma Viên lập tức bốc cháy. Nó dùng sức lực cuối cùng chạy ra khỏi phù trận. Mang theo hỏa diễm do huyết dịch dị thú biến thành, Yểm Ma Viên vừa chạm vào phù trận lập tức làm cho phù trận bị hỏa diễm đốt thủng một lỗ, cuối cùng vẫn không thoát khỏi cảnh bị luyện hóa. 
 
-Cảnh này làm cho phi cầm phấn chấn. Nhưng phấn chấn chưa được bao lâu, hai mươi chín hắc ảnh như quỷ mị đã lướt vào, trực diện tóm lấy phi cầm.  
+Cảnh này làm cho phi cầm phấn chấn. Nhưng phấn chấn chưa được bao lâu, hai mươi chín hắc ảnh như quỷ mị đã lướt vào, trực diện tóm lấy phi cầm. Hắc ảnh chỉ nhằm vào tim, não và bộ lông, còn phần xương cốt đều bị chúng giẫm nát dưới chân. 
 
-"Tiếng cười như gió, bay ngang qua người, bay tà áo bay. Trời xanh mây trắng, lang thang phương trời, đi hình bóng ai ..." 
+Yểm Ma Viên vốn bị Lưu Ly Bảo Y trói chặt đột nhiên biến thành một làn khói đen, bao trùm tiểu Lạc Vân vào bên trong. Tiểu hài tử cảm thấy quanh người có một bầy muỗi máu đang bay vo ve, cái vòi vừa dài vừa nhọn đâm vào trong da, muốn rút lấy máu tươi quý báu chảy bên trong cơ thể mình. 
+
+Ưng Hồng Liên gầm thét giận dữ, thanh quang rực sáng bao phủ toàn bộ phi cầm, tạo thành lĩnh vực
