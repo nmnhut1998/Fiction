@@ -136,7 +136,7 @@ Hiện tại, nó cũng không quan tâm dị thú xung quanh ra sao, một cái
 
 Niệm lực bị thu lại, dị thú chỉ còn có tiểu Lạc Vân thoạt nhìn có vẻ tỉnh táo, còn lại hoặc là ngất xỉu hoặc là rối rít chạy về phía Hồng Y Tuyết Mẫu, huyết lệ liên tục chảy ra, bị Sinh Tử Lôi Thần Phù hấp thu. 
 
-Hiện giờ tiểu Lạc Vân không thể quản Thiên Hồ tự tung tự tác, chiến thắng mới là quan trọng nhất. 
+Dong gia gia đã cảnh báo Thiên Hồ Pháp Địch chỉ có thể dùng một lần, xem ra không phải là do tiểu Lạc Vân không đủ năng lực, mà là lường trước được Thiên Hồ sẽ không nghe lệnh tiểu hài tử. Hiện giờ tiểu Lạc Vân không thể quản Thiên Hồ tự tung tự tác, chiến thắng mới là quan trọng nhất. 
 
 "Sinh Tử Lôi Thần Phù sử dụng là sinh mệnh chi lôi, cho nên phàm là vật chết đều không bị nó ảnh hưởng. Sinh Tử Lôi Thần Phù bên trong phù văn bao hàm năm đạo phù văn chồng lên nhau. Uẩn lôi phù làm hạch tâm; cấm lôi phù tạo thành lĩnh vực, thôn lôi phù, ngự lôi phù hấp thu và khống chế sinh mệnh chi lôi, hồn lôi phù khắc chế linh hồn và thần thức." 
 
