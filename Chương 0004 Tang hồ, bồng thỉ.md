@@ -44,7 +44,7 @@ Trăm năm trôi qua, mười năm một kiếp, mỗi kiếp là một cảnh g
 
 Chỉ là, lại dẫn tới lôi đình tụ tập. Hắn mang tiểu Lạc Vân đi tới đâu, lôi vân tụ hội tới đó. Mà hắn cũng không phải là lôi thuộc tính, đối với lôi điện tuy có hiểu biết nhưng không thể so Sư Vương. 
 
-Hắn thực không cam lòng a! Sư Vương đi một chiêu này đúng là cao! 
+Hắn thực không cam lòng! Sư Vương đi một chiêu này đúng là cao! 
 
 Một chiêu tinh huyết quán đỉnh thuật, làm cho tiểu Lạc Vân trực tiếp sở hữu Hậu Thiên Lôi Thể. 
 
@@ -52,7 +52,7 @@ Hậu Thiên Lôi Thể, trước khi hoàn mĩ kích hoạt sẽ thu hút lôi 
 
 Nhưng lôi điện tụ tập, không phải là chuyện đơn giản. Ít nhất, dị thú dưới linh cảnh sẽ chịu không nổi. 
 
-Hiện giờ hắn lại không hoá giải được tình cảnh này, thật là mất mặt a! 
+Hiện giờ hắn lại không hoá giải được tình cảnh này, thật là mất mặt! 
 
 Cự Viên đi qua đi lại, trận ấn vẫn không ngừng dung nhập vào trận cơ, nhưng trận cơ cứ ngày càng oằn xuống, đỉnh trụ chạm đất, phát ra từng tiếng băng liệt, tựa hồ chống không nổi nữa.
 
@@ -96,7 +96,7 @@ Huyết dịch vẫy trong không khí, nhanh chóng khuếch tán, cũng không
 
 Ô Lão Quy mũi mùa nâng cao, hít hít mấy cái, cười hề hề:
  
-“Viên tử, huyết dịch còn không a, Hỗn Độn Chi Thuỷ tuỳ ngươi đổi!” 
+“Viên tử, huyết dịch còn không, Hỗn Độn Chi Thuỷ tuỳ ngươi đổi!” 
 
 Cự Viên liếc cũng không liếc, bỏ qua Ô Lão Quy, ôm tiểu Lạc Vân bước thẳng vào trong, hung hăng trừng mắt nhìn Sư Vương. 
 
@@ -150,11 +150,11 @@ Tiểu Lạc Vân xoay đầu, không muốn uống.
 
 “Ngoan, tiểu Vân ngoan …” 
 
-“Tiểu Vân chơi ngân thú có được hay không? Uống một chút, nếu không sẽ đói a …” 
+“Tiểu Vân chơi ngân thú có được hay không? Uống một chút, nếu không sẽ đói …” 
 
 Ô Lão Quy từ đâu xuất hiện, một phát chộp được bình sữa:
 
-“Tiểu hài tử không được, lão già như Quy gia uống được a … cực phẩm không nên phí phạm.” 
+“Tiểu hài tử không được, lão già như Quy gia uống được … cực phẩm không nên phí phạm.” 
 
 “Đã lớn như vậy rồi …” 
 
@@ -198,7 +198,7 @@ Một nhánh cây toả ra bạch quang nhàn nhạt. Một nhánh cây nho nh�
 
 Cự Viên xem xét kĩ một hồi:
 
-“Dong lão luyện khí đúng là có chỗ độc đáo a. Xem ra Thanh Liên Linh Bảo của tiểu tử ta sắp bị ế hàng …” 
+“Dong lão luyện khí đúng là có chỗ độc đáo. Xem ra Thanh Liên Linh Bảo của tiểu tử ta sắp bị ế hàng …” 
 
 Nhánh cây kia là Dong thụ chi, mà phần lõi bên trong không phải gỗ. Là đuôi của Cửu Vĩ Thiên Hồ. Cửu Vĩ Thiên Hồ từ lâu tuyệt tích trong Cổ Lâm, mà tu vi phần lớn chứa ở đuôi. Dong lão không biết từ đâu có được, lại đem bí thuật phong ấn vào trong lõi của Dong thụ chi. Cứ như vậy, chỉ cần tiểu hài tử có chút chân khí, liền có thể vận dụng chiêu thức pháp thuật bên trong phần lõi. Thứ này so với Khổng Tước Bình An Phù có chút tương tự. Chỉ là Khổng Tước Bình An Phù thiện phòng thủ, Dong thụ chi này thiện về biến hoá cùng công kích. 
 
@@ -230,7 +230,7 @@ Tiểu Lạc Vân, mãi cho tới sau này, cũng không biết được, có m�
 
 Có lẽ một ngày nào đó của rất rất nhiều năm sau, tiểu Lạc Vân đã lớn, cũng không cần dùng đến vũ khí nữa, tình cờ lục lọi hòm đồ cũ, phát hiện một cây tang cung, bó bồng tiễn đã hết từ lúc nào. Trên thân cung có mùi thoang thoảng, tựa như là mùi sữa lúc nhỏ. 
 
-“Lúc đó chọn cái này, chắc là do có mùi sữa đi … nghĩ lại lúc đó thật ngốc, lỗ to a!” 
+“Lúc đó chọn cái này, chắc là do có mùi sữa đi … nghĩ lại lúc đó thật ngốc, lỗ to, lỗ to!” 
 
 Chỉ là Cự Viên không bao giờ nói, thứ tiểu hài tử uống mà lớn căn bản không phải sữa. 
 

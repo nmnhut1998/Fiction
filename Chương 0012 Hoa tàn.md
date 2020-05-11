@@ -12,7 +12,7 @@ Tiểu Lạc Vân như đoá hoa vẫn vừa mới nụ, cả một tuổi thơ,
 
 Tiểu Lạc Vân lại gom góp một số đoá Quang Đăng Hoa vẫn còn nguyên vẹn, bỏ vào đó chút độc hương, lại phong kín bằng phấn của Tiểu Thiên Nhi. 
 
-“Hương thứ nhất ... a, gọi là Xoài Xanh Chua Giòn” 
+“Hương thứ nhất ... à, gọi là Xoài Xanh Chua Giòn” 
 
 “Hương thứ hai ... Mắm Ruốc Cay Nồng!” 
 
@@ -150,7 +150,7 @@ Tiểu Lạc Vân một tay bám vào đá, thở hồng hộc:
 
 " ... nếu không phải như vậy, bản thiếu gia tuỳ tiện điểm mấy cái, tiểu Thiên Nhi ngươi không phải tăng thành Ngũ Phẩm Linh thú sao?" 
 
-" ... có điều ... cũng tốt a ... Cuồng Khấp Ngạ Quỷ Hương cùng với Mỹ Thiên Hương đều là đại sát khí ... khụ, mặc dù bản thiếu gia luyện hương tỉ lệ nguyên liệu có chút sai lệch nhưng dùng đúng cách cũng có thể thúc đẩy tu luyện ... nhớ đem theo đồ ăn, cấp bậc không được quá thấp, ít nhất cũn phải là Mộc Linh Mễ hoặc là Hoàng Sâm ..." 
+" ... có điều ... cũng tốt ... Cuồng Khấp Ngạ Quỷ Hương cùng với Mỹ Thiên Hương đều là đại sát khí ... khụ, mặc dù bản thiếu gia luyện hương tỉ lệ nguyên liệu có chút sai lệch nhưng dùng đúng cách cũng có thể thúc đẩy tu luyện ... nhớ đem theo đồ ăn, cấp bậc không được quá thấp, ít nhất cũn phải là Mộc Linh Mễ hoặc là Hoàng Sâm ..." 
 
 "Hyliaaa" 
 
@@ -222,11 +222,11 @@ Tiểu Ô Quy bị ánh mắt bất thiện của tiểu Lạc Vân doạ cho n�
 
 "Ngươi ... ngươi muốn làm gì Quy gia? Nói cho ngươi biết, Quy gia vừa mới ở trong Thiên Huyền Hủ Tuyền ... trên người toàn là Thiên Huyền Hủ Thuỷ ... ngươi đừng có ép Quy gia quá đáng ... nói cho ngươi biết ... mười mấy đầu hung thú đều bị Quy gia độc chết xương cốt không còn!" 
 
-"Nói mới nhớ, ngươi nằm trên vai ta, thời gian cũng không ngắn a ..." 
+"Nói mới nhớ, ngươi nằm trên vai ta, thời gian cũng không ngắn nha ..." 
 
 Tiểu Lạc Vân lấy tay chấm một giọt hắc thuỷ trên người tiểu Ô Quy, dưới ánh mắt trợn tròn của tiện quy này mà cho vào miệng. Sờ sờ Lưu Ly Bảo Y bốc khói vì bị Thiên Huyền Hủ Thuỷ ăn mòn, lại liếc nhìn tiểu Ô Quy từ trên xuống dưới: 
 
-"Tu luyện ra Hỗn Độn Chi Thuỷ, lại chịu được Thiên Huyền Hủ Thuỷ ăn mòn mà không chết ... tiểu Ô Ô, Quy gia gia ném ngươi ra đường không để lại vài món đồ tốt sao? Huyền a di cấp cho ngươi mấy loại độc thủy? Ít nhất cũng phải bù lại Lưu Ly Bảo Y bị hư tổn ... Càn Khôn Quy Giáp trên người ngươi cũng không tệ nga ..." 
+"Tu luyện ra Hỗn Độn Chi Thuỷ, lại chịu được Thiên Huyền Hủ Thuỷ ăn mòn mà không chết ... tiểu Ô Ô, Quy gia gia ném ngươi ra đường không để lại vài món đồ tốt sao? Huyền a di cho ngươi mấy loại độc thủy? Ít nhất cũng phải bù lại Lưu Ly Bảo Y bị hư tổn ... Càn Khôn Quy Giáp trên người ngươi cũng không tệ nha ..." 
 
 "Quy gia ... Quy gia không chơi với yêu nghiệt nhà ngươi ... ngươi tránh xa Quy gia ..." 
 

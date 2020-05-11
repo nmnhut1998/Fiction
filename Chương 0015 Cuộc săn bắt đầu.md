@@ -30,7 +30,7 @@ Tiểu Ô Quy chân trước che mũi, chậm rì rì bò tới, đào được 
 
 Một đòn vừa rồi là của Tiểu Thiên Nhi. Dốc một kích toàn lực, toàn thân Tiểu Thiên Nhi khí tức lụi bại, ngay cả hai cánh cũng bị tan rã thành từng mảnh nhỏ, trên thân bướm dính đầy trùng dịch. 
 
-"Tộc huấn dạy không bao giờ sai a ... thủ đoạn bảo mệnh tốt nhất vẫn là độc, nếu muốn sinh tồn, càng nhỏ yếu, càng mong manh thì độc trên người phải càng lợi hại." 
+"Tộc huấn dạy không bao giờ sai ... thủ đoạn bảo mệnh tốt nhất vẫn là độc, nếu muốn sinh tồn, càng nhỏ yếu, càng mong manh thì độc trên người phải càng lợi hại." 
 
 Tiểu Ô Quy biết muốn Tiểu Lạc Vân chỉ cần muốn giết, ngoại trừ Thanh Lôi Ưng dẫn đường, ấu cầm ở đây một con cũng đừng hòng chạy thoát, nhưng muốn khống chế thì không đơn giản như vậy. 
 

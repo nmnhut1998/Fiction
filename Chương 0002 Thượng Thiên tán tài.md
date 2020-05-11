@@ -8,7 +8,7 @@ Cự Viên cởi trần, mặc quần vải thô sơ, thân trên không còn l�
 
 Ô Lão Quy quét mắt trên người Cự Viên từ trên xuống dưới, con mắt ti hí híp lại, trên dưới trái phải qua lại mấy lần:
 
-“Tiểu Viên tử, ngươi cái dạng này tựa hồ chỉ có phần trên là người a? Tuy rằng thích hợp đi câu dẫn con gái nhà lành nhưng không thích hợp hành sự đi à …” 
+“Tiểu Viên tử, ngươi cái dạng này tựa hồ chỉ có phần trên là người phải không? Tuy rằng thích hợp đi câu dẫn con gái nhà lành nhưng không thích hợp hành sự đi à …” 
 
 Cự Viên bỏ xuống chén trà nhạt, quay sang nhìn Ô Lão Quy, nở một nụ cười hồn hậu: 
 
@@ -279,7 +279,7 @@ Dong lão đọc nốt phần còn lại, thở dài:
 
 Nói rồi liếc nhìn trái phải, lại phất tay tạo thành quang chướng, xác định không có kẻ xấu nhìn thấy, mới cẩn thận từng li từng tí thu vào. 
 
-“Hem hem, vì tương lai của quần thú mà suy nghĩ, vật nhạy cảm như vậy vẫn là do ta bảo quản mới tốt. Một đêm dư hậu ngàn năm a ...” 
+“Hem hem, vì tương lai của quần thú mà suy nghĩ, vật nhạy cảm như vậy vẫn là do ta bảo quản mới tốt. Một đêm dư hậu ngàn năm nha ...” 
 
 Cùng lúc đó, ở Đông Việt Hải, trong một tòa động phủ dưới nước, Ô Lão Quy hóa thành hình người, lưng đeo mai rùa, dáng điệu thấp bé hèn mọn, quỳ gối khóc lóc khổ sở: 
 
@@ -287,7 +287,7 @@ Cùng lúc đó, ở Đông Việt Hải, trong một tòa động phủ dưới
 
 “Cái gì?” - một giọng nữ nhân lạnh lùng chất vấn
 
-“Không, không phải phu nhân, chủ nhân, chủ nhân Thiên Huyền a.” 
+“Không, không phải phu nhân, chủ nhân, chủ nhân Thiên Huyền.” 
 
 “Nói vậy còn nghe được”
 
@@ -303,7 +303,7 @@ Vỏ trứng vẫn còn trên mặt đất, tỏa ra mùi hương mơ màng dễ
 
 Mà theo đó, toàn thân Ô Lão Quy da gà cũng bắt đầu nổi lên. 
 
-“Chủ nhân tha cho ta a …” 
+“Chủ nhân tha cho ta, tha cho ta…” 
 
 “Ngươi phải hầu hạ ta 800 năm nữa, đến khi độc của Trọng thúc thúc giải hết mới thôi!” 
 

@@ -130,7 +130,7 @@ Nguy hiểm. Lần nào gặp phải Tuyết di cũng đều không có kết qu
 
 Đúng lúc đó, một bóng xám khác xuất hiện bên cạnh tiểu Lạc Vân, giọng nói nhu hoà cất lên: 
 
-"Tiểu Vân, chỉ là tạp hồ ly tinh mà thôi, không cần sợ như vậy a?" 
+"Tiểu Vân, chỉ là tạp hồ ly tinh mà thôi, đâu cần sợ như vậy." 
 
 Xuất hiện bên cạnh tiểu Lạc Vân, là một con thỏ xám cực lớn, hai cái tai dài dựng đứng, cái đùi to đến mức tiểu Lạc Vân rướn người vẫn không thể chạm vào phía trên. 
 

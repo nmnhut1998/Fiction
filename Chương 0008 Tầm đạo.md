@@ -126,7 +126,7 @@ Một hai ba bốn ... kìa, mùa pháo hoa!"
 
 Sờ sờ Càn Khôn Quy Giáp, tiểu Lạc Vân lấy ra một quả xoài xanh, một con dao nhỏ, thuần thục mấy cái đã gọt vỏ xong. Xoài sống hãy còn xanh, cắt thành sợi dài có mùi đặc trưng, hương vị chua thanh chưa ăn đã dâng lên tận sống mũi. Mắm ruốc mùi có hơi nồng, ớt cay xé lưỡi, chấm một cái, vừa vào miệng đã cảm thấy toàn cơ thể ấm áp, mồ hôi xuất ra. 
 
-Xoài chua chạm đầu lưỡi, tan trong miệng, lan tận đến chân răng, thấm vào trong cổ họng, lại thêm đầu lưỡi tê tê vì cay làm tiểu Lạc Vân nhăn mặt, nhưng mà cái vị chua này có tính gây nghiện cao a. 
+Xoài chua chạm đầu lưỡi, tan trong miệng, lan tận đến chân răng, thấm vào trong cổ họng, lại thêm đầu lưỡi tê tê vì cay làm tiểu Lạc Vân nhăn mặt, nhưng mà cái vị chua này có tính gây nghiện cao lắm. 
 
 Ừm, cảm giác tốt hơn nhiều. 
 
@@ -210,7 +210,7 @@ Hắn nhấc mình muốn hoả độn, nhưng lại kinh hãi phát hiện mộ
 
 Trong rừng nguyên thuỷ, Dong lão thở dài, mấy sợi râu dung đưa: 
 
-"Lại một năm a ... không biết năm nay sẽ ra sao?" 
+"Lại một năm ... không biết năm nay sẽ ra sao?" 
 
 Pháp lực của Dong lão cũng bị phong bế, nhưng ánh mắt dong lão xuyên qua tầng tầng lớp lớp cây rừng rậm rạp, thấy được những chuyển động nhỏ bé nhất bên trong Cổ Lâm. 
 

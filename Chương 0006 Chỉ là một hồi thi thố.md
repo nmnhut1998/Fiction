@@ -45,7 +45,7 @@ Thập niên chi kiếp lần thứ nhất, rất nhiều ấu thú chết đi, 
 
 Hiện nay Cự Viên luyện ra Liên Hoa Phá Chướng Đan, lẽ nào đã tìm được huyết dịch phù hợp với mọi dị thú? 
 
-Ấu thú phấn kích có, thờ ơ có. Nhiều hơn là cảnh giác. Đây là Viên lão sư a … đề thi của Viên lão sư chưa bao giờ nhiều hơn ba thành học sinh đạt chuẩn. 
+Ấu thú phấn kích có, thờ ơ có. Nhiều hơn là cảnh giác. Đây là Viên lão sư … đề thi của Viên lão sư chưa bao giờ nhiều hơn ba thành học sinh đạt chuẩn. 
 
 Thấy không khí đã không sai biệt lắm, Dong lão cười hoà ái, tiếp tục:
 
@@ -395,7 +395,7 @@ Kẻ chết đi, phần nhiều là nhân lúc hỗn loạn kiếm chác, bỏ m
 
 Ở trong Cổ Lâm, xa rời tập thể chính là chết. 
 
-"Còn về phần Liên Hoa đan, tuy không thể tăng tu vi hay chống lại pháp tắc Cổ Lâm, nhưng có thể tăng cường thể chất, căn cơ một chút, nguyên liệu chính là hung thú chi tinh hôm nay các trò đã luyện hoá được, hỗn tạp một chút cũng không sao. Hẹn các trò năm ngày sau nhận đan a!" 
+"Còn về phần Liên Hoa đan, tuy không thể tăng tu vi hay chống lại pháp tắc Cổ Lâm, nhưng có thể tăng cường thể chất, căn cơ một chút, nguyên liệu chính là hung thú chi tinh hôm nay các trò đã luyện hoá được, hỗn tạp một chút cũng không sao. Hẹn các trò năm ngày sau nhận đan!" 
 
 “Hem hem, một lần nữa chúc mừng các trò, kì thi học kì năm nay, các trò đã vượt qua!"
 

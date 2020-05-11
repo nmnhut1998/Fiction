@@ -20,7 +20,7 @@ Từ trong tiểu đình, một bóng người chầm chậm bước ra. Bóng d
 
 Bóng người đó cùng Liệt Hỏa Thần Đế bước đến đối diện, ngừng lại, không làm gì cả, chỉ nhìn nhau mỉm cười. Liệt Hỏa Thần Đế nội tâm bốc lên từng cơn sóng dữ, nội tâm bất biến của hắn nghìn năm qua chỉ vì trông thấy một bóng hình hư ảo mà lần nữa cuộn trào. Gương mặt hắn như bị phủ lên mấy phần cảm xúc khác nhau. Một phần hốt hoảng, hai phần vui mừng, ba phần hoài niệm cùng bốn phần bất đắc dĩ. Một hồi lâu sau, hắn nhắm mắt lại, hít một hơi thật sâu, chậm rãi cất lời:
 
-“Ngươi… aizz, có giả trang cũng phải làm cho giống một chút a.”
+“Ngươi… aizz, có giả trang cũng phải làm cho giống một chút.”
 
 …
 
@@ -68,7 +68,7 @@ Ngay một khắc khí tức của Liệt Hỏa Thần Đế lan tỏa ra. Mặc
 
 “Chàng làm được rồi.”
 
-“Hứng a hứng, nhanh tay một chút, để rơi mất sẽ rất uổng phí.”
+“Hứng đi, hứng đi, nhanh tay một chút, để rơi mất sẽ rất uổng phí.”
 
 Một giọng nói của nam nhân, trầm ấm mà dịu dàng bất giác vang lên. Nữ tử thoáng giật mình thảng thốt rồi nụ cười biến tươi hơn rất nhiều, như hoa xuân nở rộ. Nàng phất tay một cái, trong tay nàng chợt nhiều hơn một bình ngọc nhỏ. Nhẹ nhàng hứng lấy giọt nước mắt óng ánh, trong suốt vô ngần vào bên trong, nàng mỉm cười hạnh phúc:
 
@@ -78,11 +78,11 @@ Một giọng nói của nam nhân, trầm ấm mà dịu dàng bất giác vang
 
 Một mảnh hồ nước rộng như biển, không nhìn thấy được bờ đối diện. Nước hồ đỏ thẫm như máu. Từng tia khí màu đỏ từ bên dưới mặt hồ bốc lên. Gió thổi từng cơn, bên trong mang theo từng luồng sát khí dày đặc, lạnh thấu xương. Giữa hồ, một nam nhân trung tuần để trần, bên dưới quấn lấy một lớp da thú, đầu tóc đỏ chót, bù xù đang ngồi xếp bằng trên một tảng đá. Tảng đá màu trắng ngà, không lẫn một chút dị sắc. Hắn hai hàng lông mày nhíu lại, ánh mắt tập trung nhìn vào không trung. Từ sâu bên trong hai con ngươi của hắn chớp động lấy từng tia hàn mang kinh khiếp:
 
-“Hừ, cái đồ chết tiệt này, sống cũng thật dai a.”
+“Hừ, cái đồ chết tiệt này, sống cũng thật dai.”
 
 “Ngươi luân hồi mười đời thì đại gia ngươi vẫn an an ổn ổn sống tốt.”
 
-Giọng nam trầm thấp tràn ngập quỷ dị, tựa như từ chốn hư không vọng về, văng vẳng. Nam nhân tóc đỏ như mèo bị nắm lấy đuôi, nhảy lên một cái, dáo dác nhìn xung quanh. Mụ nó cái tên khốn kiếp này là âm hồn a?
+Giọng nam trầm thấp tràn ngập quỷ dị, tựa như từ chốn hư không vọng về, văng vẳng. Nam nhân tóc đỏ như mèo bị nắm lấy đuôi, nhảy lên một cái, dáo dác nhìn xung quanh. Mụ nó cái tên khốn kiếp này là âm hồn hay sao?
 
 “Nhớ kỹ, ngươi còn thiếu nợ ta ba mươi bốn vạn, bảy nghìn tám trăm mười bốn khỏa cực phẩm linh thạch. Đừng quên trả nợ đúng hạn, lãi suất một phần trăm một năm…”
 
@@ -96,6 +96,6 @@ Một tòa cổ tự nguy nga nằm lọt thỏm giữa rừng chuối trải d�
 
 Lời vừa dứt, một giọng nói của nam nhân thì thầm rót vào tai lão:
 
-“Đại sư vẫn không bỏ được ham thích với chuối a!”
+“Đại sư vẫn không bỏ được ham thích với chuối!”
 
 Bên trong lời nói mang theo ý cười nhàn nhạt cùng giọng điệu bỡn cợt. Lão hòa thượng giật giật đôi lông mày, thả ra thần niệm bao phủ lấy cả tòa cổ tự, bao phủ trọn cái không gian xung quanh. Nhưng vẫn không tìm thấy được gì, có lẽ là lão nghe lầm. Nắm vững tâm lý, lão vứt vỏ chuối ra sau lưng, lại hái xuống một quả, lột vỏ, đưa vào trong miệng...

@@ -121,11 +121,11 @@ Tiểu ô quy dường như không biết mệt, bốn chân dài ra, cơ bắp 
 
 "Cha! Ngươi nhẫn tâm độc ác, ném tiểu Ô Ô vào chỗ này. Tiểu Ô Ô mới có ba tuổi, là tuổi ăn tuổi chơi, tuổi mà trời cưng đất thương, các người làm trái lẽ thường, nhất định chịu tai ương quả báo, tối ngủ không yên, bụng liên tục cồn cào, uống vào bao nước rào rào tuôn ra, tu luyện tẩu hoả nhập ma, một đêm tỉnh dậy thấy già trăm năm, đêm ngủ lưng ngứa khó nằm, ngày ăn cơm trắng sứt cằm mẻ răng ..." 
 
-"Bớ liệt tổ liệt tông, các người ở trên trời ngó xuống mà coi, ở dưới nhất vọng lên theo dõi ... đích tôn các người sắp chết trong bụng hung thú ... các người sắp tuyệt tử tuyệt tôn a ..." 
+"Bớ liệt tổ liệt tông, các người ở trên trời ngó xuống mà coi, ở dưới nhất vọng lên theo dõi ... đích tôn các người sắp chết trong bụng hung thú ... các người sắp tuyệt tử tuyệt tôn kìa ..." 
 
 Phía sau, đàn đàn hung thú đông nghịt cấp tốc đuổi theo. Thậm chí ẩn trong đó còn có một số khí tức cường đại - cửu giai hung thú trở lên, tương đương với dị thú đã bước vào Linh cảnh. 
 
-Hắn vốn rất biệt khuất a ... rõ ràng đang ăn ngon ngủ yên, khi không bị cha ném tới chỗ này, vừa tìm được Thanh Hương Đằng Quả muốn hảo hảo ăn uống lại gặp hung thú kéo bầy mà đi. 
+Hắn vốn rất biệt khuất ... rõ ràng đang ăn ngon ngủ yên, khi không bị cha ném tới chỗ này, vừa tìm được Thanh Hương Đằng Quả muốn hảo hảo ăn uống lại gặp hung thú kéo bầy mà đi. 
 
 "Cái lũ hung thú các ngươi ... đừng có khi rẻ Quy gia quá đáng ..." 
 

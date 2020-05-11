@@ -287,4 +287,8 @@ Tiểu Hoàng Tước trên trán hiện lên ngọn lửa màu vàng, thân hì
 
 Trong hàng ngũ phi cầm, Tiểu Đạt Đạt là nổi bật nhất. Lúc trước Tiểu Đạt Đạt một mực giả ngất xỉu đã âm thầm tích trữ lực lượng, hiện giờ là lúc bộc phát. Trên đầu nó từ lúc nào đã xuất hiện vương miện ngũ sắc - Khổng Tước Miện, dẫn theo hơn hai mươi con phi cầm có bộ lông sặc sỡ, cắn đuôi nhau xếp thành trận hình mũi tên, chân khí chảy xuôi theo trận hình vào người Tiểu Đạt Đạt, hỗ trợ nó khu sử Khổng Tước Miện. Khổng Tước Miện thả ra một đoàn ánh sáng mang theo thuộc tính ngũ hành, đánh cho Yểm Ma Viên liên tục bại lui. 
 
-Tình hình nhất thời rơi vào thế giằng co, không bên nào có thể chiếm được lợi thế. 
+Tình hình nhất thời rơi vào thế giằng co, không bên nào có thể chiếm được lợi thế.
+
+Không ai để ý, tiểu Ô Quy trong lúc hỗn loạn đã trực tiếp dẫn bạo mai rùa của mình, mượn lực lượng bùng phát lúc quy giáp bị huỷ để vận hành lệnh bài khắc chữ Huyền, làm chếch đi một nét của Sinh Tử Lôi Thần Phù, sau đó thần không biết, quỷ không hai hoà tan cơ thể vào bia Trấn Hung Phong Thiên, biến mất không còn hình dáng. 
+
+Lúc này, tiểu Lạc Vân bên trong kén nhện 

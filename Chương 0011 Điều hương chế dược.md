@@ -48,13 +48,13 @@ Tiểu Thiên Nhi vui sướng kêu lên một tiếng, hai sợi râu dài ra, 
 
 (Phải làm sao. Ta cũng cảm thấy trong người căng cứng, không khoẻ)
 
-"Làm việc a! Trước cắt nhỏ Tử Đăng Thảo thành phấn vụn, càng nhỏ càng tốt."
+"Làm việc! Trước cắt nhỏ Tử Đăng Thảo thành phấn vụn, càng nhỏ càng tốt."
 
 "Anh Túc Hoa tách cánh hoa cùng với hạt để riêng. Anh Túc Hoa có độc, nhất định lúc thao tác không được để cho cánh hoa bị dập hoặc là hạt bị nát." 
 
 "Xích Địa Đằng thái lát dài, gọt bỏ phần vỏ bên ngoài." 
 
-"Ân, sau đó ngươi đi tìm chút gỗ, râu ngươi sắc bén lại linh hoạt như vậy, làm thành hai bộ chày cối chắc không vấn đề. Nhớ kĩ, một lớn một nhỏ, ngươi dùng cái lớn, ta dùng cái nhỏ. Chúng ta chuẩn bị điều hương chế dược a!" 
+"Ân, sau đó ngươi đi tìm chút gỗ, râu ngươi sắc bén lại linh hoạt như vậy, làm thành hai bộ chày cối chắc không vấn đề. Nhớ kĩ, một lớn một nhỏ, ngươi dùng cái lớn, ta dùng cái nhỏ. Chúng ta chuẩn bị điều hương chế dược!" 
 
 "Hyda da? Hyhyla?" 
 
@@ -62,13 +62,13 @@ Tiểu Thiên Nhi vui sướng kêu lên một tiếng, hai sợi râu dài ra, 
 
 Tiểu Lạc Vân lập tức phất tay: 
 
-"Hoàng Sâm rất quan trọng, cần phải có kĩ năng, để ta xử lí, ngươi không được đụng vào! Được rồi, ngươi mau đi làm a!" 
+"Hoàng Sâm rất quan trọng, cần phải có kĩ năng, để ta xử lí, ngươi không được đụng vào! Được rồi, ngươi mau đi làm đi!" 
 
 "Hylia!"
 
 (Ngươi không được sai khiến ta như người hầu! Ta là Linh thú đó!)
 
-"Biết rồi, biết rồi, mau đi làm a, không hoạt động gân cốt sẽ bạo thể!" 
+"Biết rồi, biết rồi, mau đi làm đi, không hoạt động gân cốt sẽ bạo thể!" 
 
 Để lại Hoàng Sâm cùng với nước suối cho tiểu Lạc Vân, Tiểu Nhiên Nhi mang đống dược thảo còn lại đi một chỗ khác. Ở chỗ này có hương Quang Đăng Hoa làm cho Tiểu Thiên Nhi cảm thấy toàn thân khó chịu. 
 
@@ -76,7 +76,7 @@ Tiểu Lạc Vân lập tức phất tay:
 
 Tiếng cắt chém liên tục vang lên, mỗi lần cặp râu hạ đều xuống cắt lấy một mảnh Tử Hương Thảo. Tiểu Thiên Nhi điều khiển chiếc râu ngày càng thuần thục, mấy phút đầu thì cắt loạn xạ, lúc sau đã bắt đầu có thể khống chế, cắt phân lá ra một chỗ, thân cành ra riêng một chỗ. Lúc này, Tiểu Thiên Nhi đương nhiên biết rõ dụng ý của tiểu Lạc Vân, chính là muốn mình rèn luyện hai "đại sát khí" trời sinh đã có này. 
 
-Tiểu Lạc Vân nghe tiếng vút vút, đột nhiên đổ mồ hôi lạnh. Cũng may mình nhân lúc Tiểu Thiên Nhi vừa phá kén, vẫn còn nhỏ yếu mà đàn áp. Lúc đó Tiểu Thiên Nhi râu cánh đều mềm mềm mịn mịn, sờ rất là thích. Tiểu Thiên Nhi bây giờ toàn thân đã triệt để cứng cáp, nếu có tâm đối phó mình, cũng chỉ có thể dùng Thiên Hồ Pháp Địch một lần a. 
+Tiểu Lạc Vân nghe tiếng vút vút, đột nhiên đổ mồ hôi lạnh. Cũng may mình nhân lúc Tiểu Thiên Nhi vừa phá kén, vẫn còn nhỏ yếu mà đàn áp. Lúc đó Tiểu Thiên Nhi râu cánh đều mềm mềm mịn mịn, sờ rất là thích. Tiểu Thiên Nhi bây giờ toàn thân đã triệt để cứng cáp, nếu có tâm đối phó mình, cũng chỉ có thể dùng Thiên Hồ Pháp Địch một lần. 
 
 Tiểu Lạc Vân dùng Quang Đăng Hoa Diễm hơ Hoàng Sâm, cẩn thận đốt bỏ phần bụi đất bên ngoài, sau đó lại dùng nước suối rửa sạch, rải thêm chút bột chế từ "tự thân cơ thể", cuối cùng nhẹ nhàng đặt vào trong Thanh Sắc Quang Hoa Diễm. 
 
@@ -94,7 +94,7 @@ Ngừng một chút, tiểu Lạc Vân sờ sờ mũi, tiếp tục đọc:
 
 Đưa tay quẹt quẹt miệng một cái, cảm nhận ánh mắt bất thiện của Tiểu Thiên Nhi tiểu Lạc Vân lại nói tiếp:
 
-"Tiểu Thiên Nhi ngươi mau làm tiếp a ... Ta nói, Hoàng Sâm rất quan trọng, ngươi không cần giúp đỡ, Lạc Vân ta tự ... Ực" 
+"Tiểu Thiên Nhi ngươi mau làm tiếp  ... Ta nói, Hoàng Sâm rất quan trọng, ngươi không cần giúp đỡ, Lạc Vân ta tự ... Ực" 
 
 Tiểu Lạc Vân ngừng nói chuyện, bàn tay nhỏ trực tiếp chộp lấy củ Hoàng Sâm đã nướng chín. Lột bỏ vỏ ngoài đã cháy đen, hoàng sâm ruột vàng, phớt chút sọc đỏ hồng vừa mềm vừa thơm. Tiểu Lạc Vân cẩn thận, nhẹ nhàng như nâng trân bảo, từ từ chạm đầu lưỡi vào, chỉ dám ngậm không dám nhai, cảm nhận vị ngọt từ từ tan trong miệng, thấm vào trong cổ họng, hương thơm đặc trưng nồng nàn hoà cùng với ngũ vị hương từ từ xông lên mũi. 
 
@@ -322,7 +322,7 @@ Giọt hồn lệ kia không bị thu lại, mà thấm vào tay của tiểu L�
 
 "Thật ra lúc nãy ta chỉ dùng một xíu sức mạnh của Thiên Hồ Pháp Địch mà thôi, nếu không ngươi sẽ nói ta ăn gian. Bản thiếu gia kì thực rất lợi hại đó."
 
-"Nhưng mà ta chỉ là phàm nhân a ... dù có làm gì cũng chỉ quanh quẩnh mấy chục năm một kiếp ..." 
+"Nhưng mà ta chỉ là phàm nhân ... dù có làm gì cũng chỉ quanh quẩnh mấy chục năm một kiếp ..." 
 
 "Ta còn không biết mình có sống được đến lúc ăn sinh nhật hay không nữa ..." 
 

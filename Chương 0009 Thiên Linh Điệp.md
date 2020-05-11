@@ -166,7 +166,7 @@ Tiểu hồ điệp tức giận, hai cái râu khu động, trực tiếp cuố
 
 Tiểu Lạc Vân mặt xám như tro tàn, hốt hoảng thét lên: 
 
-"Tiểu hồ điệp, đừng a! Cái đó là xoài sống mắm ruốc!" 
+"Tiểu hồ điệp, đừng nha! Cái đó là xoài sống mắm ruốc!" 
 
 Tựa hồ trên râu bị dính mùi mắm ruốc "đặc thù", lại thêm ớt cay nồng, tiểu hồ điệp tức giận, râu quét ngang trên mặt tiểu Lạc Vân, hòng thu hết toàn bộ mồ hôi trên mặt hắn. 
 
@@ -174,7 +174,7 @@ Tựa hồ trên râu bị dính mùi mắm ruốc "đặc thù", lại thêm �
 
 "Tiểu hồ điệp ngươi cẩn thận, cái đó là phỏng chế Nhất dạ thiên hương Vu Sơn mộng!" 
 
-"Đừng a! Cái kia là thuốc Quy gia gia mới chế, còn chưa có rõ công dụng!" 
+"Đừng nha! Cái kia là thuốc Quy gia gia mới chế, còn chưa có rõ công dụng!" 
 
 "...."
 
@@ -190,7 +190,7 @@ Trong đầu tiểu Lạc Vân hiện lên hình ảnh cha Sư Vương một ti�
 
 Tiểu Lạc Vân lắc lắc tơ nhện mỏng manh, trong suốt, miệng cười tươi rói: 
 
-"Ngươi đã đi theo ta, cũng nên có tên. Ngươi là Thiên Linh Điệp, gọi ngươi là Tiểu Thiên Nhi a!" 
+"Ngươi đã đi theo ta, cũng nên có tên. Ngươi là Thiên Linh Điệp, gọi ngươi là Tiểu Thiên Nhi!" 
 
 Ầm!
 

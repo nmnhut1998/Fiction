@@ -154,11 +154,11 @@ Sư Vương là người mở miệng đầu tiên:
 
 Cự Viên như chỉ đợi có thế, vỗ đùi một cái, cười ha ha: 
 
-“Ha ha, ngươi chết sớm hơn ta, lão tử mười tám năm a. Vừa đúng một đời nam tử!” 
+“Ha ha, ngươi chết sớm hơn ta, lão tử mười tám năm nha. Vừa đúng một đời nam tử!” 
 
 Ô Lão Quy đuôi rùa dựng thẳng, mắt liếc nhìn bình trà vẫn còn lưng hơn nửa: 
 
-“Quy gia vẫn còn trẻ, sống vẫn lâu, không ngại, không ngại uống thêm vài chén trà a …” 
+“Quy gia vẫn còn trẻ, sống vẫn lâu, không ngại, không ngại uống thêm vài chén trà …” 
 
 Dong lão điềm tĩnh đặt xuống chén trà, lắc đầu, đem nước trà còn thừa tưới vào gốc cây. 
 
@@ -232,7 +232,7 @@ Cự Viên đối với cái thở dài của Sư Vương tập mãi đã quen, 
 
 “Ngươi viết là thứ gì?” 
 
-“Câu đố a ... Ngươi muốn thử không ?” 
+“Câu đố ... Ngươi muốn thử không ?” 
 
 Ô Lão Quy cắn răng, mắt láu lia mấy cái. Câu đố của Cự Viên, cũng là một dạng bói toán, tuy kì quái nhưng mà có huyền diệu, không chừng còn tàng thiên cơ. Dù sao hôm nay, hội tụ này là chủ ý của hắn. 
 
@@ -278,9 +278,9 @@ Cự Viên chỉ chỉ bầu trời:
 
 Nói xong, Dong lão hoá thành một đoạn lục quang biến mất. Cự Viên cười nói:
 
-“Cơ duyên lớn a!” 
+“Cơ duyên lớn! Cơ duyên lớn!” 
 
 Ô Lão Quy rì rầm:
 
-“Cơ duyên lớn … nguy hiểm lại càng lớn … không được không được … Quy gia không thể bỏ qua a!” 
+“Cơ duyên lớn … nguy hiểm lại càng lớn … không được không được … Quy gia không thể bỏ qua!” 
 

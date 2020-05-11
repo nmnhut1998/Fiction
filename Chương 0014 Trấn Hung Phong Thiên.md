@@ -180,17 +180,17 @@ Tiểu Ô Quy ở một bên xem kịch, hai mắt đảo loạn một vòng, đ
 
 Tiểu Ô Quy đưa chân trước, làm thành tư thế lắng nghe, sau đó lắc đầu: 
 
-"A? Ngươi nói gì? Ngươi nói từ lâu đã ngưỡng mộ Quy gia? Không sao, đừng ngại, Quy gia đã là truyền thuyết, rất nhiều dị thú xem Quy gia là thần tượng." 
+"Hả? Ngươi nói gì? Ngươi nói từ lâu đã ngưỡng mộ Quy gia? Không sao, đừng ngại, Quy gia đã là truyền thuyết, rất nhiều dị thú xem Quy gia là thần tượng." 
 
 Đạt Đạt tức giận trừng mắt lắc đầu, kêu lên mấy tiếng rõ to: 
 
 "Kwork! Kwork! Kwork!" 
 
-"A? Ngươi nói muốn hẹn hò Quy gia? Đừng nha, Quy gia chỉ thích ăn hàu nướng, cưới Quy nương tử, ngươi mau tránh xa Quy gia!" 
+"Hả? Ngươi nói muốn hẹn hò Quy gia? Đừng nha, Quy gia chỉ thích ăn hàu nướng, cưới Quy nương tử, ngươi mau tránh xa Quy gia!" 
 
 "Kwork!!!!!!!" 
 
-"A? Không cần, cái gì mà trăm vạn linh thạch cực phẩm, ba mươi rùa cái theo hầu, tám trăm tờ giấy Ngũ sắc chỉ để đổi lấy một đêm cùng Quy gia? Quy gia nhìn vậy nhưng mà là người đứng đắn, à không, Rùa đứng đắn. Đối với Quy gia vật chất chỉ là phù du." 
+"Hả? Không cần, cái gì mà trăm vạn linh thạch cực phẩm, ba mươi rùa cái theo hầu, tám trăm tờ giấy Ngũ sắc chỉ để đổi lấy một đêm cùng Quy gia? Quy gia nhìn vậy nhưng mà là người đứng đắn, à không, Rùa đứng đắn. Đối với Quy gia vật chất chỉ là phù du." 
 
 Đạt Đạt tức giận, con mắt trừng tiểu Ô Quy, khoé mắt căng ra, tiến tới thì không chiếm lí, dễ bị tên vô sỉ này mượn cớ tự vệ tấn công, lùi về thì rõ ràng mất đi khí thế. 
 

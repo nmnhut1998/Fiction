@@ -126,7 +126,7 @@ Dong lão cười khổ, cũng không có ăn, chỉ là cảm khái:
 
 “Thực là muốn giúp cũng không được.” 
 
-“Dong lão không giúp được, nhưng ta thì được a.”  - Cự Viên cười thần bí. 
+“Dong lão không giúp được, nhưng ta thì được.”  - Cự Viên cười thần bí. 
 
 Nói xong, trên tay hắn xuất hiện một thanh hoả diễm tiểu đao, trên khắc liên hoa ấn kí. 
 
@@ -198,7 +198,7 @@ Cự Viên thì thào:
 
 Thiên uy trên trời vẫn đè ép đến ngạt thở. Ở trong Cổ Lâm, có thể kháng cự thiên uy đè ép chỉ có Sư Vương, rốt cuộc là kẻ nào? 
 
-Lẽ nào hung linh bị trấn áp kia đã khôi phục? Như vậy thì cũng phải biết rõ a. 
+Lẽ nào hung linh bị trấn áp kia đã khôi phục?
 
 Ánh trăng chiếu rọi mọi thứ, bảo bọc hết thảy, quần thú trong mắt Thiên Ma Hổ tựa như không tồn tại, chỉ trừ tiểu hài tử nhỏ nhoi trong ngực. 
 
@@ -282,7 +282,7 @@ Cự Viên mặc kệ, trở lại bên cạnh Sư Vương, nhíu mày.
 
 Từ phía xa, Ô Lão Quy hớt hải chạy tới, kêu la oai oái:
 
-“Tiểu miêu tử, không có sao a?” 
+“Tiểu miêu tử, không có sao chứ?” 
 
 Cự Viên lấy ra mấy bình đan dược, lại nhìn tiểu hài tử, lắc đầu. 
 
@@ -304,7 +304,7 @@ Sư Vương lắc đầu.
 
 Nhìn kĩ tiểu hài tử, thật lâu, thật lâu, Sư Vương ánh mắt điên cuồng, thì thào:
 
-“Biết không … tiểu Lạc Vân, đây là Mê Vụ Cổ Lâm, Cổ Lâm khả nhập bất khả xuất … ta từ lâu có một suy đoán … một suy đoán a …”
+“Biết không … tiểu Lạc Vân, đây là Mê Vụ Cổ Lâm, Cổ Lâm khả nhập bất khả xuất … ta từ lâu có một suy đoán … một suy đoán …”
 
 Tiếng thì thào của Sư Vương làm cho Cự Viên cảm thấy bất an. 
 
