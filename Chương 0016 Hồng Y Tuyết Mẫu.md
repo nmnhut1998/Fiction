@@ -345,4 +345,28 @@ Thanh Hồ muốn phá phù văn rất đơn giản, liên tục quán chú mộ
 
 Ưng Hồng Liên nghiêng người đánh giá, mỏ ưng nhếch lên, vút một tiếng bay đến trên đầu của tiểu Lạc Vân, một trảo mang theo lôi điện chụp xuống. 
 
-"Tiểu Lạc Vân tiếp xúc hung lệ chi khí quá nhiều, hiện tại sắc mặt rất kém, hai mắt đỏ hồng, nghi ngờ bị hung tính phát tác, cần phải lập tức trấn áp!"  
+"Tiểu Lạc Vân tiếp xúc hung lệ chi khí quá nhiều, hiện tại sắc mặt rất kém, hai mắt đỏ hồng, nghi ngờ bị hung tính phát tác, cần phải lập tức trấn áp. Đây là việc thiên kinh địa nghĩa, Sư Vương ở đây cũng chắc chắn sẽ tán thành."  
+
+Tiểu Lạc Vân hai mắt đỏ hồng, hơi ngấn lệ, là bởi vì buồn thói đời hiểm ác, lòng người, không, lòng chim thâm độc. Một trảo này chụp xuống, tiểu Lạc Vân vội vàng nhảy người né tránh, Lưu Ly Bảo Y rời thân, phiêu phiêu giữa trời, biến thành một tấm khiên ngăn chặn móng vuốt. 
+
+"Vì sao?"
+
+Tiểu Lạc Vân hỏi. 
+
+"Không vì sao cả. Con trai lớn của ta đã chết, ta chỉ còn một mình A Kiệt. Ta muốn nó có được sức mạnh vô thượng, muốn nó thoát khỏi lồng giam Cổ Lâm này, bay lượn khắp Thiên Dư Đại Lục!" 
+
+"Hơn mười điểu tộc đã chết!" 
+
+"Bọn chúng vốn dĩ đã phải chết ba năm trước. Sống ba năm, bọn chúng thọ nguyên cũng không còn, sống chết chỉ còn nay mai." 
+
+"Nhưng chết quá đau đớn ... " 
+
+"Ngươi đang bị hung tính bộc phát, đừng có buông lời xảo huyệt! Hung tính bộc phát lại có trí tuệ, phải là hung thú vượt qua thập bát giai, tương đương với Thần cảnh! Chỉ cần luyện hoá ngươi thành Hỗn Độn Chi Tinh, đó chính là vô thượng thần đan trong truyền thuyết!" 
+
+Tiểu Lạc Vân giận. Lần đầu tiên tiểu Lạc Vân cảm thấy giận như vậy. Ưng Hồng Liên bay ở trên cao, ánh mắt xem thường nhìn xuống, chữ chữ nói ra đều là vu khống không căn cứ. Tiểu Lạc Vân thầm nói trong lòng rằng sau này phải tìm tiểu Ô Quy học thêm mấy câu chửi nghe thật kêu, nhịn ở trong lòng sớm muốn gì cũng nghẹn mà chết. 
+
+Đám phi cầm thả ra thần thông công kích từ xa, Ưng Hồng Liên lại từ trên trời lao xuống. 
+
+"Phi!" 
+
+Tiểu hài tử khuôn mặt đỏ rực vì tức nghẹn, phun ra liên tục hơn chục bãi nước bọt. 

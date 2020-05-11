@@ -148,4 +148,4 @@ __________________
 
 "Không thể nào ... làm sao xuất hiện ở đây ... Vân nhi gặp nguy hiểm!"
 
-Sư Vương tung người muốn ra ngoài nhưng cuối cùng không đi, nằm trên giường, nhắm mắt thở dài. 
+Sư Vương tung người muốn ra ngoài nhưng vừa bước ra cửa đã thấy một thân ảnh cản đường, cuối cùng quyết định không đi, nằm trên giường, nhắm mắt thở dài. 
