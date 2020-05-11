@@ -369,4 +369,10 @@ Tiểu Lạc Vân giận. Lần đầu tiên tiểu Lạc Vân cảm thấy gi�
 
 "Phi!" 
 
-Tiểu hài tử khuôn mặt đỏ rực vì tức nghẹn, phun ra liên tục hơn chục bãi nước bọt. 
+Tiểu hài tử khuôn mặt đỏ rực vì tức nghẹn, phun ra liên tục hơn chục bãi nước bọt. Ưng Hồng Liên cứ nghĩ tiểu Lạc Vân sẽ dùng Lưu Ly Bảo Y hoặc là bảo vật Sư Vương cho để đối kháng, thật không ngờ lại phun nước bọt khinh bỉ. Tuy nhiên, xuất phát từ nhiều lời đồn đãi, mẫu ưng này cũng không dám để nước bọt kia dính vào người, đám phi cầm cũng nhao nhao tản ra. 
+
+Nhưng mà, Ưng Hồng Liên cũng không ngờ tới đám nước bọt sượt qua người mình lại biến thành một đoàn hoả diễm màu tím, đuổi riết theo mình không bỏ. 
+
+Quang Đăng Hoa Diễm! Là tử sắc Quang Đăng Hoa Diễm mà bất cứ dị thú nào cũng phải kiêng kị ba phần!
+
+Trên người của Ưng Hồng Liên có dao động linh khí rất mạnh, cho nên sức hấp dẫn đối với Quang Đăng Hoa Diễm cũng rất lớn. Hơn mười đoàn hoả diễm giống như lửa ma trơi, vây lấy con mẫu ưng này, toả ra hương thơm làm cho linh khí trong cơ thể dần tán loạn ra bên ngoài. 
