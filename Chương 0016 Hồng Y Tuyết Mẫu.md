@@ -289,6 +289,8 @@ Trong hàng ngũ phi cầm, Tiểu Đạt Đạt là nổi bật nhất. Lúc tr
 
 Tình hình nhất thời rơi vào thế giằng co, không bên nào có thể chiếm được lợi thế.
 
-Không ai để ý, tiểu Ô Quy trong lúc hỗn loạn đã trực tiếp dẫn bạo mai rùa của mình, mượn lực lượng bùng phát lúc quy giáp bị huỷ để vận hành lệnh bài khắc chữ Huyền, làm chếch đi một nét của Sinh Tử Lôi Thần Phù, sau đó thần không biết, quỷ không hai hoà tan cơ thể vào bia Trấn Hung Phong Thiên, biến mất không còn hình dáng. 
+Không ai để ý, tiểu Ô Quy trong lúc hỗn loạn đã trực tiếp dẫn bạo mai rùa của mình, mượn lực lượng bùng phát lúc quy giáp bị huỷ để vận hành lệnh bài khắc chữ Huyền, làm chếch đi một nét của Sinh Tử Lôi Thần Phù, sau đó được một con tiểu hồ điệp dùng đám quang phấn che giấu, từ từ bay lên cao, thân thể chìm vào trong lôi vân không còn tung tích. 
 
-Lúc này, tiểu Lạc Vân bên trong kén nhện 
+Lúc này, tiểu Lạc Vân bên trong kén nhện đột nhiên hét lớn: 
+
+"Cẩn thận! Ưng Kiệt mất tích!" 
