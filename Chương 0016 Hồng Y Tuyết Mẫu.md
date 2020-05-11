@@ -303,7 +303,7 @@ Cửu Vĩ Thanh Hồ nghe vậy, hai mắt híp lại, hồ trảo thoắt cái 
 
 "Các!" 
 
-Ưng Hồng Liên cất tiếng ưng đề sắc bén, hơn trăm chiếc lông vũ mang theo tinh huyết trên người phóng ra như mưa tên, toàn bộ Yểm Ma Viên đều bị mẫu điểu này một kích diệt sạch, đau đớn kêu gào bên trong hoả diễm. 
+Ưng Hồng Liên cất tiếng ưng đề sắc bén, hơn trăm chiếc lông vũ mang theo tinh huyết trên người phóng ra như mưa tên, toàn bộ Yểm Ma Viên đều bị mẫu điểu này một kích diệt sạch, đau đớn kêu gào bên trong hoả diễm. Trên mặt đất, hai mươi tám đám cháy rừng rực, bị gió thổi lập tức qua hoà lẫn vào nhau, không thể phân biệt được.  
 
 Thanh Hồ nghiêng người né tránh móng vuốt, chín cái đuôi phiêu dật cuốn qua che thân hình, giống như man thiên quá hải, chỉ chớp mắt đã xuất hiện bên cạnh tiểu Lạc Vân. 
 
@@ -315,15 +315,23 @@ Tiểu Lạc Vân xé kén chui ra, ôm ngực phập phồng, bên trong kén l
 
 "Tiểu tử nhu nhược, không thể làm chuyện lớn!" 
 
-Cửu Vĩ Thanh Hồ ngược lại có mấy phần yêu thích cá tính của tiểu Lạc Vân, tuy xét về thấu hiểu lòng người còn kém xa dị thú cùng tuổi. Dù sao dị thú khác nhau, tuổi trưởng thành khác nhau, cho nên sự thành thục về trí tuệ cũng khác nhau. Trong Cổ Lâm, dị thú ba tuổi đã tương đương với thiếu niên nhân loại, nhưng tiểu Lạc Vân cơ thể phát triển rất chậm, tâm trì còn trẻ con mới là chuyện bình thường. Nhưng Sư Vương dạy dỗ rất tốt, không biết dùng cách gì mà tạo thành cho tiểu tử này một bản năng ứng biến, thậm chí nó vượt trên cả bản năng sợ hãi, giúp cho tiểu tử này có thể vững vàng đối mặt với nguy hiểm. 
+Cửu Vĩ Thanh Hồ ngược lại có mấy phần yêu thích cá tính của tiểu Lạc Vân, tuy xét về thấu hiểu lòng người còn kém xa dị thú cùng tuổi. Dù sao dị thú khác nhau, tuổi trưởng thành khác nhau, cho nên sự thành thục về trí tuệ cũng khác nhau. Trong Cổ Lâm, dị thú ba tuổi có một số loài đã tương đương với thiếu niên loài người, nhưng tiểu Lạc Vân cơ thể phát triển rất chậm, tâm trì còn trẻ con mới là chuyện bình thường. Tuy vậy, Sư Vương dạy dỗ rất tốt, không biết dùng cách gì mà tạo thành cho tiểu tử này một bản năng ứng biến, thậm chí nó vượt trên cả bản năng sợ hãi, giúp cho tiểu tử này có thể vững vàng đối mặt với nguy hiểm. 
 
-Chỉ là Thanh Hồ không biết, tiểu Lạc Vân còn chút thủ đoạn áp đáy hòm, cho nên mới có thể gặp nguy không loạn.
+Chỉ là Thanh Hồ không biết, tiểu Lạc Vân còn chút thủ đoạn áp đáy hòm, cho nên mới có thể gặp nguy không loạn. 
 
-"Điểu tộc làm việc thật là có đạo lý, nhẫn nhịn lâu như vậy, lại hi sinh tính mạng mười tuỳ tùng để tạo cơ hội cho Ưng Kiệt lẻn vào Lôi Vực. Các ngươi là muốn dựa vào tiểu Lạc Vân để hoá giải Cấm Pháp Lĩnh Vực? Là do sớm nghe máu của tiểu Lạc Vân có thể trục xuất được bảy mươi hai loại kì độc?" 
+Bí kiếp để không sợ hãi của Sư Vương rất đơn giản, lúc cần thiết, tối hậu nhất, tiểu Lạc Vân luôn có thể trở về nhà. 
+
+"Điểu tộc làm việc thật là có đạo lý, nhẫn nhịn lâu như vậy. Các ngươi là muốn dựa vào tiểu Lạc Vân để hoá giải Cấm Pháp Lĩnh Vực? Là do sớm nghe máu của tiểu Lạc Vân có thể trục xuất được bảy mươi hai loại kì độc?" 
 
 "Với tính cách của Sư Vương, pháp chỉ ắt hẳn có ba tờ, một cho phi cầm, một cho tẩu thú, một cho thuỷ tộc. Điểu tộc các ngươi nhận trách nhiệm truyền thư, không biết một tờ pháp chỉ đó là của ai?"  
 
-"Hay là, Yểm Ma Viên là do các ngươi nuôi, Sinh Tử Lôi Thần Phù là do các ngươi vẽ. Cũng đúng la, Lạc Điểu nhất mạch bên trong điểu tộc chính là bậc thầy về phù văn, Khổng Tước Huyễn Thần Bảo Điển có thể luyện ra huyễn độc khống chế thần trí cũng là bình thường." 
+"Lại nói, Ưng Kiệt vì sao tự mình lẻn vào Lôi Vực? Mặt đất có hai mươi tám đám cháy, vậy còn Yểm Ma Viên khác ở đâu?"
+
+"Hay là, Yểm Ma Viên là do các ngươi nuôi, Sinh Tử Lôi Thần Phù là do các ngươi vẽ, bởi vì bị ta áp chế cho nên mới hiến tế tính mạng mười phi điểu tuỳ tùng, giúp cho Sinh Tử Lôi Thần Phù đột phá. Trên người Yểm Ma Viên có Sinh Tử Lôi Thần Phù, vào trong Lôi Vực như cá gặp nước. Các ngươi muốn lấy được Hung Hoè Thụ Tâm?" 
+
+"Càng nói càng thấy đúng, Lạc Điểu nhất mạch bên trong điểu tộc chính là bậc thầy về phù văn, Khổng Tước Huyễn Thần Bảo Điển có thể luyện ra huyễn độc khống chế thần trí cũng là bình thường, lại nghe nói Thanh Lôi Ưng tộc các ngươi gần đây có nghiên cứu trận pháp cùng với chiến trận." 
+
+"Tiểu tử, ngươi thấy chưa, cho dù có nhân đạo cũng có mức độ. Nhân đạo đối với kẻ thù chính là đào hố chôn mình" 
 
 Pháp chỉ của Sư Vương là chìa khoá tiến vào Lôi Vực, ngoài ra phải dùng huyết mạch làm dẫn. Trong tay Yểm Ma Viên có máu của tiểu Lạc Vân, dĩ nhiên có thể tự do ra vào Lôi Vực. 
 
