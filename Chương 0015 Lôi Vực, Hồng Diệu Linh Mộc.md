@@ -148,4 +148,4 @@ __________________
 
 "Không thể nào ... làm sao xuất hiện ở đây ... Vân nhi gặp nguy hiểm!"
 
-Sư Vương tung người muốn ra ngoài nhưng vừa bước ra cửa đã thấy một thân ảnh cản đường, cuối cùng quyết định không đi, nằm trên giường, nhắm mắt thở dài. 
+Sư Vương tung người muốn ra ngoài nhưng vừa bước ra cửa đã thấy một thân ảnh cản đường, trên tay còn cầm một quyển trục màu bạc. Cuối cùng, hắn quyết định không đi, nằm trên giường, nhắm mắt thở dài, khoé mắt chảy ra hai dòng lệ nóng. 
