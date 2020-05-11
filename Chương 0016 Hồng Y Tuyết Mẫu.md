@@ -283,4 +283,8 @@ Yểm Ma Viên vốn bị Lưu Ly Bảo Y trói chặt đột nhiên biến thà
 
 Ưng Hồng Liên gầm thét giận dữ, thanh quang rực sáng tạo thành lĩnh vực bảo hộ phi cầm bên trong. Trong khúc nguy cầm, toàn bộ lá bài tẩy của đám phi cầm đều lộ ra. 
 
-Tiểu Hoàng Tước trên trán hiện lên ngọn lửa màu vàng, thân hình biến lớn, mọc ra bảy chiếc đuôi lửa huyễn lệ, thành công tránh thoát một con Yểm Ma Viên tấn công. Một con tiểu Thanh Điểu đập cánh một cái, thân hình biến thành ngọn gió biến mất, xuất hiện phía dưới cánh của Ưng Hồng Liên. 
+Tiểu Hoàng Tước trên trán hiện lên ngọn lửa màu vàng, thân hình biến lớn, mọc ra bảy chiếc đuôi lửa huyễn lệ, thành công tránh thoát một con Yểm Ma Viên tấn công. Một con tiểu Thanh Điểu đập cánh một cái, thân hình biến thành ngọn gió biến mất, xuất hiện phía dưới cánh của Ưng Hồng Liên. Mười hai con Bạch cáp điểu xếp thành hàng, cùng ngậm trong mỏ một khúc linh mộc, trên thân toả ra bạch quang nhu hoà, mười hai cỗ lực lượng hợp lại thành một, Yểm Ma Viên nhất thời không làm gì được chúng. 
+
+Trong hàng ngũ phi cầm, Tiểu Đạt Đạt là nổi bật nhất. Lúc trước Tiểu Đạt Đạt một mực giả ngất xỉu đã âm thầm tích trữ lực lượng, hiện giờ là lúc bộc phát. Trên đầu nó từ lúc nào đã xuất hiện vương miện ngũ sắc - Khổng Tước Miện, dẫn theo hơn hai mươi con phi cầm có bộ lông sặc sỡ, cắn đuôi nhau xếp thành trận hình mũi tên, chân khí chảy xuôi theo trận hình vào người Tiểu Đạt Đạt, hỗ trợ nó khu sử Khổng Tước Miện. Khổng Tước Miện thả ra một đoàn ánh sáng mang theo thuộc tính ngũ hành, đánh cho Yểm Ma Viên liên tục bại lui. 
+
+Tình hình nhất thời rơi vào thế giằng co, không bên nào có thể chiếm được lợi thế. 
