@@ -279,6 +279,8 @@ Huyết dịch dị thú vừa ra, Yểm Ma Viên lập tức bốc cháy. Nó d
 
 Cảnh này làm cho phi cầm phấn chấn. Nhưng phấn chấn chưa được bao lâu, hai mươi chín hắc ảnh như quỷ mị đã lướt vào, trực diện tóm lấy phi cầm. Hắc ảnh chỉ nhằm vào tim, não và bộ lông, còn phần xương cốt đều bị chúng giẫm nát dưới chân. 
 
-Yểm Ma Viên vốn bị Lưu Ly Bảo Y trói chặt đột nhiên biến thành một làn khói đen, bao trùm tiểu Lạc Vân vào bên trong. Tiểu hài tử cảm thấy quanh người có một bầy muỗi máu đang bay vo ve, cái vòi vừa dài vừa nhọn đâm vào trong da, muốn rút lấy máu tươi quý báu chảy bên trong cơ thể mình. 
+Yểm Ma Viên vốn bị Lưu Ly Bảo Y trói chặt đột nhiên biến thành một làn khói đen, bao trùm tiểu Lạc Vân vào bên trong. Tiểu hài tử cảm thấy quanh người có một bầy muỗi máu đang bay vo ve, cái vòi vừa dài vừa nhọn đâm vào trong da, muốn rút lấy máu tươi quý báu chảy bên trong cơ thể mình. Lưu Ly Bảo Y tự động hộ chủ, mấy chục đạo tơ nhện bao phủ tiểu Lạc Vân tạo thành một chiếc kén, nội bất xuất, ngoại bất nhập. 
 
-Ưng Hồng Liên gầm thét giận dữ, thanh quang rực sáng bao phủ toàn bộ phi cầm, tạo thành lĩnh vực
+Ưng Hồng Liên gầm thét giận dữ, thanh quang rực sáng tạo thành lĩnh vực bảo hộ phi cầm bên trong. Trong khúc nguy cầm, toàn bộ lá bài tẩy của đám phi cầm đều lộ ra. 
+
+Tiểu Hoàng Tước trên trán hiện lên ngọn lửa màu vàng, thân hình biến lớn, mọc ra bảy chiếc đuôi lửa huyễn lệ, thành công tránh thoát một con Yểm Ma Viên tấn công. Một con tiểu Thanh Điểu đập cánh một cái, thân hình biến thành ngọn gió biến mất, xuất hiện phía dưới cánh của Ưng Hồng Liên. 
