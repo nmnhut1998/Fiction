@@ -116,7 +116,7 @@ Tiểu Lạc Vân cảm thấy có chuyện không ổn, muốn dùng Thiên H�
 
 Thanh hồ liếc nhìn tiểu Lạc Vân bằng nửa con mắt, cái đầu hất lên trời, cái đuôi to lớn vẫy một cái đánh lên người tiểu Lạc Vân, đẩy tiểu hài tử ngã trên bia đá. 
 
-"Bản đế có giao ước với Dong lão sẽ bảo vệ ngươi, nhưng không phải đầy tớ của ngươi. Đứng lùi ra xa một chút, đừng có cản trở bản đế!" 
+"đế có giao ước với Dong lão sẽ bảo vệ ngươi, nhưng không phải đầy tớ của ngươi. Đứng lùi ra xa một chút, đừng có cản trở bản đế!" 
 
 Thanh hồ nhìn chằm chằm Sinh Tử Lôi Thần Phù, đột nhiên ngửa mặt lên trời hú dài. Ấn kí cửu diệp trên trán sáng lên, phóng ra giọt máu lúc trước tiểu Lạc Vân thổi vào. Chỉ một giọt máu nhỏ xíu như đầu móng tay, thật không ngờ lại chứa một lượng lớn linh khí, hơn nữa phẩm chất linh khí rất cao, thậm chí so với linh khí của Sư Vương còn cao hơn. 
 
@@ -269,7 +269,7 @@ Nuôi dưỡng tàn hồn giống như gà đẻ trứng, thủ đoạn tàn đ�
 
 Lưới phù văn ngày càng thu hẹp, phi cầm trải đều công kích khắp nơi nhằm tìm ra điểm yếu nhược, sau đó lại dồn sức công kích vào một điểm, ý đồ phá vỡ vây khốn, thoát ra ngoài. 
 
-"Phù văn tạo thành phù trận, mắt trận là Sinh Tử Lôi Thần Phù. Phù văn này khắc trên Bạch Quân Lan Hoa ngàn năm, là kỳ hoa ngưng tụ hạo nhiên chính khí của thiên địa, không sợ hỏa diễm lôi đình, thần thông thuật pháp đánh vào cũng không mấy tác dụng. Mấu chốt là phải phá hủy được Bạch Quân Lan hoa và Sinh Tử Lôi Thần Phù." 
+"Phù văn tạo thành phù trận, mắt trận là Sinh Tử Lôi Thần Phù. Phù văn này khắc trên Bạch Quân Lan Hoa ngàn năm, là kỳ hoa ngưng tụ hạo nhiên chính khí của thiên địa, không sợ hỏa diễm lôi đình, thần thông thuật pháp đánh vào cũng không mấy tác dụng. Mấu chốt là phải phá hủy được Bạch Quân Lan Hoa." 
 
 Tiểu Lạc Vân nói những lời này, có không ít phi cầm trong lòng nghĩ Sinh Tử Lôi Thần Phù là do Sư Vương vẽ ra. Thử nghĩ xem, Bạch Quân Lan Hoa là do Sư Vương trồng, tiểu Lạc Vân lại hiểu rõ về Sinh Tử Lôi Thần Phù như vậy, hơn nữa nó lại xuất hiện ở cửa vào Lôi Vực. Tất cả những chuyện này đều có liên quan với nhau. 
 
@@ -335,4 +335,14 @@ Bí kiếp để không sợ hãi của Sư Vương rất đơn giản, lúc c�
 
 Pháp chỉ của Sư Vương là chìa khoá tiến vào Lôi Vực, ngoài ra phải dùng huyết mạch làm dẫn. Trong tay Yểm Ma Viên có máu của tiểu Lạc Vân, dĩ nhiên có thể tự do ra vào Lôi Vực. 
 
-Cửu Vĩ Thanh Hồ đúng là hồ ly tinh, một lời nói ra đã chụp mũ cho toàn bộ điểu tộc tội danh nuôi dưỡng hung thú. 
+Cửu Vĩ Thanh Hồ đúng là hồ ly tinh, một lời nói ra đã chụp mũ cho toàn bộ điểu tộc tội danh nuôi dưỡng hung thú. Thậm chí trong lời nói còn dùng một ít niệm lực áp chế, làm cho Ưng Hồng Liên không thể mở miệng nói chuyện, chỉ có thể ngậm miệng cõng oan. 
+
+"Hừ, không bằng không chứng, ngươi nói cái gì đều là vô nghĩa. Chẳng lẽ ta nói Thanh Hồ thật sự đã chết, Thanh Hồ đứng trước mặt do quỷ hồn cài vào thì cũng là sự thật hay sao? Ngược lại ngươi tự xưng là đế, lại nuốt trọn Sinh Tử Lôi Thần Phù vào trong bụng, ai mà biết được có phải bị hung tính khống chế hay không." 
+
+Ưng Hồng Liên cuối cùng đã bứt phá được niệm lực áp chế, phản bác lại Thanh Hồ. Hiện giờ Thanh Hồ đang dồn sức áp chế Sinh Tử Lôi Thần Phù, muốn dùng mộc linh chi khí tiêu diệt linh tính bên trong đạo phù văn này, tự nhiên lời nói ra chỉ có thể nói suông, ngay cả cử động một chiếc đuôi cũng đã là khó khăn. 
+
+Thanh Hồ muốn phá phù văn rất đơn giản, liên tục quán chú mộc linh chi khí, làm cho Bạch Quân Lan Hoa lần nữa sống lại. Bạch Quân Lan Hoa là cơ sở của phù văn này, chỉ cần cấu trúc của Bạch Quân Lan Hoa sống lại, sinh trưởng to thêm một chút, hoặc là mọc thêm cánh hoa mới, thì phù văn lập tức sẽ xuất hiện khe nứt. Đây gọi là phá phù văn từ bên trong. 
+
+Ưng Hồng Liên nghiêng người đánh giá, mỏ ưng nhếch lên, vút một tiếng bay đến trên đầu của tiểu Lạc Vân, một trảo mang theo lôi điện chụp xuống. 
+
+"Tiểu Lạc Vân tiếp xúc hung lệ chi khí quá nhiều, hiện tại sắc mặt rất kém, hai mắt đỏ hồng, nghi ngờ bị hung tính phát tác, cần phải lập tức trấn áp!"  
