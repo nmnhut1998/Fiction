@@ -4,19 +4,19 @@ Không biết bao lâu sau, một người một rùa lên tới đỉnh núi. �
 
 Bầu trời thả tuyết như rải hoa, mây đen lại chứa lôi điện liên tục chớp ánh bạc. 
 
-Tiểu Lạc Vân dựa người vào một khối bia đá, Lưu Ly Bảo Y tiêu hao hết mấy đường chỉ vì tự cứu mình trong lúc leo suýt nữa ngã xuống, liên tục há miệng phun ra hơi nóng, cánh tay run lẩy bẩy vì kiệt sức, cầm Xích Nhâm Sâm, cả vỏ cả lá, từng miếng, từng miếng nuốt vào. Khuôn mặt trắng bệch, hai má ửng hồng, nhưng mà dáng người uể oải, đầu tóc cũng xác xơ, mồ hôi đọng lại thành băng, rồi bị hơi nóng chuyển thành lỏng, cuối cùng bốc hơi, để lại một mùi hương thanh nhã dễ chịu.  
+Lạc Vân dựa người vào một khối bia đá, Lưu Ly Bảo Y tiêu hao hết mấy đường chỉ vì tự cứu mình trong lúc leo suýt nữa ngã xuống, liên tục há miệng phun ra hơi nóng, cánh tay run lẩy bẩy vì kiệt sức, cầm Xích Nhâm Sâm, cả vỏ cả lá, từng miếng, từng miếng nuốt vào. Khuôn mặt trắng bệch, hai má ửng hồng, nhưng mà dáng người uể oải, đầu tóc cũng xác xơ, mồ hôi đọng lại thành băng, rồi bị hơi nóng chuyển thành lỏng, cuối cùng bốc hơi, để lại một mùi hương thanh nhã dễ chịu.  
 
-Hai mắt tiểu Lạc Vân dần dần nhắm lại. 
+Hai mắt Lạc Vân dần dần nhắm lại. 
 
 "Tiểu Ô Quy, ta muốn ngủ một chút ..." 
 
-Nghe vậy, tiểu Lạc Vân nhếch miệng cười, dùng ngón tay viết nguệch ngoạc trên tấm bia đá sau lưng mấy chữ. Bia đá nhìn như cứng rắn, chạm phải ngón tay của tiểu Lạc Vân lập tức mềm ra. Ngón tay tiểu Lạc Vân như bút như đao khắc, sâu cạn có tuỳ lúc, chỉ mấy phút đã viết xong, trực tiếp nhắm mắt ngủ. 
+Nghe vậy, Lạc Vân nhếch miệng cười, dùng ngón tay viết nguệch ngoạc trên tấm bia đá sau lưng mấy chữ. Bia đá nhìn như cứng rắn, chạm phải ngón tay của Lạc Vân lập tức mềm ra. Ngón tay Lạc Vân như bút như đao khắc, sâu cạn có tuỳ lúc, chỉ mấy phút đã viết xong, trực tiếp nhắm mắt ngủ. 
 
 "Ngươi ... ngươi đừng có ngủ! Sẽ chết người, còn chết thêm rùa!" 
 
-Nhưng mà tiểu Lạc Vân trải qua một thời gian dài leo trèo đến đỉnh núi, cho dù có Đảo Chuyển Càn Khôn, không thể xác định được khoảng cách bao nhiêu, nhưng toàn bộ thể lực đã tiêu hao sạch sẽ. 
+Nhưng mà Lạc Vân trải qua một thời gian dài leo trèo đến đỉnh núi, cho dù có Đảo Chuyển Càn Khôn, không thể xác định được khoảng cách bao nhiêu, nhưng toàn bộ thể lực đã tiêu hao sạch sẽ. 
 
-Tiểu Ô Quy bất đắc dĩ, đi vòng vòng gom một ít lá tùng nhỏ xíu phủ đầy tuyết, dùng hắc thuỷ trên lưng mình rửa cho tuyết tan, dùng một cái lá tùng quẹt loạn trên người tiểu Lạc Vân, cuối cùng cũng có một chiếc lá phụt cháy. 
+Tiểu Ô Quy bất đắc dĩ, đi vòng vòng gom một ít lá tùng nhỏ xíu phủ đầy tuyết, dùng hắc thuỷ trên lưng mình rửa cho tuyết tan, dùng một cái lá tùng quẹt loạn trên người Lạc Vân, cuối cùng cũng có một chiếc lá phụt cháy. 
 
 Một đống lửa cứ như vậy mà thành. 
 
@@ -46,7 +46,7 @@ Có huyết mạch tốt, Hỗn Độn Chi Thuỷ ngưng tụ, có thể biến 
 
 Lại nhìn mấy chữ đã khắc sâu vào trong bia, tuy là dùng tay nhưng lại sâu cạn có mực, mơ hồ toát ra thần vận của phù đạo chi giả, tiểu Ô Quy khịt mũi xem thường: 
 
-"Hừ, chỉ tiểu Lạc Vân mà thôi, còn phải dựa vào Quy gia bảo vệ, chữ viết xấu như vậy, Quy gia viết thêm mười vạn tám ngàn chữ nữa!" 
+"Hừ, chỉ Lạc Vân mà thôi, còn phải dựa vào Quy gia bảo vệ, chữ viết xấu như vậy, Quy gia viết thêm mười vạn tám ngàn chữ nữa!" 
 
 Hai mắt đảo đảo, tiểu Ô Quy cũng dùng móng chấm vào Thiên Huyền Hủ Thuỷ, vạch một nét trên bia đá. Nhưng móng rùa của hắn chạm vào ...
 
@@ -64,7 +64,7 @@ Hai canh giờ sau.
 
 Đống lửa đã tàn, núi cao tuyết phủ đọng thành một tầng băng, phản chiếu ánh chớp bạc từ bầu trời, lấp lánh như pha lê. 
 
-Tiếng sấm trầm trầm dần trở nên gấp gáp, bia Trấn Hung Phong Thiên sau lưng tiểu Lạc Vân phát ra từng đợt ngân quang, cuối cùng toàn bộ sấm sét bên trong đám mây đột nhiên trở nên cuồng bạo, đồng loạt đánh về một hướng. 
+Tiếng sấm trầm trầm dần trở nên gấp gáp, bia Trấn Hung Phong Thiên sau lưng Lạc Vân phát ra từng đợt ngân quang, cuối cùng toàn bộ sấm sét bên trong đám mây đột nhiên trở nên cuồng bạo, đồng loạt đánh về một hướng. 
 
 "Hyliaaaaaaaaaaaaaaaaa!" 
 
@@ -92,19 +92,19 @@ Bia Trấn Hung Phong Thiên mỗi lần loé sáng, lôi điện vòng qua dị
 
 Hung Sát Đường Lang gặp phải lôi uy, có bản năng mách bảo, đồng loạt quay đầu, tranh nhau mà chạy. 
 
-Tiểu Lạc Vân đã tỉnh dậy từ lâu, nhưng trái với thường lệ, không đưa tay vẫy chào hay là lễ phép chào hỏi. Tiểu hài tử đứng đó, một tay chạm vào bia đá Trấn Hung Phong Thiên, ngón tay lướt nhanh, mắt nhìn bầu trời, Thiên Hồ Pháp Địch đột nhiên quét ngang. 
+Lạc Vân đã tỉnh dậy từ lâu, nhưng trái với thường lệ, không đưa tay vẫy chào hay là lễ phép chào hỏi. Tiểu hài tử đứng đó, một tay chạm vào bia đá Trấn Hung Phong Thiên, ngón tay lướt nhanh, mắt nhìn bầu trời, Thiên Hồ Pháp Địch đột nhiên quét ngang. 
 
 "Rít!" 
 
-Bia Trấn Hung Phong Thiên bộc phát lôi quang, một luồng hồ quang điện chạy dọc cơ thể tiểu Lạc Vân, dẫn tới Thiên Hồ Pháp Địch. 
+Bia Trấn Hung Phong Thiên bộc phát lôi quang, một luồng hồ quang điện chạy dọc cơ thể Lạc Vân, dẫn tới Thiên Hồ Pháp Địch. 
 
-Pháp Địch phát ra ngân quang, tiểu Lạc Vân dùng toàn bộ sức của mình khu động Pháp Địch, mỗi một lần quét ngang đều có ngân lôi phóng ra đánh trúng một đầu phi cầm. 
+Pháp Địch phát ra ngân quang, Lạc Vân dùng toàn bộ sức của mình khu động Pháp Địch, mỗi một lần quét ngang đều có ngân lôi phóng ra đánh trúng một đầu phi cầm. 
 
 Mỗi phi cầm bị đánh trúng, trên cơ thể đều có một làn khói đen quỷ dị bị ép ra. Ngân lôi mang theo lực lượng tương tự như huyết mạch của dị thú, khói đen quỷ dị bị nó đánh tan thành từng hạt hỗn độn chi tinh nhỏ li ti, rơi xuống. 
 
-Một màn này làm cho tiểu Ô Quy sợ hết hồn. Ở chỗ này, tiểu Lạc Vân có thể mượn lực của bia Trấn Hung Phong Thiên! 
+Một màn này làm cho tiểu Ô Quy sợ hết hồn. Ở chỗ này, Lạc Vân có thể mượn lực của bia Trấn Hung Phong Thiên! 
 
-Sau lưng, mấy chữ "Cấm tranh đấu" cũng hiện ra, trong mắt người ngoài đây không phải là "Không được tấn công tiểu Lạc Vân nhỏ yếu" mà là "Đừng lo, ở chỗ này tiểu Lạc Vân sẽ nhẹ nhàng không làm tổn thương các ngươi!". 
+Sau lưng, mấy chữ "Cấm tranh đấu" cũng hiện ra, trong mắt người ngoài đây không phải là "Không được tấn công Lạc Vân nhỏ yếu" mà là "Đừng lo, ở chỗ này Lạc Vân sẽ nhẹ nhàng không làm tổn thương các ngươi!". 
 
 Tiểu Ô Quy lập tức nhớ tới một chuyện xưa. 
 
@@ -120,9 +120,9 @@ Cuối cùng Vạn Thú Chiến Linh dùng Lôi Vực bao phủ Hấp Huyết H�
 
 Hung thú như Hấp Huyết Hắc Hoả Hung Hoè mang song hệ mộc hoả, trái ngược với hung thú thuần tuý chỉ dựa vào bản năng và man lực, nó có pháp thuật cao thâm. Những sinh vật như vậy một thân toàn là bảo vật, hơn nữa sở hữu năng lực độc nhất vô nhị. Ví dụ như dùng nhựa cây của Hấp Huyết Hắc Hoả Hung Hoè có tỉ lệ khoảng chừng hai phần mười làm cho hai loại huyết mạch khác loài xảy ra biến dị mà dung hợp. 
 
-Sư Vương đúng là Sư Vương, dám để tiểu Lạc Vân ra đường một mình, thủ đoạn bảo mệnh mang theo đúng là tầng tầng lớp lớp, thật không ngờ Vạn Thú Đồ hiện tại vẫn do Sư Vương chưởng khống, hơn nữa tiểu Lạc Vân còn có thể lợi dụng một phần. 
+Sư Vương đúng là Sư Vương, dám để Lạc Vân ra đường một mình, thủ đoạn bảo mệnh mang theo đúng là tầng tầng lớp lớp, thật không ngờ Vạn Thú Đồ hiện tại vẫn do Sư Vương chưởng khống, hơn nữa Lạc Vân còn có thể lợi dụng một phần. 
 
-Cũng chỉ tiểu Lạc Vân cơ thể đặc thù như vậy mới có thể chịu tải được lôi đình chi lực cường đại như vậy, một lần quét qua đã có thể ép hung lệ chi khí ẩn giấu bên trong cơ thể đám phi cầm bay ra ngoài. 
+Cũng chỉ Lạc Vân cơ thể đặc thù như vậy mới có thể chịu tải được lôi đình chi lực cường đại như vậy, một lần quét qua đã có thể ép hung lệ chi khí ẩn giấu bên trong cơ thể đám phi cầm bay ra ngoài. 
 
 Đồng thời, tiểu Ô Quy đột nhiên nghĩ tới một vấn đề. 
 
@@ -134,23 +134,23 @@ Thanh Lôi Ưng kia toàn thân pháp lực đều bị áp chế, không thể 
 
 Lại nói, Hỗn Độn Chi Thuỷ của Quy gia vẫn có thể sinh ra liên tục không dứt, Quy gia có thể sử dụng một chút pháp lực.
 
-Mà Tiểu Lạc Vân thì vốn dĩ không có pháp lực, nhưng cũng không bị ảnh hưởng, thậm chí có thể dùng năng lượng bên trong huyết dịch mà luyện dược. 
+Mà Lạc Vân thì vốn dĩ không có pháp lực, nhưng cũng không bị ảnh hưởng, thậm chí có thể dùng năng lượng bên trong huyết dịch mà luyện dược. 
 
 Đây là độc! Cấm Pháp Lĩnh Vực là thả ra một loại độc vô hình vô vị, bao trùm cả Cổ Lâm, mà thực lực càng cường đại, nhận áp chế càng lớn! Xem ra là một loại độc có thể tương tác với linh khí trong cơ thể, linh khí càng nhiều độc tính càng dễ xâm nhập. 
 
-Đúng! Quy gia vốn là có thể kháng độc từ nhỏ, mà tiểu Lạc Vân kia ngay cả bản mệnh độc của mẫu thân đại nhân cũng không có tác dụng. 
+Đúng! Quy gia vốn là có thể kháng độc từ nhỏ, mà Lạc Vân kia ngay cả bản mệnh độc của mẫu thân đại nhân cũng không có tác dụng. 
 
 Cứ nhìn Thiên Linh Điệp kia, so với Quy gia càng yếu hơn, trong cơ thể chỉ có một tia linh khí mỏng manh miễn cưỡng được xem là linh thú, thậm chí dù vì có linh khí nên được coi là linh thú nhưng thật ra cũng cũng chỉ tính là nửa dị thú, cho nên lượng pháp thuật có thể sử dụng lại càng nhiều. 
 
 Hơn nữa, Thiên Linh Điệp dường như có khả năng hấp độc sinh độc ... Cứ nhìn hai Cuồng Khấp Ngạ Quỷ Hương cùng với Mỹ Thiên Hương hiện tại từng chút từng chút một được sinh ra trên cánh của nó ...
 
-"Xem ra, Quy gia cần phải cẩn thận một chút, nếu coi thường tiểu Lạc Vân thì ngay cả cháo rùa cũng không có mà húp ..." 
+"Xem ra, Quy gia cần phải cẩn thận một chút, nếu coi thường Lạc Vân thì ngay cả cháo rùa cũng không có mà húp ..." 
 
 Ngân lôi nổ đôm đốp trên người đám phi cầm, máu trong cơ thể như chạy ngược rồi sôi trào, phút chốc đã mất đi một phần ba. 
 
-Thanh Lôi Ưng dẫn đường kêu lên mấy tiếng “Các, các!” biểu thị cảm ơn, nhưng phần đông đám ấu cầm còn lại đều trừng mắt nhìn tiểu Lạc Vân.
+Thanh Lôi Ưng dẫn đường kêu lên mấy tiếng “Các, các!” biểu thị cảm ơn, nhưng phần đông đám ấu cầm còn lại đều trừng mắt nhìn Lạc Vân.
 
-Thanh Lôi Ưng là giống loài kiêu ngạo, trong truyền thuyết vốn là Thái Thanh Thần Ưng vì coi thường cả trời nên bị thiên đạo phong ấn huyết mạch chi lực mà thoái hoá thành Thanh Lôi Ưng, tự nhiên cũng không nói ngôn ngữ con người, đối mặt tiểu Lạc Vân càng muốn tiểu Lạc Vân dùng Ưng tộc thú ngữ. Có Thanh Lôi Ưng dẫn đầu, đám ấu cầm càng không chủ động giao tiếp với tiểu Lạc Vân. 
+Thanh Lôi Ưng là giống loài kiêu ngạo, trong truyền thuyết vốn là Thái Thanh Thần Ưng vì coi thường cả trời nên bị thiên đạo phong ấn huyết mạch chi lực mà thoái hoá thành Thanh Lôi Ưng, tự nhiên cũng không nói ngôn ngữ con người, đối mặt Lạc Vân càng muốn Lạc Vân dùng Ưng tộc thú ngữ. Có Thanh Lôi Ưng dẫn đầu, đám ấu cầm càng không chủ động giao tiếp với Lạc Vân. 
 
 Một đàn phi cầm dàn trận trên bầu trời không đáp xuống. 
 
@@ -158,15 +158,15 @@ Thiên Hồ Pháp Địch lại điểm ra, một tia sáng hai màu xích kim r
 
 “Hyliaaa!”
 
-Tiểu hồ điệp đập cánh loạng choạng bay lên, gắng gượng hướng về phía tiểu Lạc Vân. 
+Tiểu hồ điệp đập cánh loạng choạng bay lên, gắng gượng hướng về phía Lạc Vân. 
 
 "Kwork kwork...!" 
 
-Tiếng chim trầm thấp mà dứt khoát, từ trong hàng ngũ ấu cầm bay ra một con vẹt xanh. Vẹt xanh trên đầu có một chùm lông tơ dài mềm mịn có hoa văn sọc đỏ vàng, mọc ngược kéo dài ra sau lưng. Hai con mắt lớn, khoé mắt nhọn, tròng mắt vàng, con ngươi đen, lông đuôi dài hệt như khổng tước. Đặc biệt, cặp chân của nó khá lớn, năm ngón chân linh hoạt như người, cơ hồ to bằng cánh tay của tiểu Lạc Vân, dài như chân hạc, nhưng lại cân đối với hai cánh cũng lớn không kém. Thoạt nhìn bề ngoài, vẹt xanh này toát ra vẻ vững chãi, tự tin, móng vuốt hợp lại thành một cái lồng giam giữ Tiểu Thiên Nhi ở bên trong. 
+Tiếng chim trầm thấp mà dứt khoát, từ trong hàng ngũ ấu cầm bay ra một con vẹt xanh. Vẹt xanh trên đầu có một chùm lông tơ dài mềm mịn có hoa văn sọc đỏ vàng, mọc ngược kéo dài ra sau lưng. Hai con mắt lớn, khoé mắt nhọn, tròng mắt vàng, con ngươi đen, lông đuôi dài hệt như khổng tước. Đặc biệt, cặp chân của nó khá lớn, năm ngón chân linh hoạt như người, cơ hồ to bằng cánh tay của Lạc Vân, dài như chân hạc, nhưng lại cân đối với hai cánh cũng lớn không kém. Thoạt nhìn bề ngoài, vẹt xanh này toát ra vẻ vững chãi, tự tin, móng vuốt hợp lại thành một cái lồng giam giữ Tiểu Thiên Nhi ở bên trong. 
 
 "Thả Tiểu Thiên Nhi ra!" 
 
-Tiểu Lạc Vân cầm trong tay Thiên Hồ Pháp Địch, nâng cao lên ngang tầm môi, rồi không biết suy nghĩ như thế nào, hóp bụng thở mạnh một hơi, Pháp Địch lại hạ xuống. Kỳ thực, chỉ cần một hơi nhẹ nhàng thổi, mượn lực lương của bia Trấn Hung Phong Thiên, âm ba có thể chấn ngất xỉu ba phần ấu cầm ở đây. 
+Lạc Vân cầm trong tay Thiên Hồ Pháp Địch, nâng cao lên ngang tầm môi, rồi không biết suy nghĩ như thế nào, hóp bụng thở mạnh một hơi, Pháp Địch lại hạ xuống. Kỳ thực, chỉ cần một hơi nhẹ nhàng thổi, mượn lực lương của bia Trấn Hung Phong Thiên, âm ba có thể chấn ngất xỉu ba phần ấu cầm ở đây. 
 
 "Kworkkk ... kwork!" 
 
@@ -204,7 +204,7 @@ Tiểu Ô Quy đưa chân trước, làm thành tư thế lắng nghe, sau đó 
 
 "Tiểu hồ điệp này lai lịch bất thường, vốn chỉ là con tiểu trùng, làm sao lại tiến hoá thành dị thú Thiên Linh Điệp. Mẹ ta phát hiện trên người nó có một chút linh khí đặc thù của Hoá Độc Linh Quyết của Khổng Tước Tộc, nghi ngờ nó có liên quan tới việc Khổng Tước Thánh Vũ bị trộm, cần phải đem về tộc dùng bí pháp tra xét." 
 
-Quy thái tử, tự nhiên là tiểu Ô Quy, còn Kim thái tử, tự nhiên là tiểu Lạc Vân, Sư Vương trong thế giới loài người lấy họ Kim. Sư Vương, Ô Lão Quy, Cự Viên, Dong lão trấn bốn phía của Cổ Lâm, đều được dị thú tôn làm Hoàng, tuy cả bốn đều không dùng danh hiệu này, nhưng gọi là con cái của họ là thái tử cũng không có gì sai. 
+Quy thái tử, tự nhiên là tiểu Ô Quy, còn Kim thái tử, tự nhiên là Lạc Vân, Sư Vương trong thế giới loài người lấy họ Kim. Sư Vương, Ô Lão Quy, Cự Viên, Dong lão trấn bốn phía của Cổ Lâm, đều được dị thú tôn làm Hoàng, tuy cả bốn đều không dùng danh hiệu này, nhưng gọi là con cái của họ là thái tử cũng không có gì sai. 
 
 Lời có bóng gió, giọng điệu nhấn nhá châm chọc vào mấy chữ "thái tử", ý tứ rất rõ ràng, một rùa là dựa vào gia thế, còn nhân loại kia thì chỉ là con nuôi, ngay cả họ Kim cũng không được theo, không có gì phải nghênh ngang kiêu ngạo. 
 

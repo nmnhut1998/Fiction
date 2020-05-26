@@ -1,6 +1,6 @@
 Chương 10: Phong vân khởi 
 
-Tiểu Thiên Nhi một đường bay tới, rất nhanh tiểu Lạc Vân đã thở hổn hển, hai chân sưng phù. 
+Tiểu Thiên Nhi một đường bay tới, rất nhanh Lạc Vân đã thở hổn hển, hai chân sưng phù. 
 
 "Tiểu Thiên Nhi, đừng có chạy nữa, hung thú không còn theo sau!" 
 
@@ -10,9 +10,9 @@ Tiểu Thiên Nhi lượn vòng trên không. Chẳng lẻ hung thú cũng bị 
 
 (Tới chỗ rồi!)
 
-Tiểu hồ điệp kêu lên một tiếng như trút gánh nặng, lại tiếp tục bay một đoạn, sau đó chui thẳng vào tóc của tiểu Lạc Vân, dường như ở chỗ này nó cảm thấy không thoải mái.
+Tiểu hồ điệp kêu lên một tiếng như trút gánh nặng, lại tiếp tục bay một đoạn, sau đó chui thẳng vào tóc của Lạc Vân, dường như ở chỗ này nó cảm thấy không thoải mái.
 
-Tiểu Lạc Vân từ lâu đã chệnh khỏi đường mòn, hiện tại đang ở trong một phiến rừng núi cây cỏ rậm rạp, lá cây chằng chịt đan xen vào nhau, không thấy được bầu trời. 
+Lạc Vân từ lâu đã chệnh khỏi đường mòn, hiện tại đang ở trong một phiến rừng núi cây cỏ rậm rạp, lá cây chằng chịt đan xen vào nhau, không thấy được bầu trời. 
 
 "Cuối cùng cũng tới ... năm nay nhiều Quang Đăng Thảo quá!" 
 
@@ -20,9 +20,9 @@ Sườn núi thoai thoải, xen kẽ dưới tán cổ thụ che trời, từng 
 
 Quang Đăng Hoa chỉ nở vào ba ngày cuối cùng của mùa thu, hình dạng cũng như tên, tựa như chiếc đèn lồng tren phất phơ trong gió. Mà bên trong mỗi đoá hoa đều là một đoá hoả diễm nhỏ xíu như móng tay. 
 
-Hàng nghìn Quang Đăng Hoa phất phơ trong gió, đốm đốm hoả quang đan xen vào nhau. Mỗi lần gió thổi qua, hoả quang dao động, ánh sáng quét trên rừng khuya tựa như hồ điệp bay múa. Mỗi đoá hoả diễm bên trong Quang Đăng Hoa tựa như có sinh mệnh, tiểu Lạc Vân đi tới đâu đều toả ra ánh sáng dịu nhẹ, hoa khẽ đu đưa, mang theo hơi ấm ôn hoà, thấm sâu vào da thịt. 
+Hàng nghìn Quang Đăng Hoa phất phơ trong gió, đốm đốm hoả quang đan xen vào nhau. Mỗi lần gió thổi qua, hoả quang dao động, ánh sáng quét trên rừng khuya tựa như hồ điệp bay múa. Mỗi đoá hoả diễm bên trong Quang Đăng Hoa tựa như có sinh mệnh, Lạc Vân đi tới đâu đều toả ra ánh sáng dịu nhẹ, hoa khẽ đu đưa, mang theo hơi ấm ôn hoà, thấm sâu vào da thịt. 
 
-Vuốt vuốt lá cây phủ lớp lông tơ mịn, tiểu Lạc Vân cười cười: 
+Vuốt vuốt lá cây phủ lớp lông tơ mịn, Lạc Vân cười cười: 
 
 "Nhân loại ngày xưa u mê, không có đạo, bị đá nhọn làm chảy máu mà biết đao thương, gặp cơn cháy rừng mà biết dùng lửa ..." 
 
@@ -34,51 +34,51 @@ Quang Đăng Hoa chính là Sư Vương đem hạt giống từ bên ngoài gieo
 
 Tuy nhiên, Quang Đăng Hoa lại phát ra mùi hương, linh khí chân khí thậm chị là hung lệ chi khí đều bị mùi hương này dẫn động tiết ra ngoài, bị nó hấp thu. Linh thú, hung thú tầm thường căn bản không dám tới gần. Cho dù Sư Vương gieo trồng Quang Đăng Hoa, lúc thu hái cũng phải hết sức cẩn thận. 
 
-Dĩ nhiên, tiểu Lạc Vân ngay cả một chút cũng không bị ảnh hưởng. Đây là một chỗ Sư Vương dụng tâm riêng cho tiểu Lạc Vân nghỉ ngơi. 
+Dĩ nhiên, Lạc Vân ngay cả một chút cũng không bị ảnh hưởng. Đây là một chỗ Sư Vương dụng tâm riêng cho Lạc Vân nghỉ ngơi. 
 
 Ở trong Mê Vụ Cổ Lâm, những nơi như thế này không ít, cũng không nhiều, chừng hai ba chục chỗ, nhưng không phải bất cứ dị thú nào cũng có thể dùng bởi vì những nơi này đa số đều trồng một chút kì hoa dị thảo đặc thù có tính uy hiếp đối với hung thú, nhưng lại không có tác dụng đối với một số loài dị thú nhất định. Dù sao những kì hoa dị thảo như vậy bồi dưỡng rất khó, không phải là đại tộc trong Cổ Lâm nắm giữ tài lực cùng bí pháp thì không thể bồi dưỡng ra. 
 
 Bồi dục kì hoa dị thảo, làm phát sinh loài mới cũng tự thành một lĩnh vực, như luyện đan luyện khí. Tỉ như Quang Đăng Thảo, nghe nói xuất xứ là do Kim Nghê Nhất Tộc trải qua mấy trăm năm mới có thể từ một loại Thất Thải Vụ Thảo Thần cấp dược thảo cực kì trân quý mà bồi dưỡng thành, tuy tác dụng không được như Thất Thải Vụ Thảo, cấp bậc cũng thấp hơn nhiều, nhưng lại dễ trồng hơn, thanh niên Kim Nghê tộc trẻ tuổi, tu vi chưa đủ có thể dùng thay thế Thất Thải Vụ Thảo trong lúc điều chế hương liệu. 
 
-Bước ra khỏi phạm vi Quang Đăng Thảo tác động, Tiểu Thiên Nhi từ trên tóc của tiểu Lạc Vân bay ra: 
+Bước ra khỏi phạm vi Quang Đăng Thảo tác động, Tiểu Thiên Nhi từ trên tóc của Lạc Vân bay ra: 
 
 "Hyliaaaa!" 
 
 (Nguy hiểm quá! Sau này không đi chơi với ngươi!)
 
-Nuốt một đoá Tử Sắc Quang Đăng Hoa vào miệng, tiểu Lạc Vân nhăn mặt, toàn thân đột nhiên mồ hôi nhễ nhại. 
+Nuốt một đoá Tử Sắc Quang Đăng Hoa vào miệng, Lạc Vân nhăn mặt, toàn thân đột nhiên mồ hôi nhễ nhại. 
 
-Dược tính cùng nhiệt độ của Tử Sắc Quang Đăng Hoa vốn cuồng bạo, vào trong cơ thể tiểu Lạc Vân lại không tạo thành phá hư gì, ngược lại dược tính cùng độc tính bị tách riêng, thông qua mồ hôi mà bài tiết ra ngoài.
+Dược tính cùng nhiệt độ của Tử Sắc Quang Đăng Hoa vốn cuồng bạo, vào trong cơ thể Lạc Vân lại không tạo thành phá hư gì, ngược lại dược tính cùng độc tính bị tách riêng, thông qua mồ hôi mà bài tiết ra ngoài.
 
-Tiểu Lạc Vân chọt chọt Tiểu Thiên Nhi đậu trên bàn tay, đút cho nó Mộc Tâm Hoa Dịch cùng giọt dịch chứa dược tính của Tử Sắc Quang Đăng Hoa, đồng thời để nó hấp thu Thiên Tâm Hương trên người mình. 
+Lạc Vân chọt chọt Tiểu Thiên Nhi đậu trên bàn tay, đút cho nó Mộc Tâm Hoa Dịch cùng giọt dịch chứa dược tính của Tử Sắc Quang Đăng Hoa, đồng thời để nó hấp thu Thiên Tâm Hương trên người mình. 
 
 Trên cánh tiểu hồ điệp, đốm đốm phấn bướm mang huỳnh quang lục nhạt dần dần hiện ra, so với trước kia dày đặc gấp chục lần, thậm chí trên đó còn xuất hiện một vài đốm nhỏ tử sắc. 
 
 "Tiểu Thiên Nhi, có muốn Mộc Tâm Hoa Dịch nhiều hơn không?"
 
-Nghe tới Mộc Tâm Hoa Dịch, hai mắt tiểu hồ điệp sáng lên, cặp râu dài liên tục giật giật. Nếu có thể hấp thu đầy đủ dược tính của Tử Sắc Quang Đăng Hoa cùng với Mộc Tâm Hoa Dịch, lấy mộc sinh hoả, tăng thêm khí tức kì dị trên người tiểu Lạc Vân thúc đẩy, nó có thể tiến hành thuế lột xác nữa, trở thành Thiên Linh Hoả Điệp!
+Nghe tới Mộc Tâm Hoa Dịch, hai mắt tiểu hồ điệp sáng lên, cặp râu dài liên tục giật giật. Nếu có thể hấp thu đầy đủ dược tính của Tử Sắc Quang Đăng Hoa cùng với Mộc Tâm Hoa Dịch, lấy mộc sinh hoả, tăng thêm khí tức kì dị trên người Lạc Vân thúc đẩy, nó có thể tiến hành thuế lột xác nữa, trở thành Thiên Linh Hoả Điệp!
 
-Tiểu Lạc Vân biết trùng tộc bị giới hạn ở huyết mạch, tuy trưởng thành rất nhanh nhưng cấp độ lại rất hạn chế, sức mạnh cá thể thậm chí so với man thú còn nhỏ yếu hơn, xưa nay đa số dựa vào số lượng để thủ thắng. 
+Lạc Vân biết trùng tộc bị giới hạn ở huyết mạch, tuy trưởng thành rất nhanh nhưng cấp độ lại rất hạn chế, sức mạnh cá thể thậm chí so với man thú còn nhỏ yếu hơn, xưa nay đa số dựa vào số lượng để thủ thắng. 
 
 Nhưng mà Thiên Linh Điệp thì không giống. Thiên Linh Điệp chấp nhận tám kiếp trước đều là con sâu cái kiến. Mỗi một thế của Thiên Linh Điệp đều là tiểu trùng, dùng hết sức bình sinh của mình đi tìm linh dược linh mộc, khi sắp chết thì nhả tơ hoá kén. Trải qua tám kiếm cam phận sâu kiến, dồn hết tích luỹ vào một lần hoá kén cuối cùng, nhất cử thành Linh thú, phần nghị lực này không phải dị thú nào cũng có được, cho nên mới dẫn tới Sư Vương chú ý. 
 
-Thiên Linh Điệp có được nghị lực xoá bỏ hạn chế chủng tộc, lại có đặc trưng trưởng thành nhanh của trùng tộc, hiện tại tiểu Lạc Vân cung cấp thiên tài địa bảo, rất nhanh đã tiến thêm một bước. 
+Thiên Linh Điệp có được nghị lực xoá bỏ hạn chế chủng tộc, lại có đặc trưng trưởng thành nhanh của trùng tộc, hiện tại Lạc Vân cung cấp thiên tài địa bảo, rất nhanh đã tiến thêm một bước. 
 
 "Tìm cho ta Tử Hương Thảo, Anh Túc Hoa, Xích Địa Đằng ... còn có Hoàng Sâm! Nhớ lấy thêm một phần nước suối!" 
 
-Tiểu Lạc Vân cởi bỏ tơ nhện trói buộc Tiểu Thiên Nhi, phất phất tay ra lệnh. 
+Lạc Vân cởi bỏ tơ nhện trói buộc Tiểu Thiên Nhi, phất phất tay ra lệnh. 
 
 "Hyla?" 
 
 (Ngươi không sợ ta chạy sao?)
 
-Tiểu Lạc Vân phất phất tay, ý bảo Tiểu Thiên Nhi đi nhanh về nhanh: 
+Lạc Vân phất phất tay, ý bảo Tiểu Thiên Nhi đi nhanh về nhanh: 
 
 "Trên người ngươi còn trúng độc của Quy gia gia ..." 
 
 Tiểu Thiên Nhi tức giận. Đã như vậy ngươi còn trói ta làm gì? 
 
-Cánh bướm đập mạnh, một đám bụi phấn lục quang bám vào tóc tiểu Lạc Vân. Cánh bướm khẽ vẫy lần nữa, một mảng tóc của tiểu Lạc Vân cứ như vậy mà bị nhổ đi. 
+Cánh bướm đập mạnh, một đám bụi phấn lục quang bám vào tóc Lạc Vân. Cánh bướm khẽ vẫy lần nữa, một mảng tóc của Lạc Vân cứ như vậy mà bị nhổ đi. 
 
 "Ui da! Ngươi vong ơn phụ nghĩa, học được Khống Trần Thuật khi dễ bản thiếu gia sao?" 
 
@@ -86,19 +86,19 @@ Khống Trần Thuật là thiên phú thần thông của Thiên Linh Điệp, 
 
 Tiểu hồ điệp trực tiếp làm lơ, xoay người bay đi. 
 
-Xoa xoa cái đầu bị mất một mảng tóc, tiểu Lạc Vân lầu bầu: 
+Xoa xoa cái đầu bị mất một mảng tóc, Lạc Vân lầu bầu: 
 
 "Nếu không phải biết ngươi lên cấp sẽ có thể dùng được Khống Trần Thuật, bản thiếu gia làm gì tự chuốc khổ? Ui da ... đau" 
 
-Nói xong, tiểu Lạc Vân cầm một sợi tóc của mình, đưa vào trong Xích Sắc Quang Đăng Hoa. Xích Sắc Quang Đăng Viêm độ ấm vừa phải, không đốt cháy được tóc, nhưng từ trên đám tóc đó, một luồng khí tím mờ ảo xuất hiện, không bay lên mà quanh quẩn ở trong Quang Đăng Hoa. 
+Nói xong, Lạc Vân cầm một sợi tóc của mình, đưa vào trong Xích Sắc Quang Đăng Hoa. Xích Sắc Quang Đăng Viêm độ ấm vừa phải, không đốt cháy được tóc, nhưng từ trên đám tóc đó, một luồng khí tím mờ ảo xuất hiện, không bay lên mà quanh quẩn ở trong Quang Đăng Hoa. 
 
 "Không thể lãng phí, Thiên Tâm Hương vẫn còn, có thể dùng một chút ..." 
 
-Tiểu Lạc Vân đi trên sườn núi, mặc kệ tay chân sưng phù, thân hình như tiểu hầu tử, từng đoá từng đoá Quang Đăng Hoa, đủ mọi màu sắc đều được đặt vào một sợi tóc, lượn lờ khói tím, trong miệng lại liên tục ăn Tử Sắc Quang Đăng Hoa. Sau đó, tiểu hài tử lại lấy lá của Quang Đăng Thảo, đem phần dược lực cùng độc lực còn bám trên người mình gói lại, dùng Quang Đăng Hoa Diễm hong khô thành bột, để dành sau này dùng. 
+Lạc Vân đi trên sườn núi, mặc kệ tay chân sưng phù, thân hình như tiểu hầu tử, từng đoá từng đoá Quang Đăng Hoa, đủ mọi màu sắc đều được đặt vào một sợi tóc, lượn lờ khói tím, trong miệng lại liên tục ăn Tử Sắc Quang Đăng Hoa. Sau đó, tiểu hài tử lại lấy lá của Quang Đăng Thảo, đem phần dược lực cùng độc lực còn bám trên người mình gói lại, dùng Quang Đăng Hoa Diễm hong khô thành bột, để dành sau này dùng. 
 
 Thân hình của tiểu hài tử cúi xuống, tỉ mỉ từng chút, tựa như thư sinh đang vẽ ý trung nhân, nhất thời ít đi một phần trẻ con, lại nhiều thêm mấy phần thành thục. Có lẽ trong Cổ Lâm, trẻ con đều bị buộc phải lớn nhanh như vậy. 
 
-Làm xong hết thải, tiểu Lạc Vân mệt mỏi rã rời nằm trên đất, tháo xuống cung tên, dang chân tạo thành hình chữ đại. Có lẽ là mặt trời đã lên cao, nhưng phiến rừng núi này vẫn một mảnh tối tăm. Hơi ấm của Quang Đăng Hoa phả vào mặt, sưởi ấm chân tay sưng phù làm tiểu Lạc Vân thoải mái, tâm hồn cũng mơ mơ màng màng:
+Làm xong hết thải, Lạc Vân mệt mỏi rã rời nằm trên đất, tháo xuống cung tên, dang chân tạo thành hình chữ đại. Có lẽ là mặt trời đã lên cao, nhưng phiến rừng núi này vẫn một mảnh tối tăm. Hơi ấm của Quang Đăng Hoa phả vào mặt, sưởi ấm chân tay sưng phù làm Lạc Vân thoải mái, tâm hồn cũng mơ mơ màng màng:
 
 "Đau ... đau quá ..." 
 
@@ -139,7 +139,7 @@ Tiểu ô quy cướp đường mà chạy, tốc độ lại nhanh kì lạ, ba
 
 "Đáng chết, rốt cuộc là thứ gì, Quy gia vậy mà không dùng được pháp thuật ... đáng chết, đáng chết a ...!" 
 
-Nếu tiểu Lạc Vân ở đây, tất nhiên sẽ thấy được, phần lớn hung thú bị máu tươi của hắn hấp dẫn tới đã đổi mục tiêu sang tiểu ô quy này, nhờ vậy mà tiểu hài tử tránh khỏi một kiếp. 
+Nếu Lạc Vân ở đây, tất nhiên sẽ thấy được, phần lớn hung thú bị máu tươi của hắn hấp dẫn tới đã đổi mục tiêu sang tiểu ô quy này, nhờ vậy mà tiểu hài tử tránh khỏi một kiếp. 
 
 _________________
 
@@ -166,7 +166,7 @@ ____________
 
 Đường núi gồ ghề, hai mươi tiểu thú kết thành bầy, phóng nhanh từ tảng đá này sang tảng đá khác. Phía sau, một bầy Ma Viên đen kịt, hai mắt đỏ ngầu đang phóng theo. 
 
-Dĩ nhiên, bầy hung thú là do bị khí tức tiểu Lạc Vân hấp dẫn mới tụ tập, sau đó gặp phải đám tiểu thú này mới bắt đầu truy đuổi. 
+Dĩ nhiên, bầy hung thú là do bị khí tức Lạc Vân hấp dẫn mới tụ tập, sau đó gặp phải đám tiểu thú này mới bắt đầu truy đuổi. 
 
 Một tiểu Bạch Lộc đột nhiên dừng lại, nhìn về phía sau, cúi đầu xuống, hai cái sừng cọ nhanh vào đá, rồi kêu lên một tiếng khiêu khích, sau đó như biến thành một mũi tên màu trắng, phóng đi. 
 
@@ -197,6 +197,6 @@ _________________
 
 Mê Vụ Cổ Lâm, phong vân loạn khởi. Ấu thú dần dần ra khỏi tổ địa, bắt đầu cuộc hành trình đi về Thanh Lâm Học Viện. Có ấu thú được trưởng bối trong tộc đi theo bảo hộ, có ấu thú một mình mà đi, có ấu thú kết bạn theo bầy cùng đi. 
 
-Mà bước đầu tiên, không biết là trùng hợp hay cố ý, đều gặp muôn vàn trắc trở, vì máu của tiểu Lạc Vân đã thấm vào đất, khí tức khuếch tán khắp Cổ Lâm. Phàm là ấu thú xuất hành đều tạo ngộ hung thú truy sát. 
+Mà bước đầu tiên, không biết là trùng hợp hay cố ý, đều gặp muôn vàn trắc trở, vì máu của Lạc Vân đã thấm vào đất, khí tức khuếch tán khắp Cổ Lâm. Phàm là ấu thú xuất hành đều tạo ngộ hung thú truy sát. 
 
 Ấu thú nhỏ yếu thì chạy trốn, bị truy sát, cường đại hơn thì phản sát trở lại. Ấu thú dám đi Thanh Lâm Học Viện, trên người thủ đoạn cũng là tầng tầng lớp lớp, hoặc là có trưởng bối đi cùng, cho nên tạm thời có trọng thuơng, nhưng không hề có thương vong. 
