@@ -116,7 +116,7 @@ Lạc Vân dựa lưng vào bia Trấn Hung Phong Thiên, Thiên Hồ Pháp Đ�
 
 Không ai để ý Lạc Vân đang thổi sáo, giống như tiếng sáo không hiện hữu, hoặc là nó đã hoà hợp khắp mọi nơi, trở thành một bộ phận bình thường của thế giới xung quanh, tựa như là tiếng gió, tiếng sấm, tiếng hít thở. 
 
-Thanh Lôi Ưng híp mắt, âm thầm gật đầu. Tiếng sáo này gần giống với dùng thần thức dò xét, có tác dụng cảnh giác rất tốt. Thủ đoạn như vậy rất giống với thiên phú dùng thanh âm dò xét của Ám Dực Tử Mao Bức, cần phải luyện tập rất nhiều mới có thể thuần thục. 
+Thanh Lôi Ưng híp mắt. Tiếng sáo này gần giống với dùng thần thức dò xét, có tác dụng cảnh giác rất tốt. Thủ đoạn như vậy rất giống với thiên phú dùng thanh âm dò xét của Ám Dực Tử Mao Bức, cần phải luyện tập rất nhiều mới có thể thuần thục. 
 
 Hiện giờ Lôi Vực cần tập trung năng lượng vận hành trận pháp, mở ra thông đạo tiến vào, không thể bảo hộ dị thú nữa, cẩn thận như vậy là cần thiết. 
 
