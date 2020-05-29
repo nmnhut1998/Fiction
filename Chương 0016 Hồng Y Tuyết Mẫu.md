@@ -116,7 +116,7 @@ Vào lúc đó, một cái thất thải quang tráo chợt hiện, bao phủ to
 
 Ngũ thải chi quang lóe sáng, trên đầu tiểu Đạt Đạt xuất hiện Khổng Tước Vương Miện rực rỡ: 
 
-"Phượng Hoàng Già Thiên Mạc đã mở. Sư Vương vô đạo, vì lợi dụng của công vì tư lợi, Lạc Vân vô duyên vô cớ tấn công trưởng bối, đáng giết!" 
+"Phượng Hoàng Già Thiên Mạc đã mở. Sư Vương vô đạo, lợi dụng của công vì tư lợi, Lạc Vân vô duyên vô cớ tấn công trưởng bối, đáng giết!" 
 
 Ưng Kiệt lạnh lùng, trên hai cánh xuất hiện lông vũ ngũ sắc, nhìn qua giống như hai chiếc vũ phiến được dán vào cánh: 
 
@@ -140,11 +140,15 @@ Thiên Hồ Pháp Địch trong làn sương linh khí ngân vang, tiếng sáo 
 
 "Nguyện kiếp này không đến tuổi đôi mươi, nguyện bỏ qua vạn thế luân hồi .... duy lửa trong tâm vạn năm bất diệt!" 
 
-Lạc Vân một tay chỉ trời, mỗi một câu hát cất lên, cánh tay còn lại mang máu điểm ra một hướng, máu chảy ra ngày càng nhiều, đã có ba hướng bị nhuộm đỏ. Trái tim của tiểu hài tử cháy lên một ngọn lửa vô hình, lan tràn ra xung quanh, nhiệt độ tăng vọt, đỉnh núi vốn tuyết rắng bây giờ biến thành hoả sơn, thậm chí đất đá còn trở nên dẻo quánh. 
+Lạc Vân một tay chỉ trời, mỗi một câu cất lên, cánh tay còn lại mang máu điểm ra một hướng, máu chảy ra ngày càng nhiều, đã có ba hướng bị nhuộm đỏ. Trái tim của tiểu hài tử cháy lên một ngọn lửa vô hình, lan tràn ra xung quanh, nhiệt độ tăng vọt, đỉnh núi vốn tuyết rắng bây giờ biến thành hoả sơn, thậm chí đất đá còn trở nên dẻo quánh. 
 
 Vận luật trong ca từ ngày càng tinh xảo, xung quanh bốn phía bị linh khí bao phủ, chỉ nghe thấy tiếng sáo hoà với tiếng ca, cùng với tiếng hét thê thảm và hung thú gầm lên giận dữ. Dưới đất có tiếng loảng xoảng của Hỗn Độn Chi Tinh rơi vãi, tiếng trận pháp nổ vang, tiếng phi cầm kêu lên chói tay. 
 
-Móng vuốt của Ưng Hồng Liên xuyên qua bả vai của tiểu hài tử, ngọn lửa vô hình giống như lưỡi rắn lướt qua, một chân của ả bị đốt trụi, vội vàng thối lui lên bầu trời, hai mắt căm hận nhìn xuống, làm gì có nửa điểm bị mê hoặc. Tiểu Đạt Đạt hợp lực cùng Ưng Kiệt, toàn thân bao bọc trong ngũ sắc quang hoa, trêu đầu đội Khổng Tước Vương Miện rũ xuống Ngũ Sắc Thần Quang, tách ra linh khí phong bạo, chật vật thoát về phía xa, nhưng món linh bảo này đã bị tổn thất nặng nề, sau này khó mà sửa chữa. 
+Móng vuốt của Ưng Hồng Liên hướng thẳng vào tim. Lạc Vân gạt tay một cái, ngọn lửa vô hình như lưỡi rắn lướt qua , một chân của ả bị đốt trụi, vội vàng thối lui lên bầu trời, hai mắt căm hận nhìn xuống. Bầy phi cầm tấn công vội vàng thối lui ra xa, không dám cận thân công kích nữa. 
+
+Tiểu Đạt Đạt hợp lực cùng Ưng Kiệt, toàn thân bao bọc trong ngũ sắc quang hoa, trêu đầu đội Khổng Tước Vương Miện rũ xuống Ngũ Sắc Thần Quang, tách ra linh khí phong bạo, chật vật thoát về phía xa, nhưng món linh bảo này đã bị tổn thất nặng nề, sau này khó mà sửa chữa. 
+
+Ưng Hồng Liên hai cánh vỗ mạnh, ba cái lôi cầu từ trên trời rơi xuống, nhưng xung quanh linh khí đang nổi loạn, lôi cầu vừa chạm vào đã nổ tung giữa trời, không gây được bao nhiêu thương tổn, lại làm cho linh khí ngày càng cuồng bạo, phạm vi còn mở rộng thêm. 
 
 Tiểu Lạc Vân sau khi thi pháp xong, cánh tay đã biến thành xương trắng, rụng khỏi người giống như trái cây già chín nẫu, đầu tóc bạc trắng rụng hết tám phần, da thịt toàn thân khô quắp như xác ướp, trắng nhợt vì thiếu máu. 
 
@@ -154,9 +158,21 @@ Ngọn lửa vô hình vẫn cháy, thiêu đốt sinh cơ và thọ nguyên c�
 
 Thiên Hồ Pháp Địch đã vỡ từ lâu, biến thành một đám bụi hút lấy linh khí đậm đặc, dần dần ngưng tụ thành một con cự thú. 
 
+"Không để cho nó thành hình!"
+
+Ưng Hồng Liên dẫn đầu, không biết dùng loại pháp thuật gì, mười đạo lôi tiễn phóng về phía cự thú. Tiểu Đạt Đạt cùng với đám phi cầm còn lại sắp thành hàng, chân khí trong cơ thể nối liền với nhau, cùng ngự sử Khổng Tước Vương Miện thả ra Ngũ Sắc Thần Quang. 
+
+"Điêu trùng tiểu kĩ!" 
+
+Hình dạng của cự thú vốn mơ hồ, đột nhiên trong chớp mắt ngưng thực, thét dài một tiếng. 
+
+Tiếng thét này có niệm lực, tạo ra lực hút thu lấy linh khí trên đỉnh tuyết sơn, ngay cả Ưng Hồng Liên cũng không thể kháng cự, bị hút đến rìa linh khí phong bạo, chật vật lắm mới có thể thối lui. 
+
 Cự thú mang hình dáng Cửu Vĩ Hồ, thu lấy máu Lạc Vân làm huyết mạch bản thân, thân hình bao phủ trong ngọn lửa vô hình làm không khí vặn vẹo. Cửu Vĩ Thiên Hồ, tàn hồn của Cửu Vĩ Thiên Hồ bên trong Thiên Hồ Pháp Địch mượn máu của tiểu hài tử mà một lần nữa đúc thành cơ thể. 
 
-Thiên Hồ ưỡng ngực đứng thẳng, chín cái đuôi bay múa, lạnh lùng nhìn xung quanh. Cuối cùng, nó há miệng hút một cái, ngọn lửa vô hình bị nó thu vào trong cơ thể, nhục thể triệt để được đúc thành. 
+Thiên Hồ ưỡng ngực đứng thẳng, chín cái đuôi bay múa, lạnh lùng nhìn xung quanh. Ngọn lửa vô hình làm cho nó kiêng kị, nhưng cũng không phải không có biện pháp. Từ trong cơ thể của nó xuất hiện một đoạn thanh mộc, cẩn thận từng chút chạm vào vô hình hỏa, lấy mộc sinh hỏa, tách ra một đoàn hỏa chủng, luyện hóa vào cơ thể. 
+
+Hắ
 
 "Vốn theo thoả thuận, ta sẽ hộ đạo cho ngươi mười năm, trong vòng mười năm chỉ ra tay một lần." 
 
@@ -192,6 +208,6 @@ Nhưng luồng niệm lực này cũng suy yếu đến cực hạn, hiện tạ
 
 Máu của tiểu hài tử chứa linh khí, là do Sư Vương hằng tháng điều chế Huyết Linh Lộ bằng bí thuật độc môn, rót vào trong huyết mạch. Huyết Linh Lộ loại kỳ dược này chứa linh khí tinh thuần và đậm đặc, cơ hồ có thể nổ chết một linh thú bình thường, nhưng lại từ từ tiêu tán trong cơ thể tiểu hài tử. Nhưng như vậy cũng đủ để tiểu hài tử sử dụng một số bí pháp vận dụng linh khí để sử dụng thần thông đối địch, hơn nữa uy lực không dưới linh thú. 
 
-Thanh Hồ bởi vì nghe Dong lão nói về Huyết Linh Lộ cho nên mới đồng ý thỏa thuận làm người hộ đạo cho Lạc Vân. Huyết Linh Lộ, nếu dùng một giọt có thể tăng ba phần thành công tiến nhập Thần cảnh, nếu có đủ một bình có thể tẩy rửa ám thương, nếu có đủ mười bình có thể cải thiện huyết mạch. Tiểu hài tử năm nay ba tuổi, mỗi tháng dùng một bình, Thanh Hồ cũng không tin toàn bộ đều bị tiêu tán trong thiên địa. 
+Thanh Hồ bởi vì nghe Dong lão nói về Huyết Linh Lộ cho nên mới đồng ý thỏa thuận làm người hộ đạo cho Lạc Vân. Huyết Linh Lộ, nếu dùng một giọt có thể tăng ba phần thành công tiến nhập Thần cảnh, nếu có đủ một bình có thể tẩy rửa ám thương, xương trắng mọc thịt, nếu có đủ mười bình có thể cải thiện huyết mạch. Tiểu hài tử năm nay ba tuổi, mỗi tháng dùng một bình, Thanh Hồ cũng không tin toàn bộ đều bị tiêu tán trong thiên địa. 
 
 Quả nhiên, dùng chút thủ đoạn đã có thể bức ra lá bài tẩy. Trong cơ thể của tiểu tử này có Huyền Thiên Nhiên Sinh Hỏa. 
