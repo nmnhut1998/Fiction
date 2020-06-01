@@ -338,8 +338,22 @@ Cự Viên trầm ngâm:
 
 Cự Viên cười cười không đáp, cơ thể đột nhiên cứng đờ, rồi co giật, bàn tay quét ngang, không cẩn thận trúng phải Ô Lão Quy. 
 
-Thân rùa bốn chân dang rộng, tạo dáng rất có nghệ thuật, xoay mòng mòng bay về Đông Hải. 
+Thân rùa bốn chân dang rộng, tạo dáng rất có nghệ thuật, xoay mòng mòng bay về Đông Việt Hải. 
 
 Cự Viên gãi gãi đầu: 
 
 "Tâm thần phân liệt, không cẩn thận tát bay, không cẩn thận mà thôi." 
+
+Đợi khi Cự Viên cùng Ô Lão Quy đã rời đi, Dong lão mới lần nữa lên tiếng: 
+
+"Kì thực hôm nay lão phu muốn đổi chút đồ dùng." 
+
+"Dong lão khách sáo, chỉ cần lên tiếng là được." 
+
+"Lão phu gần đây tu vi có chút tiến bộ, đã sắp phải độ kiếp, nhưng mà tình hình hiện tại không tiện cho gọi kiếp lôi, muốn đổi một phần Kháng Lôi Hương." 
+
+Trong ống tay áo, cánh tay Sư Vương khẽ run rẩy. 
+
+"Lão phu biết vật ấy quý trọng, cho nên chỉ đổi một phần đủ dùng, hơn nữa dùng gấp đôi bảo vật để đổi, không biết Sư Vương có còn hàng tích trữ?" 
+
+"Dong lão đã nói, dĩ nhiên là còn hàng." 
