@@ -72,7 +72,7 @@ Cự Viên lắc đầu, từ sau lưng hiện ra một hư ảnh Cự Viên m�
 
 Giáo thư mở ra, thước gỗ gõ xuống đất, Cự Viên mở miệng:
 
-“Từ thuở hồng hoang, vạn vật còn ngu muội, chỉ có tử không có sinh.  m dương vận chuyển sinh lôi điện, lôi điện bổ xuống phân sinh tử, sau lại hợp âm dương, phồn sinh diễn hóa, tựu thành đạo. Có sinh có tử, vạn vật chuộng sinh ghét tử, mới sinh ra trật tự, đặt ra luật lệ, tuân theo gọi là đức. Đạo đức ra đời, suy cho cùng là vì vạn vật tồn vong. Vô đạo có thể tồn, vô đức không thể sống.” 
+“Từ thuở hồng hoang, vạn vật còn ngu muội, chỉ có tử không có sinh. Âm dương vận chuyển sinh lôi điện, lôi điện bổ xuống phân sinh tử, sau lại hợp âm dương, phồn sinh diễn hóa, tựu thành đạo. Có sinh có tử, vạn vật chuộng sinh ghét tử, mới sinh ra trật tự, đặt ra luật lệ, tuân theo gọi là đức. Đạo đức ra đời, suy cho cùng là vì vạn vật tồn vong. Vô đạo có thể tồn, vô đức không thể sống.” 
 
 Chữ chữ chân ngôn, lúc nhanh lúc chậm, tạp thành nhịp điệu kì dị, lại tựa như vàng ngọc, nặng hơn nghìn non, làm cho toàn bộ dị thú trong Cổ Lâm đều run rẩy, không tự chủ được quỳ xuống nghe pháp. 
 
