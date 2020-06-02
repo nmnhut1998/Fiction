@@ -362,7 +362,11 @@ Trong ống tay áo, cánh tay Sư Vương khẽ run rẩy.
 
 "Dong lão đã nói, dĩ nhiên là còn hàng." 
 -------------------------------
-Cửu Cung Lâu, Cự Viên nhìn đóa hoa sen trôi nổi trong chậu linh dịch, đoàn hắc khí bị một ngọn lửa ngày đêm thiêu đốt nhưng vẫn không tiêu tan. 
+Cửu Cung Lâu. 
+
+Trên bàn, một ấm trà thơm, một quyển sách con con, giữa bàn đặt một chậu hoa sen. 
+
+Cự Viên nhìn đóa hoa sen trôi nổi trong chậu linh dịch, đoàn hắc khí bị một ngọn lửa ngày đêm thiêu đốt nhưng vẫn không tiêu tan. 
 
 "Ngươi là tàn hồn, hay là thứ gì khác, tại sao không bị hồn hỏa luyện hóa? Là thứ gì tạo ra ngươi?" 
 
@@ -374,12 +378,32 @@ Cự Viên vân vê tách trà trong tay.
 
 "Phàm là kẻ làm nên sự nghiệp, kiêu hùng một phương, đều được thiên địa ban tên. Chỉ cần ta tìm được Danh Tự Chú của ngươi, còn sợ ngươi không khai hay sao." 
 
-"Ngươi chỉ là một con Thiết Hỏa Cự Viên huyết mạch hỗn tạp, có tư cách gì tra Thiên Địa Sách? Bốc phét lên tận trời!" 
-
-Cự Viên vẫn nhàn nhã uống trà: 
+"Ngươi chỉ là một con Thiết Hỏa Cự Viên huyết mạch hỗn tạp, có tư cách gì tra Thiên Đạo Sách? Bốc phét lên tận trời!" 
 
 "Thiên Đạo Sách, nghe thật là kêu, ta đương nhiên không có tư cách, nhưng mà Thanh Lâm Sách thì vẫn có thể xem một hai. Phàm là kẻ ở trong Cổ Lâm đều được ghi tên trên Thanh Lâm Sách." 
 
 Nói xong, hai mắt biến thành quả cầu lửa, tròng mắt lấp lánh kim quang, ánh mắt như kiếm nhìn thẳng vào mặt quỷ, làm nó vặn vẹo:
 
 "Tên của ngươi, chắc là có một chữ Thiên?" 
+
+Thu hồi nhãn thuật, nhấp một ngụm trà: 
+
+"Thanh Lâm Sách ghi lại một nghìn chín trăm bảy mươi lăm người và dị thú, hoặc sinh ra ở Cổ Lâm, hoặc từng tiến vào Cổ Lâm mà trong tên có một chữ Thiên. Sớm muộn gì Danh Tự Chú của ngươi cũng bị ta tra ra." 
+
+"Ngươi muốn lần lượt thi triển Danh Tự Chú? Danh Tự Chú nào dễ học như vậy? Ngươi huyết mạch hỗn tạp, tu đạo không thuận, đại đạo vô duyên, chỉ có thể đi tiểu đạo, cả đời nghiên cứu dùng được một hai Danh Tự Chú đã là rất giỏi." 
+
+Cự Viên không trả lời, bàn tay phải giơ lên, ngón tay gập duỗi chỉ vào làn khói đen: 
+
+"Đông Việt Hải cách bờ tám ngàn dặm có tòa Bạch Ngư đảo, ngàn năm thai nghén sinh ra thần lôi, khai trí thành Long, một lần mở mắt quấy phong lôi trăm dặm, thượng thiên ban tên ... Long Thừa Thiên." 
+
+Ầm! 
+
+Từ ngón tay của hắn, một đạo tử lôi bắn ra, đánh vào làn khói đen, làm cho nó kêu lên đau đớn. 
+
+"Ngươi ... ngươi làm sao có thể?" 
+
+"Cổ Lâm bao nhiêu đời dị thú, Long Thừa Thiên không sinh ra ở Cổ Lâm, không bao giờ đến Cổ Lâm, nhưng mà hậu duệ của hắn thì có. Chỉ cần có được một chút huyết mạch của hắn, Danh Tự Chú dễ dàng hơn rất nhiều, ta cũng có thể mượn chút thần thông của hắn. Tốt nhất ngươi nên thành thật, Danh Tự Chú ta học từ trước tới nay còn chưa có vật thí nghiệm." 
+
+"A!!!!!!!!!!" 
+
+Trong Cửu Cung Lâu mấy ngày này luôn có tiếng kêu thảm thiết, dị thú thầm nói Viên lão sư lại làm chuyện thương thiên hại lí rồi. 
