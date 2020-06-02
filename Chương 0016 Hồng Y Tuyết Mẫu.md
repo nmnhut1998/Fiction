@@ -90,7 +90,7 @@ Dưới mặt đất trồi lên hơi mười cánh tay đen sì, dài ngoằng 
 
 Tiểu hài tử nhất thời bị bầy phi cầm vây công, hơn nữa còn có một Hồng Y Tuyết Mẫu quỷ dị. 
 
-Lạc Vân hai tay nắm chặt, cánh tay run lên bần bật, chân lảo đảo, tựa bia đá, lại dậm mạnh một cái, cánh tay vung lên cầm Thiên Hồ Pháp Địch ném thẳng về phía trước:
+Lạc Vân hai tay nắm chặt, cánh tay run lên bần bật, chân lảo đảo, tựa lưng vào bia đá, lại dậm mạnh một cái, cánh tay vung lên cầm Thiên Hồ Pháp Địch ném thẳng về phía trước:
 
 "Không phải! Lạc Vân ta làm gì có mẹ!" 
 
@@ -106,7 +106,7 @@ Thiên Hồ Pháp Địch rời tay, xoay tít trên không, rít lên một ti�
 
 Cổ tay của tiểu hài tử bị nó chấn cho máu me bê bếch, máu phun ra từ động mạch, toả ra linh khí đậm đặc, hoá thành một luồng sương đỏ. 
 
-Hai mắt Lạc Vân đỏ hồng, hai hàm răng cắn chặt, cổ tay gian nan đưa lên, khẽ vung vẩy. Cái vung vẩy này có vận luật, lấy chuyển động của giọt máu ảnh hưởng tới linh khí, từ đó sinh ra niệm lực. Có điều, lần này niệm lực sinh ra cường đại gấp trăm lần, khuấy động linh khí trong vòng ba trượng tạo thành lốc xoáy. 
+Hai mắt Lạc Vân đỏ hồng, hàm răng cắn chặt, cổ tay gian nan đưa lên, khẽ vung vẩy. Cái vung vẩy này có vận luật, lấy chuyển động của giọt máu ảnh hưởng tới linh khí, từ đó sinh ra niệm lực. Có điều, lần này niệm lực sinh ra cường đại gấp trăm lần, khuấy động linh khí trong vòng ba trượng tạo thành lốc xoáy. 
 
 Hồng Y Tuyết Mẫu bị cuốn vào lốc xoáy, cơ thể nhanh chóng tan rã, chỉ còn một đóa Bạch Quân Lan Hoa chìm nổi. 
 
@@ -192,17 +192,17 @@ Thiên Hồ Pháp Địch đã vỡ từ lâu, biến thành một đám bụi h
 
 "Lá bài tẩy đã bức ra hết! Hiện tại không để cho nó thành hình!"
 
-Ưng Hồng Liên dẫn đầu, không biết dùng loại pháp thuật gì, thân hình chìm trong ngũ sắc quang hoa, không để ý tới hỏa diễm vô hình, mười đạo lôi tiễn phóng về phía cự thú. Tiểu Đạt Đạt cùng với đám phi cầm còn lại sắp thành hàng, chân khí trong cơ thể nối liền với nhau, cùng ngự sử Khổng Tước Vương Miện thả ra Ngũ Sắc Thần Quang, tách một thông đạo trong hỏa diễm, đồng loạt hai cánh co lại, phóng xuống giống như một trận mưa tên. 
+Ưng Hồng Liên dẫn đầu, không biết dùng loại pháp thuật gì, thân hình chìm trong ngũ sắc quang hoa, không để ý tới hỏa diễm , mười đạo lôi tiễn phóng về phía cự thú. Tiểu Đạt Đạt cùng với đám phi cầm còn lại sắp thành hàng, chân khí trong cơ thể nối liền với nhau, cùng ngự sử Khổng Tước Vương Miện thả ra Ngũ Sắc Thần Quang, tách một thông đạo trong hỏa diễm, đồng loạt hai cánh co lại, phóng xuống giống như một trận mưa tên. 
 
 "Điêu trùng tiểu kĩ! Bản đế phất đuôi một cái liền có thể tiêu diệt!" 
 
 Hình dạng của cự thú vốn mơ hồ, đột nhiên trong chớp mắt ngưng thực, thét dài một tiếng. 
 
-Tiếng thét này có niệm lực, tạo ra lực hút thu lấy linh khí trên đỉnh tuyết sơn, bao gồm cả thứ hỏa diễm vô hình kia. Trong linh khí phong báo thì có thể sống, nhưng chạm phải thứ hỏa diễm vô hình kia thì lập tức bị thiêu rụi, Ưng Hồng Liên cùng đám phi cầm chật vật thối lui lên bầu trời. 
+Tiếng thét này có niệm lực, tạo ra lực hút thu lấy linh khí trên đỉnh tuyết sơn, bao gồm cả thứ hỏa diễm kia. Trong linh khí phong báo thì có thể sống, nhưng chạm phải thứ hỏa diễm kia thì lập tức bị thiêu rụi, Ưng Hồng Liên cùng đám phi cầm chật vật thối lui lên bầu trời. 
 
 Cự thú mang hình dáng Cửu Vĩ Hồ, thu lấy máu Lạc Vân làm huyết mạch bản thân, thân hình bao phủ trong ngọn lửa màu tím làm không khí vặn vẹo. Cửu Vĩ Thiên Hồ, tàn hồn của Cửu Vĩ Thiên Hồ bên trong Thiên Hồ Pháp Địch mượn máu của tiểu hài tử mà một lần nữa đúc thành cơ thể. 
 
-Thiên Hồ ưỡng ngực đứng thẳng, chín cái đuôi bay múa, lạ`nh lùng nhìn xung quanh. Ngọn lửa màu tím dường như làm cho nó kiêng kị, nhưng cũng không phải không có biện pháp. Từ trong cơ thể của nó xuất hiện một đoạn thanh mộc, cẩn thận từng chút chạm vào, lấy mộc sinh hỏa, tách ra một đoàn hỏa chủng. 
+Thiên Hồ ưỡng ngực đứng thẳng, chín cái đuôi bay múa, lạnh lùng nhìn xung quanh. Ngọn lửa màu tím dường như làm cho nó kiêng kị, nhưng cũng không phải không có biện pháp. Từ trong cơ thể của nó xuất hiện một đoạn thanh mộc, cẩn thận từng chút chạm vào, lấy mộc sinh hỏa, tách ra một đoàn hỏa chủng. 
 
 Thanh mộc này là bản thể của Thiên Hồ Pháp Địch - dong thụ chi bị đẽo gọt thành sáo gỗ. Mộc sinh hỏa, Thiên Hồ Pháp Địch nhanh chóng biến thành một bó đuốc cháy rừng rực, hút lấy linh khí, làm cho linh khí trong vòng ba mươi trượng xung quanh biến thành một vùng chân không, không có linh khí. 
 
@@ -218,11 +218,11 @@ Danh tiếng của Huyền Thiên Nhiên Linh Hỏa rất lớn, Ưng Hồng Li�
 
 Thiên Hồ ngửa mặt hú dài, niệm lực trong người giống như sương khói, mang theo bó đuốc bay lên bầu trời, chạm vào Ngũ Sắc Già Thiên Mạc. Quang mạc vốn vững chắc, tách nơi này thành một thế giới độc lập, chạm phải loại hỏa diễm này thì yếu ớt giống như giấy, bị đốt thủng một lỗ to.
 
-Mây trên bầu trời tách ra, ánh trăng chiếu rọi xuống thân thể Lạc Vân vẫn đang bị đốt cháy, cả người chỉ còn một bộ xương khô, da thịt bong tróc, ngũ tạng lộ ra ngoài. Cũng còn may, đôi mắt vẫn mở to và trái tim vẫn còn đập, biểu hiện tiểu hài tử còn chưa chết. 
+Mây trên bầu trời tách ra, ánh trăng chiếu rọi xuống thân thể Lạc Vân vẫn đang bị đốt cháy, cả người chỉ còn một bộ xương khô, da thịt bong tróc, ngũ tạng lộ ra ngoài. Cũng còn may, đôi mắt vẫn mở to và trái tim vẫn còn đập, tiểu hài tử còn chưa chết. 
 
 Tiếng hú của Thiên Hồ không giống thi pháp, mà càng giống như đang giao tiếp cùng với bầu trời, kêu gọi Nguyệt Quang Phổ Chiếu, tịnh hóa vạn vật. 
 
-Nhưng mà nguyệt quang chiếu xuống có thể tịnh hóa vạn vật, ngay cả vết thương của đám phi cầm cũng chuyển hướng tốt rất nhanh, ngược lại Huyền Thiên Nhiên Sinh Hỏa vẫn không tắt, được nguyệt quang chiếu rọi thì càng cháy càng vượng. 
+Nhưng mà nguyệt quang chiếu xuống có thể tịnh hóa vạn vật, ngay cả vết thương của đám phi cầm cũng chuyển hướng tốt rất nhanh, ngược lại Huyền Thiên Nhiên Sinh Hỏa trên người Lạc Vân vẫn không tắt, được nguyệt quang chiếu rọi thì càng cháy càng vượng. 
 
 Nhắc đến càng kì lạ, máu huyết của Lạc Vân biến thành linh khí, bị Huyền Thiên Nhiên Sinh Hỏa đốt cháy, nhưng khi nguyệt quang chiếu xuống lập tức trở nên ôn hòa, tựa như là linh dịch, dị thú có thể hấp thu đề thăng tu vi.  
 
@@ -256,7 +256,7 @@ Sau đó, nó nghiêm nghị nói với Ưng Hồng Liên:
 
 "Ngươi nói đúng, ước hẹn Dong lão đã xong, ta cũng ngưng tụ được nhục thân, hiện giờ nên tìm tiểu bối Hồ tộc, bảo vệ chúng nó đến được Thanh Lâm." 
 
-"Các ngươi cứ tự nhiên, Thiên Hồ ta đi trước một bước, sẽ không nhúng tay. Yên tâm, Thiên Hồ ta là Cửu Vĩ Thiên Hồ, từng là Thần Đế cường giả, nhất ngôn cửu đỉnh." 
+"Các ngươi cứ tự nhiên, Thiên Hồ ta đi trước một bước, sẽ không quay lại. Yên tâm, Thiên Hồ ta là Cửu Vĩ Thiên Hồ, từng là Thần Đế cường giả, nhất ngôn cửu đỉnh." 
 
 Thiên Hồ nhàn nhã như dạo chơi, chín cái đuôi tùy ý bay múa quét qua không khí, chỉ nhảy ba bước đã khuất khỏi tầm mắt, chỉ còn âm thanh ở lại: 
 
@@ -296,7 +296,7 @@ Thân thể tiểu hài tử dường như tiêu hết năng lượng, hóa thà
 
 Chữ Thiên viết bằng Phật văn, tỏa ra Phật quang chói lọi. Ưng Hồng Liên bị Phật quang chiếu vào, vẻ mặt vặn vẹo thống khổ. Phật quang ngày càng thịnh, lại có tiếng ngâm xướng truyền ra, bầy phi cầm xung quanh cũng bắt đầu bồn chồn không yên, trên người xuất hiện các hư ảnh mờ nhạt. 
 
-Mặt đất đột nhiên nở rộ hoa sen, mọc tràn lan trên đỉnh núi, trên đài sen treo đầy chuông, mõ, thiền trượng, các loại phật khí. 
+Cảnh tượng đột nhiên đổi. Nham thạch vốn dĩ bị nung nóng đỏ, không khí vặn vẹo do nhiệt độ cao lại trở về lạnh lẽo. Một loài hoa sen mọc tràn lan trên đỉnh núi, trên đài sen treo đầy chuông, mõ, thiền trượng, các loại phật khí. 
 
 "Cọc, cọc ...Coong!" 
 
@@ -324,9 +324,9 @@ Dong lão cũng lắc đầu không thôi:
 
 "Khó. Quỷ hồn chui vào thân thể, lại có thể che mắt pháp tắc Cổ Lâm, đoạt quyền khống chế. Lão phu sống tới từng tuổi này, tuy tu vi yếu kém nhưng thần quân thần hoàng thần đế cũng từng thấy qua mấy vị, hung linh cũng từng gặp mặt, không ai có bản lĩnh bực này."
 
-Vừa rồi Sư Vương không động thủ, bởi vì Khổng Tước bị người ta khống chế, mà bị vô thanh vô tức khống chế còn có điểu tộc. Kẻ này rất quỷ dị, liên tục thay đổi đối tượng khống chế, không thể bắt được hành tung. Cổ Lâm còn dị thú, hắn còn có thể ẩn nấp. 
+Vừa rồi Sư Vương không động thủ, bởi vì Khổng Tước bị người ta khống chế, mà bị vô thanh vô tức khống chế còn có điểu tộc. Kẻ này rất quỷ dị, liên tục thay đổi đối tượng khống chế, không thể bắt được hành tung. Cổ Lâm còn dị thú, hắn còn có thể ẩn nấp. Dong lão bài thiên la địa võng, cộng thêm Ô Lão Quy trấn tràng vẫn để hắn chạy thoát ngay trước mắt. 
 
-Hắn dám xuất hiện chặn trước đình viện của Sư Vương, là hành động trêu ngươi rõ ràng. Sự thật là, Sư Vương không thể làm gì được hắn. 
+Hắn dám xuất hiện chặn trước đình viện của Sư Vương, là hành động trêu ngươi rõ ràng. Sự thật là, Tứ Vương không thể làm gì được hắn. 
 
 Cự Viên trầm ngâm: 
 
@@ -368,7 +368,7 @@ Cửu Cung Lâu, Cự Viên nhìn đóa hoa sen trôi nổi trong chậu linh d�
 
 Đoàn khí đen bên trong huyễn hóa ra một khuôn mặt quỷ, cười hà hà: 
 
-"Tiểu tử, ngươi có thể giam cầm t, lại làm gì được ta? Nhanh, mau hát cho ta nghe, cái gì Úm Ma Ni Bát Mê Hồng, đại gia ngươi thích nghe!" 
+"Tiểu tử, ngươi có thể giam cầm ta, lại làm gì được ta? Nhanh, mau hát cho ta nghe, cái gì Úm Ma Ni Bát Mê Hồng, đại gia ngươi thích nghe!" 
 
 Cự Viên vân vê tách trà trong tay. 
 
@@ -378,7 +378,7 @@ Cự Viên vân vê tách trà trong tay.
 
 Cự Viên vẫn nhàn nhã uống trà: 
 
-"Thiên Đạo Sách, nghe thật là kêu, ta đương nhiên không có tư cách, nhưng mà Thanh Lâm Sách thì vẫn có thể xem một hai." 
+"Thiên Đạo Sách, nghe thật là kêu, ta đương nhiên không có tư cách, nhưng mà Thanh Lâm Sách thì vẫn có thể xem một hai. Phàm là kẻ ở trong Cổ Lâm đều được ghi tên trên Thanh Lâm Sách." 
 
 Nói xong, hai mắt biến thành quả cầu lửa, tròng mắt lấp lánh kim quang, ánh mắt như kiếm nhìn thẳng vào mặt quỷ, làm nó vặn vẹo:
 
