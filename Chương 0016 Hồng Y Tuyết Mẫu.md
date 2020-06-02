@@ -52,7 +52,7 @@ Nói âm luật so đấu, chính là so thiên phú cùng thủ pháp.
 
 Lạc Vân có thiên phú, lúc sinh ra trong đầu có một khúc "Vân du", vậy còn Hồng Y Tuyết Mẫu? 
 
-Nàng có chấp niệm. Trên ngực của nàng, một đoá hoa trắng muốt - quaHoa chi chít phù văn vẽ bằng một thứ chất lỏng tựa như chu sa. Tinh huyết, tinh huyết của chính Lạc Vân đã bị người lấy đi, dùng vẽ phù văn trên Bạch Quân Lan Hoa ngàn năm chứa đựng một mảnh linh hồn rách nát. 
+Nàng có chấp niệm. Trên ngực của nàng, một đoá hoa trắng muốt - Bạch Quân Lan Hoa chi chít phù văn vẽ bằng một thứ chất lỏng tựa như chu sa. Tinh huyết, tinh huyết của chính Lạc Vân đã bị người lấy đi, dùng vẽ phù văn trên Bạch Quân Lan Hoa ngàn năm chứa đựng một mảnh linh hồn rách nát. 
 
 Chỉ có đôi mắt của nàng, lúc mờ mịt thì như biển cuồn cuộn như mây ngút ngàng, lúc thanh minh thì hiền từ hoà ái, ngấn lệ như bi như thương, như oán như than, và có lẽ như cả cuộc đời nàng, cuối cùng chỉ còn một mảnh tàn hồn, trong đầu chỉ có duy một ý nghĩ về con, biến thành chấp niệm duy nhất, dù năm tháng đi qua, thiên đạo vô tình vẫn không thể ma diệt. 
 
@@ -342,7 +342,11 @@ Thân rùa bốn chân dang rộng, tạo dáng rất có nghệ thuật, xoay m
 
 Cự Viên gãi gãi đầu: 
 
-"Tâm thần phân liệt, không cẩn thận tát bay, không cẩn thận mà thôi." 
+"Tâm thần phân liệt, không cẩn thận tát bay, không cẩn thận mà thôi."
+
+Nói xong, trên tay hắn hiện ra một đóa hoa sen, bên trong phong ấn một đoàn hắc khí, cười hề hề giao cho Dong lão. Đây chính là đóa hoa sen xuất hiện trên đỉnh núi tuyết, bên trong phong ấn đám quỷ hồn đã chiếm thân thể của phi cầm. 
+
+"Lần này bỏ vốn nhiều như vậy, coi như có chút manh mối." 
 
 Đợi khi Cự Viên cùng Ô Lão Quy đã rời đi, Dong lão mới lần nữa lên tiếng: 
 
@@ -357,3 +361,25 @@ Trong ống tay áo, cánh tay Sư Vương khẽ run rẩy.
 "Lão phu biết vật ấy quý trọng, cho nên chỉ đổi một phần đủ dùng, hơn nữa dùng gấp đôi bảo vật để đổi, không biết Sư Vương có còn hàng tích trữ?" 
 
 "Dong lão đã nói, dĩ nhiên là còn hàng." 
+-------------------------------
+Cửu Cung Lâu, Cự Viên nhìn đóa hoa sen trôi nổi trong chậu linh dịch, đoàn hắc khí bị một ngọn lửa ngày đêm thiêu đốt nhưng vẫn không tiêu tan. 
+
+"Ngươi là tàn hồn, hay là thứ gì khác, tại sao không bị hồn hỏa luyện hóa? Là thứ gì tạo ra ngươi?" 
+
+Đoàn khí đen bên trong huyễn hóa ra một khuôn mặt quỷ, cười hà hà: 
+
+"Tiểu tử, ngươi có thể giam cầm t, lại làm gì được ta? Nhanh, mau hát cho ta nghe, cái gì Úm Ma Ni Bát Mê Hồng, đại gia ngươi thích nghe!" 
+
+Cự Viên vân vê tách trà trong tay. 
+
+"Phàm là kẻ làm nên sự nghiệp, kiêu hùng một phương, đều được thiên địa ban tên. Chỉ cần ta tìm được Danh Tự Chú của ngươi, còn sợ ngươi không khai hay sao." 
+
+"Ngươi chỉ là một con Thiết Hỏa Cự Viên huyết mạch hỗn tạp, có tư cách gì tra Thiên Địa Sách? Bốc phét lên tận trời!" 
+
+Cự Viên vẫn nhàn nhã uống trà: 
+
+"Thiên Đạo Sách, nghe thật là kêu, ta đương nhiên không có tư cách, nhưng mà Thanh Lâm Sách thì vẫn có thể xem một hai." 
+
+Nói xong, hai mắt biến thành quả cầu lửa, tròng mắt lấp lánh kim quang, ánh mắt như kiếm nhìn thẳng vào mặt quỷ, làm nó vặn vẹo:
+
+"Tên của ngươi, chắc là có một chữ Thiên?" 
