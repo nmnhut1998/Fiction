@@ -296,17 +296,55 @@ Thân thể tiểu hài tử dường như tiêu hết năng lượng, hóa thà
 
 Chữ Thiên viết bằng Phật văn, tỏa ra Phật quang chói lọi. Ưng Hồng Liên bị Phật quang chiếu vào, vẻ mặt vặn vẹo thống khổ. Phật quang ngày càng thịnh, lại có tiếng ngâm xướng truyền ra, bầy phi cầm xung quanh cũng bắt đầu bồn chồn không yên, trên người xuất hiện các hư ảnh mờ nhạt. 
 
-Cảnh tượng đột nhiên đổi. Nham thạch vốn dĩ bị nung nóng đỏ, không khí vặn vẹo do nhiệt độ cao lại trở về lạnh lẽo. Một loài hoa sen mọc tràn lan trên đỉnh núi, trên đài sen treo đầy chuông, mõ, thiền trượng, các loại phật khí. 
+Cảnh tượng đột nhiên đổi. 
+
+Vốn dĩ, nham thạch bị nung nóng đỏ, không khí vặn vẹo do nhiệt độ cao. Hiện tại, trong không khí tràn ngập hơi nước, tạo thành sương. Làn sương này nóng lạnh luân chuyển, tựa hồ có thể bốc cháy, lại tựa như nhược thuỷ dập tắt được vạn hoả. 
+
+Một loài hoa sen mọc tràn lan trên đỉnh núi, trên đài sen cháy một ngọn lửa thất sắc, củ sen mọc ngược lên mặt đất. Mỗi đoá hoa sen ngưng tụ bảy củ sen, đều là hình chuông hoặc mõ hoặc thiền trượng, toàn bộ đều là linh bảo nhà Phật. 
+
+Âm thanh từ đâu phát ra, âm trầm đến đáng sợ, tựa như dã thú nghiến răng, như dơi quỷ rít gào: 
+
+"Giỏi cho Thiên Hồ, lấy giả làm thật! Giỏi cho con khỉ lông xù, bảo vật bậc này cũng bỏ ra dùng đối phó vô danh tiểu tốt như ta!" 
+
+Đáp lại âm thanh này là chuông ngân vang, mõ dồn dập, trong thiền trượng truyền ra phạn âm ngâm xướng: 
 
 "Cọc, cọc ...Coong!" 
 
 Tiếng chuông mõ vang lên, trong cơ thể bầy phi cầm truyền ra tiếng thét không cam lòng, lũ lũ âm hồn bay ra, bị Phật quang dẫn độ, cũng không biết là đi đâu. 
 
+Hồi lâu sau, đoá đoá hoa sen bay lên, thẳng một đường hướng về phía bắc. Ánh trăng trên bầu trời chiếu xuống, tạo thành một thân ảnh nữ tử mơ hồ, nhìn khắp xung quanh tựa như có điều suy nghĩ. 
+
+Nữ tử phất tay một cái, ánh trăng chiếu rọi vào đám hoa sen, làm cho chúng càng thêm tươi tốt. Đốm đốm huyết khí từ hoa sen bay ra, ngưng tụ thành một giọt máu đỏ. Giọt máu này vừa ngưng thành, hơi nước xung quanh xuất hiện dị tượng, tự mình áp xúc thành một giọt nước trong suốt, lấy giọt máu làm tâm mà quay, tựa như đang triều bái. 
+
+"Quả nhiên." 
+
+Giọng nói lạnh như màn đêm, nữ tử biến mất trong ánh trăng sáng vằng vặc. Nàng mang theo chín phần mười giọt máu nọ, chỉ để lại một phần mười hoà tan vào trong giọt nước, ném về phương xa. 
+
+Giữa không trung, giọt nước kia long lanh như lam ngọc, bốc cháy thành xích hoả, kéo cái đuôi lửa thật dài qua bầu trời. 
+
 Trước cửa đình viện, thân ảnh kia vẫn cười nói hề hề:
 
 "Sớm nghe nói Thiết Hỏa Cự Viên bảo vật liên miên không dứt, thật không ngờ tài nghệ giấu bảo vật càng cao minh hơn. Ván cờ này, ta thua. Khổng Tước Bình An Phù xin trả lại." 
 
-Thân ảnh nói xong, đột nhiên ngất xỉu, một bóng đen nhanh như chớp chìm vào lòng đất. Thân ảnh kia không phải là Khổng Tước Đại Vương thì còn là ai? 
+"Ngươi đi được sao?" 
+
+Sư Vương đột nhiên dậm chân xuống đất một cái. Lập tức, Tứ Quý Trận phát động. 
+
+Xuân, thảo mộc tươi tốt, trăm hoa đua nở, thả ra Hàn Ma Hương, dưới đất cỏ mọc lan tràn, rễ bện vào nhau tạo thành thiên la địa võng. 
+
+Hạ, đồng khô cỏ cháy, linh khí tuyệt diệt, vạn dặm thành hoang. Đất đá lởm chởm tạo thành trận địa, một bước cử động sẽ dẫn phát vạn thạch công kích. Địa hoả dưới đất phun trào, tựa như hoả long đốt cháy hết thảy. 
+
+Thu, gió mây vần vũ, sấm nổ liên hồi. Trên có Cửu Thiên Thần Lôi soi rọi bầu trời, dưới có địa lôi chôn giấu, chỉ cần thở một hơi sẽ dần tới lôi điện phá diệt. 
+
+Đông, trời nổi đại hàn, mặt đất phủ tuyết, sông đóng thành băng. Tuyết và băng một màu đen tuyền, đều là Hỗn Độn Chân Thuỷ. Một hoa tuyết như một chiếc thập tự kiếm, sắc bén dị thường, không gì không phá. 
+
+Xuân Hạ Thu Đông, bốn mùa chuyển động, vừa vặn nhốt thân ảnh kia vào giữa. Nơi giao thoa, có cực hàn cực nhiệt, cực tĩnh cực động, quấy nhiễu pháp tắc thiên địa, phá hỏng thần thông đạo pháp, lại có bảo vật phong cấm mặt đất và bầu trời, một bước khó đi. 
+
+Sư Vương và thân ảnh kia đọ nhau hơn mười chiêu, đi qua bảy lần trận chuyển, cả hai đều không làm gì được đối phương. 
+
+Cuối cùng, hắn cười một tiếng, thân thể ngất xỉu, một bóng đen phân ra trặm đạo tàn ảnh độn xuống lòng đất, đâm vào trận địa mai phục địa lôi mà biến mất. 
+
+Thân ảnh ngất xỉu kia không phải là Khổng Tước Đại Vương thì còn là ai? 
 
 Mặt đất hiện một phen run lắc dữ dội, Dong lão, Ô Lão Quy cùng Cự Viên đều xuất hiện. 
 
@@ -318,23 +356,31 @@ Cổ Lâm dưới lòng đất là một thế giới khác, cho dù là Tứ V�
 
 Sư Vương thở dài: 
 
-"Cấm Pháp Lĩnh Vực không có tác dụng. Triệt để che đậy, bách độc không xâm, ngay cả chút khí tức cũng không tiết lộ." 
+"Cấm Pháp Lĩnh Vực không có tác dụng. Triệt để che đậy, bách độc không xâm, ngay cả chút khí tức cũng không tiết lộ. Tứ Quý Trận đối với hắn cũng không có bao nhiêu áp chế. Hắn không vận dụng pháp tắc thiên địa, lúc chiến đấu cũng không dùng thiên địa linh khí." 
 
 Dong lão cũng lắc đầu không thôi: 
 
-"Khó. Quỷ hồn chui vào thân thể, lại có thể che mắt pháp tắc Cổ Lâm, đoạt quyền khống chế. Lão phu sống tới từng tuổi này, tuy tu vi yếu kém nhưng thần quân thần hoàng thần đế cũng từng thấy qua mấy vị, hung linh cũng từng gặp mặt, không ai có bản lĩnh bực này."
+"Khó. Quỷ hồn chui vào thân thể, lại có thể che mắt pháp tắc Cổ Lâm, đoạt quyền khống chế. Lão phu sống tới từng tuổi này, tuy tu vi yếu kém nhưng thần quân thần hoàng thần đế cũng từng thấy qua mấy vị, hung linh cũng từng gặp mặt, không ai có bản lĩnh bực này." 
 
-Vừa rồi Sư Vương không động thủ, bởi vì Khổng Tước bị người ta khống chế, mà bị vô thanh vô tức khống chế còn có điểu tộc. Kẻ này rất quỷ dị, liên tục thay đổi đối tượng khống chế, không thể bắt được hành tung. Cổ Lâm còn dị thú, hắn còn có thể ẩn nấp. Dong lão bài thiên la địa võng, cộng thêm Ô Lão Quy trấn tràng vẫn để hắn chạy thoát ngay trước mắt. 
+Ô Lão Quy cười nói: 
+
+"Không vận dụng pháp tắc thiên địa, không dùng thiên đạo linh khí, chứng tỏ hắn chưa đạt đến Thần cảnh. Chúng ta bày ra trận này, chỉ là e sợ hắn đã đạt đến Thần cảnh. Ta thấy hắn cũng không sử dụng thần thông của Khổng Tước, không biết là hắn cố ý giấu diếm hay là thực sử không thể." 
+
+Vừa rồi Sư Vương không dùng toàn lực, bị vướng chân vướng tay, bởi vì Khổng Tước bị người ta khống chế, mà bị vô thanh vô tức khống chế còn có điểu tộc. Kẻ này rất quỷ dị, liên tục thay đổi đối tượng khống chế, không thể bắt được hành tung. Cổ Lâm còn dị thú, hắn còn có thể ẩn nấp. Dong lão bài thiên la địa võng, cộng thêm Ô Lão Quy trấn tràng vẫn để hắn chạy thoát ngay trước mắt. 
 
 Hắn dám xuất hiện chặn trước đình viện của Sư Vương, là hành động trêu ngươi rõ ràng. Sự thật là, Tứ Vương không thể làm gì được hắn. 
 
-Cự Viên trầm ngâm: 
+Dong lão nheo mắt: 
 
-"Vậy chỉ có thể là kẻ từ ngoài tới, không phải là bất tử hồn từ trong phong ấn thoát ra." 
+"Yên tâm, hiện tại lão phu sẽ tăng cường giám sát. Nếu hắn dám bước lên mặt đất một lần nữa, tất sẽ bị lão phu cảm ứng được. Hơn nữa, nếu hắn ẩn nấp trong cơ thể dị thú, ắt hắn sẽ cần phải dùng nhiều linh khí hơn để bổ sung, chống lại pháp tắc suy nhược của Cổ Lâm. Lão phu cũng là nhờ điểm này mới phát hiện điểu tộc gặp tai hoạ. Lần này quyết tâm không để xuất hiện một Hấp Huyết Hắc Hoả Hung Hoè thứ hai."
+
+Cự Viên ngược lại quan tâm hơn về danh tính của kẻ này, trầm ngâm nói: 
+
+"Chỉ có thể là kẻ từ ngoài tới, không phải là bất tử hồn từ trong phong ấn thoát ra. Trong đám bất tử hồn kia không có kẻ nào bản lĩnh lớn như vậy." 
 
 Ô Lão Quy cười hề hề: 
 
-"Ai mà biết được, có khi Tiểu Viên Tử ngươi bị nó khống chế rồi? Ta nói mà, ba ngàn hóa thân rất dễ bị bệnh tâm thần phân liệt." 
+"Ai mà biết được. Có khi Tiểu Viên Tử ngươi bị nó khống chế rồi đánh lạc hướng chúng ta? Ta nói mà, ba ngàn hóa thân rất dễ bị bệnh tâm thần phân liệt." 
 
 Cự Viên cười cười không đáp, cơ thể đột nhiên cứng đờ, rồi co giật, bàn tay quét ngang, không cẩn thận trúng phải Ô Lão Quy. 
 
@@ -358,7 +404,7 @@ Nói xong, trên tay hắn hiện ra một đóa hoa sen, bên trong phong ấn 
 
 Trong ống tay áo, cánh tay Sư Vương khẽ run rẩy. 
 
-"Lão phu biết vật ấy quý trọng, cho nên chỉ đổi một phần đủ dùng, hơn nữa dùng gấp đôi bảo vật để đổi, không biết Sư Vương có còn hàng tích trữ?" 
+"Lão phu biết vật ấy quý trọng, cần phải dùng Bạch Quân Lan Hoa vạn năm mộc linh điều chế, cho nên chỉ đổi một phần đủ dùng, hơn nữa dùng gấp đôi bảo vật để đổi, không biết Sư Vương có còn hàng tích trữ?" 
 
 "Dong lão đã nói, dĩ nhiên là còn hàng." 
 -------------------------------
@@ -378,7 +424,9 @@ Cự Viên vân vê tách trà trong tay.
 
 "Phàm là kẻ làm nên sự nghiệp, kiêu hùng một phương, đều được thiên địa ban tên. Chỉ cần ta tìm được Danh Tự Chú của ngươi, còn sợ ngươi không khai hay sao." 
 
-"Ngươi chỉ là một con Thiết Hỏa Cự Viên huyết mạch hỗn tạp, có tư cách gì tra Thiên Đạo Sách? Bốc phét lên tận trời!" 
+"Ngươi chỉ là một con Thiết Hỏa Cự Viên huyết mạch hỗn tạp, có tư cách gì tra Thiên Địa Sách? Bốc phét lên tận trời! Hơn nữa, ta chỉ là vô danh tiểu tốt nghe lời hành sự, Thiên Địa Sách, ta còn chưa có tư cách được ghi danh." 
+
+Cự Viên vẫn nhàn nhã uống trà: 
 
 "Thiên Đạo Sách, nghe thật là kêu, ta đương nhiên không có tư cách, nhưng mà Thanh Lâm Sách thì vẫn có thể xem một hai. Phàm là kẻ ở trong Cổ Lâm đều được ghi tên trên Thanh Lâm Sách." 
 
