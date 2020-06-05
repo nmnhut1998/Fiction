@@ -48,4 +48,4 @@ Thiên Hồ hai mắt lấp lánh hữu thần, chín đuôi phẩy nhẹ một 
 
 "Đúng đúng, tốt nhất nên cách xa ba thước, đúng rồi, ngươi còn có thể làm như vậy, chải lông đuôi cho bản đế, bản đế từng là Cửu Vĩ Thiên Hồ, là Thần Đế, một số công pháp cao thâm có thể ngự sử hỏa diễm tuyệt đối không thua ... dừng lại! Ngươi đang làm cái gì đó!" 
 
-Thiên Hồ hai mắt từ bầu trời nhìn xuống, chỉ cảm thấy toàn thân cảm giác hơi tê
+Thiên Hồ hai mắt rời bầu trời, cuối đầu nhìn xuống, chỉ cảm thấy toàn thân cảm giác hơi tê. Bảo vật của phi cầm, bản mệnh linh vũ đều bị tiểu Ô Quy thu sạch
