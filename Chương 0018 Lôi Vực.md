@@ -1,4 +1,4 @@
-Chương 0018: Lôi Vực 
+Chương 0018: Nhật - Nguyệt - Tinh tam kiếp 
 
 Cổ Lâm, đỉnh núi tuyết. 
 
@@ -42,9 +42,11 @@ Thiên Hồ hai mắt lấp lánh hữu thần, chín đuôi phẩy nhẹ một 
 
 "Ta đoán rằng trong cơ thể Lạc Vân vì có Huyền Thiên Nhiên Linh Hỏa nên không thể tu luyện, thời thời khắc khắc đều phải đối mặt với tử vong, hơn nữa loại linh khí cao cấp này chất chứa quá nhiều, để lại ẩn họa cực lớn, cũng biến tiểu tử này trở thành một viên đan dược hình người, chỉ cần biết cách sử dụng, sẽ dùng mãi không hết." 
 
-"Dĩ nhiên, Huyền Thiên Nhiên Linh Hỏa cần là linh khí cùng sinh cơ, còn ta chỉ là một đạo tàn hồn, nhục thân cũng không chân chính có được sinh cơ và thọ nguyên. Ta đã từng là thần cảnh, linh hồn và cơ thể đều câu thông thiên địa, cho nên Huyền Thiên Nhiên Linh Hỏa vào trong cơ thể ta tạo thành một loại cân bằng. Hơn nữa, bởi vì không có thực thể, cho nên loại linh khí kia không ảnh hưởng ta, chỉ có thể từ từ tan vào thiên địa mà thôi." 
+"Lúc độ Thiên Kiếp thành tựu Thần cảnh, nếu tư chất đủ tốt sẽ có thể kích phát loại lửa này giáng xuống. He he, năm đó bản đế độ kiếp chính là đối phó một đoàn Huyền Thiên Nhiên Linh Hoả to bằng đầu người! Muốn đối phó loại lửa này, phải làm được linh hồn và thân thể cùng với thiên địa hoà làm một.sd" 
 
-"Tiểu Ô Quy, Huyền Thiên Nhiên Linh Hỏa thực sự rất nguy hiểm, ngay cả sinh vật đứng gần cũng bị ảnh hưởng, ngươi nên cách Lạc Vân xa một chút, nếu không sẽ bị giảm thọ tới chết."
+Lời nói xong chợt cảm thấy không thích hợp. Ngọn lửa cháy trên người Lạc Vân tựa hồ không nhỏ, hơn nữa cháy từ lúc tiểu tử này sinh ra tới nay, mà vẫn còn sống!
+
+"Khụ khụ, Tiểu Ô Quy, Huyền Thiên Nhiên Linh Hỏa thực sự rất nguy hiểm, ngay cả sinh vật đứng gần cũng bị ảnh hưởng, ngươi nên cách Lạc Vân xa một chút, nếu không sẽ bị giảm thọ tới chết."
 
 "Đúng đúng, tốt nhất nên cách xa ba thước, đúng rồi, ngươi còn có thể làm như vậy, chải lông đuôi cho bản đế, bản đế từng là Cửu Vĩ Thiên Hồ, là Thần Đế, một số công pháp cao thâm có thể ngự sử hỏa diễm tuyệt đối không thua ... dừng lại! Ngươi đang làm cái gì đó!" 
 

@@ -1,4 +1,5 @@
 Chương 0017: Phản kích - Kẻ sau màn
+
 Hình dạng của cự thú vốn mơ hồ, đột nhiên trong chớp mắt ngưng thực, thét dài một tiếng. 
 
 Tiếng thét này có niệm lực, tạo ra lực hút thu lấy linh khí trên đỉnh tuyết sơn, bao gồm cả thứ hỏa diễm kia. Trong linh khí phong báo thì có thể sống, nhưng chạm phải thứ hỏa diễm kia thì lập tức bị thiêu rụi, Ưng Hồng Liên cùng đám phi cầm chật vật thối lui lên bầu trời. 
