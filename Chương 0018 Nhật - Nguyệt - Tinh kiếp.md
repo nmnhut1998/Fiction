@@ -62,7 +62,7 @@ Tiểu Ô Quy lại tiếp tục đến bên cạnh Tiểu Đạt Đạt, một 
 
 Thao tác của hắn nhanh như chớp giật, điêu luyện như nhà có nghề. Đập xỉu, nhúng nước. Trụi lông. 
 
-Trong lúc Thiên Hồ còn đang mơ màng thuyết giáo về Huyền Thiên Nhiên Sinh Hoả, tiểu Ô Quy đã thu được hơn ba mươi bộ lông vũ, bản mệnh linh vũ cũng thu thập được một bó to giắt quanh người. 
+Trong lúc Thiên Hồ còn đang mơ màng thuyết giáo về Huyền Thiên Nhiên Sinh Hoả, tiểu Ô Quy đã thu được hơn mười bộ lông vũ, bản mệnh linh vũ cũng thu thập được một bó to giắt quanh người. Ánh mắt con rùa nhỏ này rất tinh, chỉ chuyên nhắm vào phi cầm đã tu luyện ra được bản mệnh linh vũ, hoặc là trên người có mang dụng cụ trữ vật. 
 
 Đợi đến lúc Thiên Hồ phát hiện, chín cái đuôi của hắn cũng ướt mèm Thiên Huyền Hủ Thuỷ, lông đuôi theo dòng nước trượt xuống, lộ ra làn da bóng loáng như gương. Tuy nhiên, tinh huyết của Lạc Vân trong cơ thể vẫn còn, cho nên lông mới mọc ra.
 
