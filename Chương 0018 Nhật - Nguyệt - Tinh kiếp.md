@@ -68,4 +68,4 @@ Trong lúc Thiên Hồ còn đang mơ màng thuyết giáo về Huyền Thiên N
 
 Tiểu Ô Quy mắt nhỏ chớp chớp nhìn Thiên Hồ, hai bàn tay giấu ở sau lưng, lúng túng nói: 
 
-"Thiên Hồ, thương lượng một chút, cao thêm lần nữa nha?"
+"Thiên Hồ, thương lượng một chút, cạo thêm lần nữa nha? Sắp đủ hai cái áo lông chồn rồi"
