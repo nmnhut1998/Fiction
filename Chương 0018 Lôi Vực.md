@@ -34,7 +34,7 @@ Thiên Hồ hai mắt lấp lánh hữu thần, chín đuôi phẩy nhẹ một 
 
 "Huyền Thiên Nhiên Linh Hỏa, còn gọi là Huyền Thiên Nhiên Sinh Hỏa, chỉ sinh ra khi có ngũ hành giao thoa, âm dương nghịch chuyển, Cửu Thiên Thần Lôi đánh xuống hóa trọc thành linh, khai sáng sinh mệnh. Vì vậy, nó chính là một loại Sinh Mệnh Chi Hỏa, mỗi sinh vật trên thế gian này đều có. Nhưng nếu một sinh vật bị Cửu Thiên Thần Lôi đánh xuống mà không chết, cơ thể vừa vặn hợp âm dương ngũ hành, loại thể chất nghịch thiên không thể tồn tại trong thiên địa này, thì sẽ sinh ra Huyền Thiên Nhiên Linh Hỏa, tức là Thiên Phạt Chi Hỏa."
 
-"Con người ăn ngũ cốc, dị thú hấp thu linh khí, cuối cùng đều biến thành một dạng năng lượng, mà điển tịch hay gọi là linh lực, nhờ đó tim có thể đập, tay chân cử động, nói năng suy nghĩ. Sinh Mệnh Chi Hỏa tham gia vào quá trình chuyển hóa này, mà nó cũng được tạo ra từ quá trình này."
+"Con người ăn ngũ cốc, dị thú hấp thu linh khí, cuối cùng đều biến thành một dạng năng lượng, mà điển tịch hay gọi là linh lực, nhờ đó tim có thể đập, tay chân cử động, đầu óc có thể nói năng suy nghĩ. Sinh Mệnh Chi Hỏa tham gia vào quá trình chuyển hóa này, mà nó cũng được tạo ra từ quá trình này. Sinh Mệnh Chi Hỏa không tắt thì cơ thể vẫn còn sống, khi Sinh Mệnh Chi Hỏa tắt thì nhục thân chết đi, xác chết lạnh lẽo là vậy."
 
 "Nhưng khác với Sinh Mệnh Chi Hỏa giúp vạn vật tồn tại, Huyền Thiên Nhiên Linh Hỏa giống như Sinh Mệnh Chi Hỏa dư thừa, thời khắc đều thiêu đốt sinh mệnh, linh khí và thọ nguyên trong cơ thể, mà sản phẩm nó tạo ra chính là một loại linh khí khác, có thể nói là cao cấp hơn, nhưng cơ thể lại không thể hấp thu, không thể sử dụng." 
 
@@ -50,4 +50,8 @@ Lời nói xong chợt cảm thấy không thích hợp. Ngọn lửa cháy trê
 
 "Đúng đúng, tốt nhất nên cách xa ba thước, đúng rồi, ngươi còn có thể làm như vậy, chải lông đuôi cho bản đế, bản đế từng là Cửu Vĩ Thiên Hồ, là Thần Đế, một số công pháp cao thâm có thể ngự sử hỏa diễm tuyệt đối không thua ... dừng lại! Ngươi đang làm cái gì đó!" 
 
-Thiên Hồ hai mắt rời bầu trời, cuối đầu nhìn xuống, chỉ cảm thấy toàn thân cảm giác hơi tê. Bảo vật của phi cầm, bản mệnh linh vũ đều bị tiểu Ô Quy thu sạch
+Thiên Hồ hai mắt rời bầu trời, cuối đầu nhìn xuống, chỉ cảm thấy toàn thân cảm giác hơi tê. 
+
+Năm mươi đầu phi cầm lăn lóc trên mặt đất, toàn bộ lông vũ đã bị nhổ đi, lông tơ bị cạo, lộ ra lớp da trắng bóc như thiếu nữ. Pháp bảo, bảo vật chúng mang theo đã biến mất không còn tăm hơi.
+
+Thiên Hồ quay đầu nhìn sau lưng, chỉ thấy một cái mai rùa phình to tựa như ngọn núi nhỏ, cái đầu rùa khuất tầm nhìn không thấy đâu
