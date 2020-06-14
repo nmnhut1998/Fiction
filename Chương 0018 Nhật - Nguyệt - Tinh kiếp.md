@@ -68,4 +68,16 @@ Trong lúc Thiên Hồ còn đang mơ màng thuyết giáo về Huyền Thiên N
 
 Tiểu Ô Quy mắt nhỏ chớp chớp nhìn Thiên Hồ, hai bàn tay giấu ở sau lưng, lúng túng nói: 
 
-"Thiên Hồ, thương lượng một chút, cạo thêm lần nữa nha? Sắp đủ hai cái áo lông chồn rồi"
+"Hồ Ca anh tuấn tiêu sái oai phong thần vũ, thương lượng một chút, cạo thêm lần nữa nha? Sắp đủ hai cái áo lông chồn rồi"
+
+Thiên Hồ khoé miệng co giật, khuôn mặt vặn vẹo, toàn thân run rẩy, lẩy bẩy không nói nên lời. 
+
+Tiểu Ô Quy chớp mắt ngượng ngùng: 
+
+"Hay là ta nhường một bước, chỉ cạo một nửa? Tiểu Ô Ô ta từ nhỏ chịu khổ, ở dưới đáy biển làm nghề nghề cắt tóc tỉa lông, bảo đảm sẽ cho Hồ Ca một bộ lông vừa xù vừa mát, không đẹp không lấy tiền, nói dối sẽ bị trời đánh." 
+
+Ngay thời khắc đó, Lạc Vân mở mắt. Nơi này là đỉnh núi tuyết, trên bầu trời có lôi vân, tiểu hài tử vừa mở mắt, lồng ngực một lần nữa phập phồng hít thở, lôi vân đã trở nên cuồng bạo, một tia sét to bằng cánh tay đánh xuống. 
+
+Huyết dịch trong cơ thể Lạc Vân bị lôi điện ảnh hưởng, hoá thành khí bao bọc khắp cơ thể. Luồng khí này mang theo dị hương, mỗi lần lôi điện đánh xuống đều bị chệch hướng về phía sinh mệnh gần nhất. Tiểu Ô Quy bi phẫn trở thành cái cột thu thôi thay cho Lạc Vân. 
+
+Thiên Hồ thở dài, lấy đuôi che mặt, xoay người bỏ đi. 
