@@ -258,7 +258,7 @@ Cự Viên quay sang nhìn, Ô Lão Quy đã biến mất từ lâu, chỉ có t
 
 Sư Vương một lần nữa hóa thành hình người, một thân võ phục uy vũ bất phàm. Liếc nhìn ngọc giản trên tay Cự Viên, kinh ngạc, hít hít mấy cái: 
 
-“Thiên Sinh Hoa, Hỏa Lộc Xạ Hương, Liệt Hỏa Linh Chi, Tàn Dương Tán,  m Hoa Thủy, Nguyệt Linh Lộ …” 
+“Thiên Sinh Hoa, Hỏa Lộc Xạ Hương, Liệt Hỏa Linh Chi, Tàn Dương Tán,  Thiềm Hoa Thủy, Nguyệt Linh Lộ …” 
 
 “Đúng là con cháu luyện hương thế gia Kim Nghê Nhất Tộc, bản lĩnh cũng không nhỏ. Nhưng mà có câu, tò mò giết giết mèo con nga!” 
 
