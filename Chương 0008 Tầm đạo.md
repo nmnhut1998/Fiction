@@ -148,13 +148,13 @@ Vút!
 
 Mũi tên trên cung kéo một vệt lôi quang, bắn phốc một tiếng về phía nguồn âm, nghe phụp một tiếng, hẳn là đã trúng mục tiêu. Cách đó khoảng năm mươi trượng, một con khỉ toàn thân lông bạc trắng ôm vết thương bước ra. Mũi tên cắm vào giữa ngực đó, so với vị trí trái tim thì lệch một chút. Quỷ dị chính là con khỉ này không có máu, trên mặt lại càng không có vẻ đau đớn. 
 
-"Tờ giấy thối, ngươi cút đi chỗ khác!" 
+"Tờ giấy nát, ngươi cút đi chỗ khác!" 
 
 "Ta không đi đấy, ngươi làm gì ta? Có giỏi thì lên cắn ta đi?" 
 
-Lời nói vừa xong, nó lắc mình một cái biến thành một tờ giấy trắng bị cháy xém một góc, mũi tên của Lạc Vân cắm trên người rơi phịch xuống đất. Tờ giấy tự gấp bản thân, chỉ trong chớp mắt đã biến thành một con hạc giấy, có đủ cả lông vũ, sinh động không kém gì bằng xương bằng thịt. 
+Lời nói vừa xong, nó lắc mình một cái biến thành một tờ giấy trắng bị cháy xém một góc, mũi tên của Lạc Vân cắm trên người rơi phịch xuống đất. Tờ giấy tự mình gấp gấp xếp xếp, chỉ trong chớp mắt đã biến thành một con hạc giấy, có đủ cả lông vũ, sinh động không kém gì bằng xương bằng thịt. 
 
-Đây chính là tiểu đồng bình thường hầu hạ Cự Viên, gọi là Tiểu Bạch. Nó là một tờ giấy trắng dùng để vẽ phù, trăm năm nghe đạo, hấp thụ vô số tinh hoa thảo mộc ở Cửu Cung Lâu, lại tình cờ bị nhỏ vào một giọt máu của Thần thú bí ẩn mà sinh ra linh trí, cũng coi như một loài dị thú đặc thù.
+Đây chính là tiểu đồng bình thường hầu hạ Cự Viên, gọi là Tiểu Bạch. Nó là một tờ giấy trắng, trăm năm nghe đạo, hấp thụ vô số tinh hoa thảo mộc ở Cửu Cung Lâu, lại tình cờ bị nhỏ vào một giọt máu của Thần thú bí ẩn mà sinh ra linh trí, cũng coi như một loài dị thú đặc thù.
 
 Vì thân thể có thể bằng giấy không có cảm giác đau đớn, lại có thể tái sinh ở mức độ nhất định nên hay bị Cự Viên phái tới làm đối thủ của Lạc Vân, nhưng bình thường Lạc Vân đều ở trong đình viện, có Sư Vương ở đó, Tiểu Bạch ngay cả thở cũng không dám, làm gì dám ra đòn đánh trả, toàn đóng vai trò bia tập bắn. 
 
@@ -163,3 +163,11 @@ Hôm nay cuối cùng Lạc Vân cũng bước ra khỏi nhà, cơ hội trả t
 "Ngươi dám dùng cung bắn ta, ta trả lại ngươi!" 
 
 Hai cánh đập mạnh, ba chiếc lông vũ phóng ra, tốc độ nhanh hơn cả mũi tên của Lạc Vân. 
+
+Lạc Vân vội vàng vung tay, bàn tay ngón gập ngón duỗi dẫn pháp lực từ Lưu Ly Bảo Y đi dọc theo cánh tay đến đầu ngón tay, từ đó phóng ra. 
+
+Vạn Lôi Ấn!
+
+Tuy nhiên, đây chỉ là Nhất Lôi Ấn, bởi vì chỉ có một tia lôi điện phóng ra. Vạn Lôi Ấn chân chính, chỉ cần ý niệm, không cần kết ấn, khi vừa xuất ra, bầu trời và mặt đất nối liền tạo thành một mảnh đại dương lôi điện, uy lực khôn cùng. 
+
+Lông vũ có nhanh hơn nữa, tốc độ cũng không bằng lôi điện, bị một tia này của Lạc Vân làm bốc cháy, rơi xuống đất. Nhưng Tiểu Bạch đã chiếm tiên cơ, sao lại cam chịu buông tha. Công kích dồn dập đánh tới, làm cho Lạc Vân phải chật vật chống đỡ. 
