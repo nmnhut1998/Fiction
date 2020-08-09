@@ -1,10 +1,16 @@
 Chương 8: Tầm đạo
 
-Sư Vương đứng ở hiên đình, bắt lấy lá vàng. 
+Sư Vương đứng ở hiên đình, bắt lấy lá vàng. Nơi hiên này ẩn một góc, Lạc Vân chưa đủ cao lớn, nhìn không qua được mái nhà, đứng ở sân không bao giờ nhìn thấy được mái hiên nơi này. 
+
+Tứ Quý Trận bao trùm đình viện, chỉ cần thoáng động ý nghĩ, từ hạ sang thu, thu trở về xuân chỉ trong nháy mắt. Vì thử thách, rèn luyện Lạc Vân, trong đình viện bao giờ cũng là hạ chói chang oi bức, hoặc là đông rét buốt da. 
+
+Nhưng suy cho cùng, ý nghĩ cũng tâm trạng ảnh hưởng. 
+
+Mỗi năm, Sư Vương chỉ đứng ở chỗ này hai lần, mà mỗi lần như vậy, khung cảnh xung quanh đều là mùa thu điêu tàn. Nhưng điêu tàn của mùa thu chỉ gói gọn ở mái hiên. Những nơi khác trong đình viện lúc nào cũng là khung trời đổ nắng rát da, là gió đông đổ tuyết lạnh buốt chân, toàn những cảnh thiên nhiên khắc bạc, dữ tợn, tựa như búa đe rèn giũa thân thể và ý chí. 
 
 Hàng hiên trống vắng, hơn trăm chiếc lá run run rơi, lượn, chao đảo, cất lên, lại rơi xuống. 
 
-Lá vàng ruộm như đậu phụ nhà ai rán già lửa, không chịu nổi gió to, có vài chiếc rã rời, lả tả rơi xuống, đánh dấu những ngày cuối cùng của mùa thu. 
+Lá vàng ruộm như đậu hủ nhà ai rán già lửa, không chịu nổi gió to, có vài chiếc rã rời, lả tả rơi xuống, đánh dấu những ngày cuối cùng của mùa thu. 
 
 Cũng có nghĩa còn mấy tháng nữa Lạc Vân được ba tuổi. 
 
@@ -14,9 +20,9 @@ Dưới sự ảnh hưởng của pháp tắc trong Cổ Lâm, cơ bắp và tr�
 
 Ví dụ như Lạc Vân tư chất thông tuệ, bẩm sinh đã có khả năng học hỏi đặc thù, nhìn qua là nhớ, chỉ cần nghe qua thì không quên. Từ lúc một tuổi, Lạc Vân đã biết đi, biết nói, biết cầm bút, biết bắn cung. 
 
-Cự Viên cơ hồ có ý định nhận Lạc Vân làm đệ tử. Từ khi Lạc Vân biết nói rành rọt, Khổng Tước bình an phù thỉnh thoảng vang lên tiếng lão sư giảng bài, rõ ràng là Cự Viên cố ý cho hoá thân truyền tới. 
+Cự Viên cơ hồ có ý định nhận Lạc Vân làm đệ tử. Từ khi Lạc Vân biết nói rành rọt, Khổng Tước bình an phù thỉnh thoảng vang lên tiếng lão sư giảng bài, rõ ràng là Cự Viên cố ý cho hoá thân ở Thanh Lâm Học Viện truyền tới. 
 
-Cứ như vậy, sau gần hai năm, tri thức cơ bản ở Thiên Dư đại lục đều bị Lạc Vân nghe qua một lần. 
+Cứ như vậy, sau gần hai năm, tri thức cơ bản ở Thiên Dư đại lục đều được Lạc Vân nghe qua một lần. 
 
 Đây là lúc hắn nên phóng tay, để Lạc Vân tự mình bước đi. Chỉ là hắn vẫn có ưu phiền.
 
@@ -26,7 +32,7 @@ Lôi thể của Lạc Vân trải qua mấy năm nay lại chậm rãi biến m
 
 Lạc Vân trở thành một tồn tại đặc thù nhất. Ở trong Mê Vụ Cổ Lâm, rất nhiều điều vốn không thể đều trở thành có thể. 
 
-Tỉ như, không có linh căn vẫn có thể trở thành Thuần Thú Sư hay Hoá Thú Sư. Tỉ như Hoá Thú Sư cũng có thể là Thuần Thú Sư. Tỉ như, không cần phải trở thành Thuần Thú Sư hay Hoá Thú Sư, thậm chí không cần phải có linh căn mới có thể tu luyện. Vì con đường tu luyện của nhân loại chính là phát tích từ đây, nơi Mê Vụ Cổ Lâm này. 
+Tỉ như, không có linh căn vẫn có thể trở thành Thuần Thú Sư hay Hoá Thú Sư. Tỉ như vừa là Hoá Thú Sư vừa là Thuần Thú Sư, kiêm tu hai chức nghiệp - điều vốn dĩ là không thể. Tỉ như, không cần phải trở thành Thuần Thú Sư hay Hoá Thú Sư, thậm chí không cần phải có linh căn mới có thể tu luyện. Vì con đường tu luyện của nhân loại chính là phát tích từ đây, nơi Mê Vụ Cổ Lâm này. 
 
 Hắn có thể cho Lạc Vân tinh huyết tốt nhất, trở thành Hoá Thú Sư tiềm năng nhất. Hắn có thể cho Lạc Vân kí khế ước với dị thú có huyết mạch và tư chất tốt nhất, trở thành Thuần Thú Sư có tiền đồ nhất. Hắn có thể luyện chế pháp bảo mạnh nhất, làm cho khí linh thời thời khắc khắc nghe lệnh Lạc Vân, hay từ chỗ Cự Viên lấy được Thanh Liên Linh Bảo tốt nhất, cung cấp tài nguyên đầy đủ để Lạc Vân thuận lợi phát triển. Thậm chí hắn có bí thuật có thể cưỡng ép linh hồn dung hợp, làm cho Lạc Vân dung hợp cùng với thú hồn, một lần dung hợp tu vi tiến xa ngàn dặm. 
 
@@ -34,9 +40,9 @@ Hết thảy tất cả đều không phải là cơ duyên, mà là xem ở ý 
 
 Những con đường thẳng tắp thường không đến được đỉnh núi cao, những con đường quanh co hay đi xa hơn, những con đường gồ ghề thường đưa tới những điều mới mẻ. 
 
-Sư Vương trong đầu miên man nhiều ý tưởng. Hắn không biết nên để Lạc Vân theo con đường nào mới tốt, phương pháp nào có tác dụng đối với tiểu hài tử. Cho nên hắn để Lạc Vân rời đi, tự tìm kiếm con đường riêng của mình. 
+Sư Vương trong đầu miên man nhiều ý tưởng. Hắn không biết nên để Lạc Vân theo con đường nào mới tốt, phương pháp nào có tác dụng đối với con mình. Cho nên hắn để Lạc Vân rời đi, tự tìm kiếm con đường riêng của mình. 
 
-Con đường tới Thanh Lâm Học Viện, mà mỗi ấu thú trong Cổ Lâm đều phải tự đi ít nhất một lần trong đời. 
+Con đường tới Thanh Lâm Học Viện mà mỗi ấu thú trong Cổ Lâm đều phải tự đi ít nhất một lần trong đời. 
 
 Hi vọng Lạc Vân sẽ tìm ra được đường tới Thanh Lâm Học Viện.  
 
@@ -52,188 +58,89 @@ Nhưng điều trên hết, học sinh phải đến được Thanh Lâm Học V
 Biết được con đường mình phải đi, đó là tri đạo. 
 Đi trên con đường mình chọn, đó là hành đạo." 
 
-Sư Vương thì thầm, lời nói của hắn cách không truyền vào tai Lạc Vân đang dần khuất dáng trên con đường lá vàng. 
+Sư Vương thì thầm, lời nói của hắn truyền vào mây xanh, thấm vào lòng đất, lay động cỏ cây. Một luồng dao động vô hình quét qua Cổ Lâm, làm tất cả dị thú đều bừng tỉnh. Chúng biết rằng, năm nay đường tới Thanh Lâm sẽ có thêm nhiều khúc quanh co.  
+
+Ánh mắt của hắn rơi vào thân hình nhỏ - Lạc Vân - con trai hắn - vội xuyên qua sân đình, bước tới cảnh cửa ba năm nay vẫn đóng chặt. Trên đỉnh đầu, Tứ Quý Trận huyễn hoá ra mặt trời, ánh nắng như đổ lửa, đủ làm người ta ngạt thở. 
+
+Hắn thấy Lạc Vân mồ hôi nhễ nhại, giọt giọt lóng lánh như ngọc trai, từng bước đi chững chạc, khuôn mặt quen chịu gió hứng sương mà trở nên khắc khổ, có mấy phần giống mình, nhưng lại càng có vẻ trẻ con, ngây thơ. Đối với một đứa trẻ, đây chỉ là một cuộc trốn nhà đi chơi đầy háo hức, mong đợi, trốn khỏi bốn vách tường buồn chán, đến thế giới to rộng ở bên ngoài. 
 
 Hắn nhẩm tính, có lẽ năm nay niên khoá sẽ mở sau sinh nhật Lạc Vân vài ngày. Hắn lại nhẩm tính rằng ngày Lạc Vân tiếu ngạo quần hùng, hắn có lẽ đã rơi rụng như lá vàng ngoài hiên. 
 
 _________________
 
-Mê Vụ Cổ Lâm đang dần thay da đổi thịt. 
+Nơi lưng chừng núi, đình viện đứng đó, không thấy hơi người, chỉ có tiếng cỏ cây, chim muông và ong bướm vo ve.
 
-Có thể thấy rõ, số lượng dị thú vượt qua thập niên chi kiếp lần thứ nhất đã chiếm hơn chín phần mười. Nhiều ấu thú chỉ năm sáu tuổi, thực lực cường đại một chút cũng đã vượt qua thập niên chi kiếp lần thứ nhất. 
+Hai cánh cửa gỗ tùng cao gấp đôi thân người lớn vẫn im ỉm nằm đó, một mặt gánh nắng mùa hạ gay gắt và mưa rào bất chợt, mặt kia hướng về mùa thu lá rụng, hứng gió may xao xác qua khe cửa. Khe cửa từ từ mở rộng, một cái đầu nhỏ nhắn rón rén bước ra. 
 
-Mà bãi săn bắn Huyền Vân xuất hiện, ấu thú cũng xuất hiện phương pháp tu luyện mới, đó là săn hung thú. 
+Cái đầu nhỏ đó là Lạc Vân. 
 
-Hung thú vô cùng vô tận, tựa hồ ngày càng nhiều, ngày càng mạnh, nhưng cũng là tài nguyên khiến cho dị thú phát triển nhanh chưa từng có. Thậm chí có dị thú trưởng thành bắt đầu tham gia vào săn thú. 
+Linh khí theo khe cửa tràn ra mặt đất rồi bốc lên cao, tựa như một cơn gió lốc thổi quần áo tung bay. Hai cánh mũi hóp lại hít một hơi thật sâu. Ở trong nhà có Tứ Quý Trận, ba năm nay nếu không phải là mùa hạ oi nóng thì mùa đông khắc nghiệt, mà bên ngoài đã là mùa thu nức mùi lá rụng hun vàng. 
 
-Điều đó cũng có nghĩa là Lạc Vân có càng nhiều đối thủ cạnh tranh. 
+Cái đầu nhỏ khum khum, từ từ bước qua khe cửa, tham lam hít lấy hương thu của Cổ Lâm, đón gió thu mát lạnh, vẻ mặt lại không yên lòng, ngoái đầu lại, hướng về phía trong hô lớn: 
 
-Sườn núi.
+"Cha! Vân nhi đi nha!" 
 
-Một thân ảnh nhỏ bé từ từ di chuyển. Đứa trẻ này khoác một bộ áo lông, nhìn sơ qua giống như khỉ con tinh nghịch, bên trong là lưu ly bảo y, trường cung khoác chéo, lưng đeo ống tên. Bên hông đứa trẻ treo lỉnh kỉnh một đống đồ vật. 
+Tiếng Sư Vương từ bên trong vọng ra: 
 
-Một cái mai rùa - Càn Khôn Quy Giáp của Ô Lão Quy - dùng để chứa đồ vật. 
+"Đi đi, đi cẩn thận!" 
 
-Một ống sáo có đồ đằng tiểu hồ ly chín đuôi - Thiên Hồ Pháp Địch làm từ Dong thụ chi. 
+Cái đầu nhỏ lại rời xa cánh cửa thêm một tấc, bồn chồn nhìn đông nhìn tây:
 
-Một cái bình an phù - Khổng Tước Bình An Phù. 
+"Vân nhi đi thật đó?" 
+"Cha không được dùng Tứ Quý Trận chặn đường Vân nhi!" 
+"Hắc Lôi Ma Khôi cũng không được!" 
 
-Đôi giày dưới chân lúc nào cũng có một đám mây phủ quanh - gọi là Phù Vân Ngoa, mỗi bước đi nhấc lên đều rất nhẹ nhàng, cho dù đường núi gồ ghề cũng tựa như đi trên đất bằng. 
+"A? Thật sự không có bẫy? Không có trận pháp?" 
 
-Toàn bộ đều khắc Liên Hoa ấn kí đặc trưng của Cự Viên, tất cả đều là Thanh Liên Linh Bảo. 
+Mỗi một câu nói, Lạc Vân lại nhích ra khỏi cửa một chút, phát hiện mình đã hoàn ở ngoài liền vỗ tay hoan hô, nhảy cẫng lên một cái: 
 
-Dĩ nhiên, đứa trẻ này chính là Lạc Vân được vũ trang từ đầu tới chân. 
+"Ha ha! Cuối cùng cũng được ra ngoài chơi rồi!" 
 
-Lạc Vân đi trên sườn dốc, vừa đi vừa lẩm bẩm nhắc nhở mình: 
+Hai chân lon ton chạy liên tục. Thân hình chỉ vừa tới hông người trưởng thành. Áo nhỏ gió thổi phiêu phiêu, chiếc mai rùa con con lắc lư, trường cung và ống tên trên lưng đung đưa, phát ra từng tiếng lộp cộp, lộp cộp. Con đường đá núi ghồ ghề phủ liên tục kêu lên những tiếng xộp xộp của lá khô. Đến khi mệt mỏi, ôm ngực thở hồng hộc, dấu chân trên con đường đã bị lớp lá mới rụng che đi, đình viện trong mặt cũng chỉ là một đốm nhỏ xíu bằng móng tay. Lạc Vân dựa người vào cây, quay đầu nhìn hướng sườn núi: 
 
-“Cha dặn kĩ, không được đặt thứ quan trọng trong Càn Khôn Quy Giáp, lúc cần thiết không thể lấy ra kịp. Còn phải đề phòng Quy gia gia lén tráo đổi linh thạch" 
+"Đi xa như vậy rồi mà cha vẫn không có đuổi theo?" 
 
-“Thiên Hồ Pháp Địch chỉ dùng được một lần, phải tiết kiệm, tiết kiệm” 
+"Thật sự không đuổi theo sao?" 
 
-“Khổng Tước Bình An Phù chỉ có năm viên linh thạch …” 
+Lạc Vân vẫn tiếp tục bước đi, trong lòng lại có cảm giác tựa như đã bỏ quên thứ gì đó ...
 
-"Tuyệt kĩ không phải lúc sống chết thì không được dùng." 
+_________________
 
-Lạc Vân dụi dụi cái mũi nhỏ, khuôn mặt trắng hồng ngửa lên nhìn trời. 
+Sườn núi bớt dốc, đường từ từ bằng xuống, cây cối mọc khít nhau, không khí càng ẩm ướt. Gió len qua gốc cây cao vút trơ cành, cuốn lên mùi mốc của lá khô quyện với hơi nước, mang theo hơi thở điêu tàn. 
 
-Hôm nay, nhiệm vụ của Lạc Vân chính là tự mình đến Thanh Lâm Học Viện. Từ thái độ của cha, có lẽ con đường đi này sẽ nguy hiểm, hơn nữa rất quan trọng. 
+Trên lưng Lạc Vân, trường cung đột nhiên phát ra tiếng sư gầm trầm thấp. Đây là khí linh của Tang Cung phát ra tiếng cảnh báo. 
 
-Cứ như trên người Lạc Vân có rất nhiều vật dụng phòng thân, nhưng kì thực đây là một hành trình đầy nguy hiểm. 
+Rắc!
 
-Trước khi đi, cha đã dặn rất nhiều. Từ đình viện của đến Thanh Lâm Học Viện đường xá có hơn trăm dặm, đường núi khó đi, có nhiều nguy hiểm. Cần phải đề phòng hung thú, quỷ hồn tập kích vào ban đêm. Đối với dị thú càng phải cẩn thận, nếu ứng phó không được thì phải đưa ra danh nghĩa Kim Lôi Sư Vương. 
+Cành trên thân cây rắc một tiếng gãy ngang, rơi xuống, cắm thẳng xuống đất như một mũi tên. 
 
-Lạc Vân cảm giác có mấy trăm con ruồi bay loanh quanh trong bụng mình, bứt rứt không yên. Xoa xoa bụng, cảm giác lo lắng càng dâng lên. 
+Rắc! Rắc! 
 
-Tán rừng mùa thu xào xạc, lá rơi bay ngang làm tiểu hài tử giật nảy mình. 
+Ngày càng có nhiều cành cây rơi xuống, cắm phập vào mặt đất, mơ hồ tạo thành một trận pháp sơ hình. Gió nổi lên dữ dội, từng mảng lá cây bị cuốn lên, xoáy tròn trên không che hết cả mặt trời. 
 
-"Sáng nay không có ăn bậy, bụng làm sao cồn cào như vậy, cảm giác rất nặng, mỗi lần hít thở đều không thông thuận ..."  
+"Yêu tặc nào to gan, dám ở đây làm loạn?" 
 
-"Da làm sao sần sùi như vậy, cũng không phải nổi ghẻ ..." 
+Lạc Vân thân hình nhỏ nhắn, khuôn mặt còn nét trẻ con rõ rệt nhưng ngữ điệu, tư thế đều giống Sư Vương y như đúc. Loại tư thế, ngữ điệu này lộ ra uy nghiêm, nếu không nhìn thấy một đứa trẻ đang hô hoán thì chắc chắn sẽ tin rằng đây là một vương giả đang cảnh cáo yêu tặc. 
 
-"Tay cũng đặc biệt lạnh ..." 
+Dưới ống tay áo, mười đầu ngón tay run rẩy dần bình tĩnh lại. Trên ngón trỏ có ánh kim loại, rõ ràng là một lưỡi dao nhỏ chỉ bằng móng tay, có cơ quan nối với đốt ngón tay, bình thường ẩn hình, chỉ khi nào ngón tay co ở một góc độ nhất định thì mới hiện ra. 
 
-Lạc Vân gãi gãi đầu, vừa bước ra đường, mọi chuyện đều trở nên xa lạ. Trong đầu tiểu hài tử lại hiện lên nhiều trang sách, bắt đầu lẩm bẩm: 
+Lưỡi dao sắc bén rạch ngang bàn tay, một giọt máu đỏ chảy ra, thấm vào tay áo. Mặt trong ống tay loé lên hình thêu Nhất Diệp Thanh Liên, áo bào trông như phổ thông đột nhiên xuất hiện pháp lực, đồng thời một nhúm thuốc bột tự động rơi xuống chỗ vết thương.
 
-"Viên thúc thúc hay nói:
-Nặng bụng ... tay lạnh ... da sần 
-Cơ thể tích độc nên cần tiêu tai 
-Xoài sống thì cắt sợi dài 
-Trộn cùng mắm ruốc thật cay ăn dần
-Chanh tươi lát mỏng nửa phân
-Lắc đều muối ớt thêm phần dưa chua
-Sau cùng thì uống nước mưa
-Một hai ba bốn ... kìa, mùa pháo hoa!" 
+Thanh Liên Linh Bảo! 
 
-Sờ sờ Càn Khôn Quy Giáp, Lạc Vân lấy ra một quả xoài xanh, một con dao nhỏ, thuần thục mấy cái đã gọt vỏ xong. Xoài sống hãy còn xanh, cắt thành sợi dài có mùi đặc trưng, hương vị chua thanh chưa ăn đã dâng lên tận sống mũi. Mắm ruốc mùi có hơi nồng, ớt cay xé lưỡi, chấm một cái, vừa vào miệng đã cảm thấy toàn cơ thể ấm áp, mồ hôi xuất ra. 
+Lưu Ly Bảo Y, một món Thanh Liên Linh Bảo có thể giúp chuyển hoá năng lượng trong tinh huyết của Lạc Vân chuyển thành pháp lực. Chỉ cần có đủ máu cung cấp, Lưu Ly Bảo Y có thể phát ra pháp lực hạ gục được cả Linh thú. 
 
-Xoài chua chạm đầu lưỡi, tan trong miệng, lan tận đến chân răng, thấm vào trong cổ họng, lại thêm đầu lưỡi tê tê vì cay làm Lạc Vân nhăn mặt, nhưng mà cái vị chua này có tính gây nghiện cao lắm. 
+Tuy nhiên, mỗi năm tuỷ xương của Lạc Vân chỉ sinh ra được một hai giọt tinh huyết, mà hiệu suất của Lưu Ly Bảo Y rất thấp, chỉ bằng khoảng một phần nghìn năng lượng vốn có. Hơn nữa nếu pháp lực tạo ra quá lớn thì sẽ khó khống chế, thậm chí dẫn tới ngộ thương chính mình. Thanh Liên Linh Bảo có thể cho người phàm dùng được pháp lực, nhưng cũng giống như một cây côn nhị khúc, nếu múa không giỏi thì bị thương trước tiên là bản thân. Cũng may Lưu Ly Bảo Y một khi nhận máu có thể bảo trì năng lượng trong đó được ba ngày, nếu tính thời gian thì sẽ kịp Lạc Vân đến Thanh Lâm Học Viện. 
 
-Ừm, cảm giác tốt hơn nhiều. 
+Trải qua ba năm rèn luyện, Lạc Vân đã khống chế được Lưu Ly Bảo Y ở mức độ nhất định, tuy không bằng được Sư Vương lúc cùng tuổi, nhưng cũng không kém ấu thú cùng trang lứa bao nhiêu. 
 
-Xộp, xộp. 
+"Tụ Lý Càn Khôn!" 
 
-Xoài sống chấm mắm ruốc lại cắn một miếng, Lạc Vân liếc mắt nhìn sau lưng. 
+Lạc Vân hét lớn một tiếng, ống tay áo trái vung ra như cự long đánh về phía dưới mặt đất. Không dừng lại ở đó, tay phải đưa ra trước, tang cung tự xuất hiện trong bàn tay, tên đã lên dây sẵn sàng phóng đi. 
 
-Ngay cả tiểu cẩu bên đường cũng chảy nước dãi cả rồi. 
+Ầm! 
 
-Có lẽ lần sau nên ăn món khác. 
+Tay áo đánh vào mặt đất, một ngọn lửa từ tay áo phun ra. Ánh lửa lấp lánh như vàng ròng, thoạt nhìn qua giống kim loại hơn là lửa, lại toả ra mùi trầm hương thơm dịu. Nếu để ý có thể thấy trên mặt đất là một tấm hoả phù, phía trên còn có khí tức của Sư Vương. Tụ Lý Càn Khôn chỉ là cái cớ nguỵ trang cho tờ hoả phù này mà thôi. 
 
-Từ đình viện đi xuống có một con đường mòn khá dốc, len lỏi dưới tán cây mùa thu. Con đường lá vàng như một con rắn dài quấn quanh sườn núi. Cây cao đổ bóng xuống che đi ánh nắng, con đường cũng lành lạnh không khí sắp đông về. Cái bóng Lạc Vân đổ dài trên đất. 
+"Nhóc con gian xảo cũng học người ta biết nói một đằng làm một nẻo!" 
 
-Lạc Vân vừa đi vừa suy nghĩ, toàn bộ kiến thức đã học cũng đọc thầm mấy lần. 
-
-"Cha nói nhân loại có hai trường phái tu luyện chính, là Thuần Thú Sư cùng và Hoá Thú Sư, mục tiêu cuối cùng đều là Nhân - Thú hợp nhất." 
-
-"Dị thú tu luyện chín cấp độ đầu gọi là Man thú, dựa vào man lực cùng thiên phú là chính, cơ thể chưa chứa được linh khí, phải không ngừng pha loãng linh khí, biến nó thành chân khí dùng để rèn luyện cơ thể." 
-
-"Dị thú sau khi hoàn tất chín giai đoạn luyện thể Man cảnh thì sẽ tiến vào Linh cảnh bao gồm chín cấp, gọi là Linh thú có thể vận dụng Linh khí, tấn công phòng thủ đều cực kì linh hoạt." 
-
-"Aizz, nghe nói còn có Thần cảnh cửu cấp ..." 
-
-"Hung thú cấp bậc rất khó đánh giá ... thường đem cửu cấp tam cảnh gộp làm một, tổng cộng là hai mươi bảy giai ..." 
-
-"Cha dặn nếu gặp phải Man thú thì không phải sợ, nếu hung thú dưới ngũ giai thì có thể đánh, gặp trên cửu giai thì hô cứu mạng, gặp Linh thú cường đại thì phải dùng bối cảnh chống lưng." 
-
-Lạc Vân vẫn đi vừa lẩm nhẩm, xoài sống mắm ruốc trong tay vẫn còn hơn nửa. Mắm ruốc ăn nhiều nên khát nước, Lạc Vân cầm bình linh dịch tu ừng ực.  
-
-Mặt trời xuống núi. Nắng chiều đỏ rực ẩn hiện sau kẽ lá. Màn đêm từ từ buông xuống. Tiếng ễnh ương gọi bạn râm ran đâu đó. Thỉnh thoảng có cánh chim nào đó lạc bầy, ở giữa trời kéo lên một tiếng cao vút. 
-
-Lạc Vân nhìn trước ngó sau, cuối cùng chọn một gốc cây. 
-
-Thân cây to cỡ hai vòng tay người lớn, lại còn rất cao, ngước đầu lên nhìn mãi vẫn không thấy ngọn. Trên cành cây mọc ra một loại dây leo, toả ra mùi hương dịu nhẹ, thuần khiết. 
-
-Lạc Vân cười hì hì, gõ gõ lên gốc cây, ánh mắt dần sáng lên. 
-
-"Phía trên có Thanh Hương Đằng. Đúng là chỗ này rồi ..." 
-
-Cảm thấy trước sau không có người, Lạc Vân từ trong Càn Khôn Quy Giáp lấy ra đủ loại vật dụng. Một xấp giấy dó thật dày. Một thùng nước. Một bộ quần áo mới. 
-
-Giấy dó ghi đầy phù chú, phiêu phiêu mà động, biến thành một túp lều. 
-
-Xoa xoa cái bụng tròn, Lạc Vân bắt đầu cởi y phục. Ngâm thân người vào thùng nước, Lạc Vân cảm thấy toàn thân thoải mái, mệt nhọc đi đường dần dần biến mất. Quần áo mới mặc vào, Lạc Vân dụi dụi hai mắt. Cõ lẽ ăn nhiều quá, hiện tại muốn ngủ. 
-
-Dùng hết sức bình sinh, Lạc Vân đem thùng nước ném lên trời, cười thích chí nhìn nước văng tung toé. 
-
-"Hiện tại ngủ một chút, ngày mai xem có thu hoạch gì hay không ..." 
-
-Ngọn đèn dầu bên trong túp lều tắt đi. Túp lều giấy lập tức biến mất giữa màn đêm, không tra ra một dấu vết. 
-
-Đêm càng về khuya, một bóng đen lặng im xuất hiện, tiềm nhập vào lòng đất. Trong lều Lạc Vân, bóng đen kia hiện ra, cản cả ánh trăng, phủ xuống thân hình tiểu hài tử vẫn còn đang ngủ. 
-
-Hàng trăm đạo phù chú gia trì trên lều giấy không chút tác dụng. 
-
-Bóng đen kia đưa tay lên, Lạc Vân trong cơn mơ màng giường như có cảm giác, vô thức ôm lấy, xoay xoay người, giấc ngủ càng sâu. 
-
-Bóng đen tức giận, cánh tay muốn rút ra, nhưng Lưu Ly Bảo Y dường như có cảm ứng, đột nhiên loé sáng, hắn đành bất đắc dĩ để yên. 
-
-Bàn tay còn lại xẹt qua, lưu lại trên cổ tay Lạc Vân một vết máu mảnh như sợi tơ. Trên người Lạc Vân đột nhiên đại phát một trận kim quang, thanh âm long ngâm lôi minh đánh thẳng vào thần hồn, một tiếng đau đớn bị bóng đen kia nuốt vào trong cổ họng. 
-
-Ba giọt máu đỏ tươi từ cổ tay Lạc Vân rỉ ra, thơm ngào ngạt, bị bóng đen thu vào. 
-
-Bóng đen lảo đảo không đủ sức đứng thẳng, thân hình chật vật nhập vào lòng đất, nhưng trước khi đi cũng không quên phất tay một cái, theo đó Khổng Tước Bình An Phù, Càn Khôn Quy Giáp, Phù Vân Ngoa cũng bị hắn thu vào. 
-
-Máu trên cổ tay vẫn từ từ chảy ra, thấm vào đệm giường, nhuộm nó thành một màu huyết hồng yêu dã. 
-
-Lạc Vân dường như không có cảm giác, trong giấc ngủ say trở mình, hai cánh tay ôm lấy thân, rúc mình lại như một cục bột nhỏ, tiếng thở đều đều truyền ra rồi chìm vào màn đêm lặng lẽ. 
-
-Đệm giường không thể thấm được nữa, máu rỉ ra, thấm vào lều giấy. Lều giấy thấm máu lập tức tan rã, toàn bộ vật dụng tiện nghi bên trong cũng biến mất. 
-
-Lạc Vân co thành một đoàn, giữa đêm thu, lá vàng rụng xuống phủ lên thân hình bé nhỏ.
-
-Không hề tỉnh lại.  
-
-Trong Cửu Cung Lâu, Cự Viên đang ngủ đột nhiên mở mắt. Hai mắt biến thành hai quả cầu lửa, con ngươi lấp lánh kim quang, không giận mà uy, nhìn về phía bắc. 
-
-Hắn nhấc mình muốn hoả độn, nhưng lại kinh hãi phát hiện một đạo uy áp kinh người khoá chặt hắn, toàn thân pháp lực bị phong bế bên trong cơ thể, không thể động mảy may. Hắn chỉ có thể bất đắc dĩ phun ra một câu:
-
-"Thái Sơn cao cũng che không được tuyết dày ..." 
-
-Trong rừng nguyên thuỷ, Dong lão thở dài, mấy sợi râu dung đưa: 
-
-"Lại một năm ... không biết năm nay sẽ ra sao?" 
-
-Pháp lực của Dong lão cũng bị phong bế, nhưng ánh mắt dong lão xuyên qua tầng tầng lớp lớp cây rừng rậm rạp, thấy được những chuyển động nhỏ bé nhất bên trong Cổ Lâm. 
-
-"Trước mặt Thanh Lâm ... tất cả đều là hài tử như nhau ... nào có phân sang quý bần hèn ... nào có kể thiên phú cao thấp ... cho dù có pháp thuật hay không ... chỉ cần có thể đến Thanh Lâm ... chỉ cần có thể đến Thanh Lâm ..." 
-
-Ô Lão Quy giật mình nửa đêm, phát hiện Huyền Xà đã buông mình ra từ khi nào, thở phào nhẹ nhõm. Ánh mắt hắn xuyên qua hải dương đen kịt, nhìn lên bầu trời, lắc đầu, nhìn vào mặt đất, cũng lắc đầu:
-
-"Thanh Lâm đại trận vậy mà khởi động rồi."
-
-"Không phải trên kia ..." 
-
-"Cũng không phải dưới này ..."
-
-"Rốt cuộc là kẻ nào kích thích?" 
-
-Toàn bộ sinh vật sống trong trong Cổ Lâm, bao quát cả dị thú và hung thú, ngay cả một tia pháp lực cũng không thể động. 
-
-Dị thú đều biết, Thanh Lâm đại trận khởi động rồi. 
-
-Thanh Lâm đại trận là cái gì, dị thú đều không biết rõ chi tiết, chỉ biết là một toà cổ trận nằm trong Thanh Lâm Học Viện, thi thoảng sẽ tự hành mà phát động, mà mỗi lần phát động lại có hiệu quả khác nhau, tỉ như lần này là cấm pháp. 
-
-Mỗi khi Thanh Lâm đại trận mở ra, hoặc là có đại nguy cơ, hoặc là đại cơ duyên xuất hiện. 
-
-Đình viện đêm khuya vẫn còn sáng đèn. Sư Vương không ngủ. Trên bàn của hắn bày một tờ bản đồ trải rộng, theo địa thế tựa hồ là bản đồ sơ lược của Mê Vụ Cổ Lâm. 
-
-Trên tờ bản đồ, bảy kiện đồ vật được đặt rải rác. Mà đúng lúc đó, kiện thứ nhất trong bảy kiện, một đoạn thanh đằng bắt đầu sáng lên. 

@@ -228,7 +228,7 @@ Cười ngây ngô, tiểu hài tử bỏ qua hết thảy, ngón tay nhỏ ch�
 
 Tiểu Lạc Vân, mãi cho tới sau này, cũng không biết được, có một Sư Vương ôm miệng vết thương, lặng lẽ băng rừng đi tìm cành cây non nhất, tỉ mỉ dùng móng của mình khắc suốt một đêm. 
 
-Có lẽ một ngày nào đó của rất rất nhiều năm sau, tiểu Lạc Vân đã lớn, cũng không cần dùng đến vũ khí nữa, tình cờ lục lọi hòm đồ cũ, phát hiện một cây tang cung, bó bồng tiễn đã hết từ lúc nào. Trên thân cung có mùi thoang thoảng, tựa như là mùi sữa lúc nhỏ. 
+Có lẽ một ngày nào đó của rất rất nhiều năm sau, tiểu Lạc Vân đã lớn, cũng không cần dùng đến vũ khí nữa, tình cờ lục lọi hòm đồ cũ, phát hiện một cây tang mộc cung, bó bồng tiễn đã hết từ lúc nào. Trên thân cung có mùi thoang thoảng, tựa như là mùi sữa lúc nhỏ. 
 
 “Lúc đó chọn cái này, chắc là do có mùi sữa đi … nghĩ lại lúc đó thật ngốc, lỗ to, lỗ to!” 
 
