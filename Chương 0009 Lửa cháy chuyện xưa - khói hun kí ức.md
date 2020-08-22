@@ -184,14 +184,16 @@ Lạc Vân vung tay áo qua mặt, lấy từ Càn Khôn Quy Giáp ở bên hôn
 
 "Lạc Vân ta không phải là nhu nhược ... chỉ là ... ta học nghệ chưa tinh, Cửu Diệt Tiễn một khi bắn ra đều phải lấy mạng ... Bạch Linh Nhi ngươi dám mưu tính làm nhục cha ta ..." 
 
-Cánh tay phất lên, Lạc Vân lẩm nhẩm đọc chú, Lưu Ly Bảo Y phát ra bạch quang, linh khí do Bạch Linh Nhi phân giải ra đều bị nó thu lại. 
+Cánh tay phất lên, Lạc Vân lẩm nhẩm đọc chú, giọt máu bên trong cánh tay áo sáng lên, làm Lưu Ly Bảo Y phát ra huyết quang. Mỗi lần vung tay lên, cánh tay áo tự tạo thành phù văn, thu lấy linh khí xung quanh, một ít giấy vụn ẩn nấp dưới nền đất đều bị nó thu lấy, chấn nát, hoặc là biến thành một đám linh khí, hoặc rơi xuống đất thành bụi. 
 
 "Không phải ta cái gì cũng không biết ... chỉ là ... ta càng muốn sống vui vẻ, ăn thì hết đói, uống thì hết khát, mùa xuân ngắm hoa, mùa hạ ăn quả, mùa thu thả diều, mùa đông ngủ nướng ..." 
+
+Lưu Ly Bảo Y một lần nữa trở về trạng thái bình thường, giọt máu kia trở về cơ thể Lạc Vân, vết thương lành lại, chỉ là trong máu còn có thêm một chút phù văn kì dị. 
 
 Thì thầm một mình, Lạc Vân đập mạnh lá phù vào giữa trán. Vong Trần Độc phong ấn bên trong trực tiếp chui vào trí óc. Lạc Vân đứng đó ngẩn người. 
 
 Một lúc sau, Lạc Vân đột nhiên cử động, nhìn trước ngó sau, hô to mấy tiếng:
 
-"Viên thúc thúc chơi xấu, Vân nhi không chơi nữa, không chơi nữa!" 
+"Bạch Linh Nhi ngươi chơi xấu, có giỏi thì đuổi theo nha!" 
 
 Vừa nói xong đã dùng Ngự Lôi Bộ Pháp, Du Vân Ngoa loé lên, thân hình lướt trên mặt đất phóng đi mất hút. 
