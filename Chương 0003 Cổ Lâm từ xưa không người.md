@@ -342,7 +342,7 @@ Vô số làn khói từ đâu xuất hiện, hướng theo Phật quang mà t�
 
 Cự Viên nâng hai tay, thủ quyết vừa động, đột nhiên ngừng hẳn. Mà Ô Lão Quy một mực bàng quang xem kịch, cũng nhướng mày, ngăn chặn Cự Viên thi pháp. 
 
-Hắn một mực quan sát. Hắn sống lâu hơn, ánh mắt có phần tinh hơn một chút, cũng bình tĩnh hơn Sư Vương. Cơ thể tiểu hài tử chưa hề lạnh, thậm chí sắc mặt cũng chưa hề trắng, chỉ là huyết mạch bị huỷ, hồn bị đánh rời khỏi xác mà thôi. 
+Hắn một mực quan sát. Hắn sống lâu hơn, ánh mắt có phần tinh hơn một chút, cũng bình tĩnh hơn Sư Vương. Cơ thể tiểu hài tử chưa hề lạnh, thậm chí sắc mặt cũng chưa hề trắng, chỉ là huyết mạch bị huỷ, hồn bị đánh rời khỏi xác nhưng tuỷ xương vẫn còn sống. Chỉ cần tuỷ xương còn sống, huyết mạch sẽ tiếp tục được sinh ra.  
 
 Cự Viên cùng Dong lão hẳn đã nhìn ra. Mà Sư Vương một mực chữa ngựa sống thành ngựa chết. 
 
