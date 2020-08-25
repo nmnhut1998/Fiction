@@ -183,21 +183,21 @@ Kiếp phong, mê vụ tựa như những con độc trùng, xoáy vào thất k
 Khắp người Lạc Vân, kim lôi nổ vang, từng tiếng sư ngâm vang dội, không khí ngập mùi lôi phạt. Khí linh lôi sư từ Tang Cung bay ra, đứng thủ trên ngực, miệng ngập một tiểu ấn điêu khắc cửu long tranh châu, phát ra tiếng chú ngữ trầm trầm: 
 
 "Lấy danh của ta, Chưởng Ấn chi giả, 
-Lạc Vân ngây thơ chân chất, một lòng cầu đạo, không có dị tâm. Xưa vì tham lam tài phú, làm nhân loại vô tội rơi vào Cổ Lâm, nay nguyện tổn âm đức hao dương thọ, khẩn cầu Chưởng Phạt chi giả tỉnh giấc suy xét!" 
+Lạc Vân ngây thơ chân chất, một lòng cầu đạo, không có dị tâm. Xưa vì ta tham lam tài phú, làm nhân loại vô tội rơi vào Cổ Lâm, nay nguyện tổn âm đức hao dương thọ, khẩn cầu Chưởng Phạt chi chủ tỉnh giấc suy xét!" 
 
 Tiếp theo đó, Khổng Tước Bình An Phù cũng loé sáng, hư ảnh Cự Viên mặc nho bào xuất hiện, trên tay cầm một quyển kinh thư:
 
 "Lấy danh của ta, Chưởng Thư chi giả, 
-Lạc Vân ngây thơ chân chất, một lòng cầu đạo, không có dị tâm. Xưa vì tham lam tài phú, làm nhân loại vô tội rơi vào Cổ Lâm, nay nguyện tổn âm đức hao dương thọ, khẩn cầu Chưởng Phạt chi giả tỉnh giấc suy xét!" 
+Lạc Vân ngây thơ chân chất, một lòng cầu đạo, không có dị tâm. Xưa vì ta tham lam tài phú, làm nhân loại vô tội rơi vào Cổ Lâm, nay nguyện tổn âm đức hao dương thọ, khẩn cầu Chưởng Phạt chi chủ tỉnh giấc suy xét!" 
 
 Theo sau Cự Viên, hư ảnh Huyền Quy cũng xuất hiện bên cạnh Càn Khôn Quy Giáp, lưng đội một tấm bia lớn: 
 "Lấy danh của ta, Chưởng Bi chi giả, 
-Lạc Vân ngây thơ chân chất, một lòng cầu đạo, không có dị tâm. Xưa vì tham lam tài phú, làm nhân loại vô tội rơi vào Cổ Lâm, nay nguyện tổn âm đức hao dương thọ, khẩn cầu Chưởng Phạt chi giả tỉnh giấc suy xét!" 
+Lạc Vân ngây thơ chân chất, một lòng cầu đạo, không có dị tâm. Xưa vì ta tham lam tài phú, làm nhân loại vô tội rơi vào Cổ Lâm, nay nguyện tổn âm đức hao dương thọ, khẩn cầu Chưởng Phạt chi chủ tỉnh giấc suy xét!" 
 
 Cỏ cây lay động, Dong lão không hiện hư ảnh, mà tiếng lại truyền khắp Cổ Lâm: 
 
 "Lấy danh của ta, Chưởng Lâm chi giả, 
-Tên viết Lạc Vân, tuy dòng dõi loài người, lại từ trứng sinh ra. Siêng năng hiếu thảo, luôn làm điều thiện, cống hiến vô số. Chưởng Phạt chi giả, tỉnh giấc lắng nghe!" 
+Tên viết Lạc Vân, dòng dõi loài người lại từ trứng sinh ra. Siêng năng hiếu thảo, luôn làm điều thiện, cống hiến vô số. Chưởng Phạt chi chủ, tỉnh giấc lắng nghe vạn tộc dâng tấu!" 
 
 Theo tiếng của Dong lão, trên người của Lạc Vân phát ra vô số hào quang. Đó là một vết hôn trên trán, một vòng tay chặt quanh người, một cái xoa đầu trìu mến ... Tất cả tưởng chừng như vô hình, hiện tại đều xuất hiện, đồng loạt phát ra chú ngữ: 
 
@@ -209,13 +209,12 @@ Theo tiếng của Dong lão, trên người của Lạc Vân phát ra vô số 
 
 "Lấy danh tộc ta, Kiếm Sư Hổ ..." 
 
+"Lấy danh tộc ta, Độc Giác Thiên Mã ..." 
+
 "Lấy danh tộc ta, Tam Mệnh Hoả Hồ ..." 
 
 "..." 
 
 Sau khi báo danh, tiếng chú ngữ hợp lại thành một: 
 
-"Cực Dương Đạo Thể, Vô Cấu Chi Thân, Đại Đạo Vô Ngân, 
-Đứa nhỏ này đau khổ cầu sinh, nguyện bỏ qua tiền đồ vô lượng, thiên phú vô song, chỉ cầu phụ thân khoẻ mạnh, cầu cuộc sống phàm trần. 
-Hai mươi ngày tuổi, ngộ lôi chi đạo, biết dùng cung tiễn. Chín phần huyết mạch hoá lôi tiễn, một bắn ra vạn thú kinh, phá diệt hung loạn. Trích máu luyện đan, trăm ấu thú vì đó mà được phúc.
-Mở ra bãi săn, 
+"Trời có đức hiếu sinh. Lạc Vân ngoan ngoãn hiếu thảo, thông minh lanh lợi, bản tính thiện lương, trăm nhà đều khen, vạn tộc đều mến; nhưng số mệnh long đong, đau khổ cầu sinh, bi đát vô cùng. Toàn bộ tộc ta nguyện tổn ba năm dương thọ, khẩn xin Chưởng Phạt chi chủ thu hồi Thiên phạt; Toàn bộ tộc ta nguyện tổn ba phần âm đức, khẩn cầu Chưởng Phạt chi chủ ban cho linh căn, giải trừ khổ mệnh ..." 

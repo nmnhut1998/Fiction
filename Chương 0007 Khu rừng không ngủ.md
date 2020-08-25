@@ -48,7 +48,7 @@ Ngón tay của Sư Vương đã ướt nhẹp rồi, nhưng hắn không thể 
 
 Bình sữa ở một góc trên bàn đã cạn rồi, phía trên vẫn có chút hơi ấm và hương vị đặc thù, thậm chí có thể thấy rõ dấu tay của tiểu hài tử dính dầy nước in trên đó. 
 
-Trên bàn vẫn, một tờ giấy trắng đầy những nét vẽ lộn xộn, xoay ngang xoay dọc đều không thể nhìn ra hình thù gì. 
+Trên bàn vẫn, một tờ giấy trắng đầy những nét vẽ lộn xộn, xoay ngang xoay dọc đều không thể nhìn ra hình thù gì. Nhưng hình vẽ không hình thù này lại truyền ra từng tiếng sư ngâm, chấn nhiếp vô số hung thú lởn vởn ngoài kia. Đây là bất tượng tồn ý, lấy được ý cảnh của Sư Vương vào trong tranh. 
 
 Sư Vương dựa lưng vào nôi, khoé miệng nhếch lên một nụ cười tươi như hoa vô cùng hiếm thấy. 
 
