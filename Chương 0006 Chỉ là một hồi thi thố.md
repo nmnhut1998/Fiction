@@ -443,7 +443,7 @@ Trên tay Cự Viên cầm đóa hỏa liên, hứng thú nhìn tiểu Lạc Vâ
 Sư Vương nhíu mày, đem ngọc bình trả lại: 
 
 “Công khai thu thập thú huyết, sẽ dẫn tới quần thú công phẫn.” 
-
-“Hừ, đằng nào cũng chảy máu xuống, ta đi nhặt mà thôi, bọn chúng không dám có ý kiến! Đừng có nói rằng ngươi không cần!” 
+ 
+"Ta cảm nhận được, phàm là đối phó hung thú, tiểu Lạc Vân có thể thẳng tay, còn nếu không, dám tuỳ tiện vận dụng huyết mạch chi lực tất sẽ dẫn tới thiên kiếp. Hơn nữa, tiêu hao huyết mạch chi lực thì không thể bổ sung. Còn vạn thú huyết này ... Hừ, đằng nào cũng chảy máu xuống, ta đi nhặt mà thôi, bọn chúng không dám có ý kiến! Đừng có nói rằng ngươi không cần!!" 
 
 Hung thú chi tinh đầy trên mặt đất cũng loé lên một chút rồi biến mất, không còn một viên. 

@@ -86,7 +86,7 @@ Có phức tạp, ưu thương, do dự cùng tự trách.
 
 Dong lão nhìn trời, thở dài: 
 
-“Cổ Lâm từ xưa không người ...” 
+“Cổ Lâm từ xưa không người ... Cho dù không phải người, Cổ Lâm cũng không dung Lạc Vân.” 
 
 Sư Vương cũng ngửa đầu nhìn trời, con mắt như có sương khói mênh mông, nhìn thấu trên tầng trời xa xăm. 
 

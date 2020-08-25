@@ -154,46 +154,68 @@ Nghĩ tới đây, trên bản thể Bạch Linh Nhi đột nhiên vẽ thêm ha
 
 "Cổ Lâm nhiều mẫu thú thần tượng Sư Vương như vậy, nhất định sẽ bán rất chạy ... vừa nghĩ tới cả người đều hưng phấn!"
 
-"Aaaa, một cảm giác thật dễ chịu!" 
+Đột nhiên, có một âm thanh chen ngang: 
 
-Đột nhiên, Bạch Linh Nhi cảm thấy "rợn sống lưng". Mặt đất từ từ sáng lên, đạo đạo lôi điện xuất hiện, kết nối với nhau thành một tấm lưới khổng lồ ...
+"Hưng phấn lắm sao?" 
 
-"Dễ chịu sao? Thái Thanh Lôi Diệt Võng!" 
+"Dĩ nhiên! Từ cổ chí kim, chuyện thâm cung bí sử ... oà ích ..." 
 
-Năm chữ Thái Thanh Lôi Diệt Võng này vang lên, lôi võng thu vào, bám trên cột gỗ. Bạch Linh Nhi bị lôi võng trói gô, hoảng sợ nhìn Lạc Vân vốn bị mình phá tâm cảnh.
+Cơ thể cứng ngắc, Bạch Linh Nhi không thể nói chuyện được nữa. Một cái lưới nhện không biết từ lúc nào đã dính chặt trên bản thể, lôi điện chi lực từ trên lưới truyền vào, làm tê liệt toàn bộ cơ thể, ngay cả thần thức cũng không thể vận dụng linh hoạt. Một chữ "Lôi" viết bằng máu thật lớn chiếm giữ vị trí trung tâm, phát ra tiếng sấm gầm trầm thấp. Chữ Lôi, ghi âm không ghi ý, ba nét liền nhau một nét rời, lại chứa đựng năng lượng cực lớn; tiếng sấm gầm nó phát ra kéo theo hàng chục đạo lôi điện từ không khí xuất hiện, đánh vào người Bạch Linh Nhi. 
 
-Hai mắt Lạc Vân phát ra ánh sáng xanh vô tận tựa như hải dương, lại chằng chịt tơ máu. Lôi cung trên lưng đã biến mất, Lưu Ly Bảo Y cũng ảm đảm vô quang, nhưng mà Lạc Vân hiện tại dường như không cần thứ này! 
+"Cha của ta ...  không ai được phép khinh nhờn!" 
 
-Chỉ thấy Lạc Vân kéo Tang Cung, cả người không có chân khí gì nhưng lại xuất hiện một luồng dao động vô hình, lấy Lạc Vân làm trung tâm quét ra ngoài. 
+Lạc Vân không biết từ khi nào đã đứng thẳng người, người để trần, Lưu Ly Bảo Y không còn, hai mắt phát ra lam quang, sáng như đèn lồng, Tang Cung kéo căng, nhắm thẳng. 
 
-"Lạc Vân ngươi điên rồi sao?" 
+"Lôi! Diệt!"
 
-"Diệt!" 
+Âm thanh không lớn, nhưng lọt vào tai Bạch Linh Nhi, đó chính là âm thanh ngày tận thế. Một chữ diệt xuất hiện, lôi quang toàn bộ vụt tắt. Không có tiếng động, Bạch Linh Nhi tan rã thành một nhúm giấy vụn, toàn bộ linh tính mất đi, nằm yên trên mặt đất. Sau đó, lấy Bạch Linh Nhi làm trung tâm, trong vòng mười trượng, lá khô nát bấy, cây cỏ vỡ tung. Sau đó, mặt đất lún xuống. Một trượng ... hai trượng ... năm trượng ... mười trượng ... 
 
-Nhưng mà Lạc Vân không trả lời, chỉ lạnh lùng nói một chữ "Diệt, thả cung. Tang Cung không có tên, nhưng từ cơ thể phát ra tiếng sư ngâm vang dội. Chẳng có linh quang, chẳng có lôi điện, Bạch Linh Nhi hét thảm, bản thể nổ tung thành cơn mưa giấy đầy trời. 
+Toàn bộ vật chất trong bán kính mười trượng, cho dù là dưới đất hay trên trời, tất cả đều diệt tuyệt, tan biến. 
 
-"Diệt!" 
+Hai mắt lam quang vụt tắt, Lạc Vân ngã xuống đất, cả người không còn sức lực. Tuyệt Diệt Lôi Tiễn, phối hợp huyết mạch của Sư Vương và Cực Dương Đạo Thể, là đòn sát thương mạnh mẽ duy nhất của Lạc Vân, một khi xuất ra vạn vật trong vòng mười trượng đều tan rã. 
 
-Lại một tiếng sư ngâm, trăm ngàn mảnh giấy vụn lại nổ tung, biến thành một đám bụi giấy nhỏ li ti. 
+Gió nổi lên, xoáy vào người hắn, lạnh buốt thấu xương. Mê vụ cuồn cuộn, rít gào như long xà. Lạc Vân sử dụng huyết mạch chi lực quá độ, khí tức tiết ra ngoài bị Cổ Lâm cảm ứng. 
 
-Một tiếng "diệt" vang lên, bụi giấy bị phân rã thành một đánh linh khí, tiêu tán trong trời đất. 
+Dong lão từng nói Cổ Lâm từ xưa không người. Phàm là con người tiến vào Cổ Lâm, kết quả cuối cùng đều là một đám xương trắng. Hơn nữa, Cổ Lâm càng không dung Lạc Vân. Huyết mạch của Lạc Vân, cho dù là Cực Dương Đạo Thể hay không, đều bị pháp tắc Cổ Lâm dốc sức tận diệt.
 
-Lạc Vân vung tay áo qua mặt, lấy từ Càn Khôn Quy Giáp ở bên hông ra một lá phù. Phù này bện từ một sợi tơ màu bạch kim, phát ra mùi độc dược rõ rệt. 
+Kiếp phong, mê vụ tựa như những con độc trùng, xoáy vào thất khiếu của Lạc Vân. Nhưng chúng không thể tiến vào. 
 
-"Bạch Linh Nhi, ngươi không hiểu ..."
+Khắp người Lạc Vân, kim lôi nổ vang, từng tiếng sư ngâm vang dội, không khí ngập mùi lôi phạt. Khí linh lôi sư từ Tang Cung bay ra, đứng thủ trên ngực, miệng ngập một tiểu ấn điêu khắc cửu long tranh châu, phát ra tiếng chú ngữ trầm trầm: 
 
-"Lạc Vân ta không phải là nhu nhược ... chỉ là ... ta học nghệ chưa tinh, Cửu Diệt Tiễn một khi bắn ra đều phải lấy mạng ... Bạch Linh Nhi ngươi dám mưu tính làm nhục cha ta ..." 
+"Lấy danh của ta, Chưởng Ấn chi giả, 
+Lạc Vân ngây thơ chân chất, một lòng cầu đạo, không có dị tâm. Xưa vì tham lam tài phú, làm nhân loại vô tội rơi vào Cổ Lâm, nay nguyện tổn âm đức hao dương thọ, khẩn cầu Chưởng Phạt chi giả tỉnh giấc suy xét!" 
 
-Cánh tay phất lên, Lạc Vân lẩm nhẩm đọc chú, giọt máu bên trong cánh tay áo sáng lên, làm Lưu Ly Bảo Y phát ra huyết quang. Mỗi lần vung tay lên, cánh tay áo tự tạo thành phù văn, thu lấy linh khí xung quanh, một ít giấy vụn ẩn nấp dưới nền đất đều bị nó thu lấy, chấn nát, hoặc là biến thành một đám linh khí, hoặc rơi xuống đất thành bụi. 
+Tiếp theo đó, Khổng Tước Bình An Phù cũng loé sáng, hư ảnh Cự Viên mặc nho bào xuất hiện, trên tay cầm một quyển kinh thư:
 
-"Không phải ta cái gì cũng không biết ... chỉ là ... ta càng muốn sống vui vẻ, ăn thì hết đói, uống thì hết khát, mùa xuân ngắm hoa, mùa hạ ăn quả, mùa thu thả diều, mùa đông ngủ nướng ..." 
+"Lấy danh của ta, Chưởng Thư chi giả, 
+Lạc Vân ngây thơ chân chất, một lòng cầu đạo, không có dị tâm. Xưa vì tham lam tài phú, làm nhân loại vô tội rơi vào Cổ Lâm, nay nguyện tổn âm đức hao dương thọ, khẩn cầu Chưởng Phạt chi giả tỉnh giấc suy xét!" 
 
-Lưu Ly Bảo Y một lần nữa trở về trạng thái bình thường, giọt máu kia trở về cơ thể Lạc Vân, vết thương lành lại, chỉ là trong máu còn có thêm một chút phù văn kì dị. 
+Theo sau Cự Viên, hư ảnh Huyền Quy cũng xuất hiện bên cạnh Càn Khôn Quy Giáp, lưng đội một tấm bia lớn: 
+"Lấy danh của ta, Chưởng Bi chi giả, 
+Lạc Vân ngây thơ chân chất, một lòng cầu đạo, không có dị tâm. Xưa vì tham lam tài phú, làm nhân loại vô tội rơi vào Cổ Lâm, nay nguyện tổn âm đức hao dương thọ, khẩn cầu Chưởng Phạt chi giả tỉnh giấc suy xét!" 
 
-Thì thầm một mình, Lạc Vân đập mạnh lá phù vào giữa trán. Vong Trần Độc phong ấn bên trong trực tiếp chui vào trí óc. Lạc Vân đứng đó ngẩn người. 
+Cỏ cây lay động, Dong lão không hiện hư ảnh, mà tiếng lại truyền khắp Cổ Lâm: 
 
-Một lúc sau, Lạc Vân đột nhiên cử động, nhìn trước ngó sau, hô to mấy tiếng:
+"Lấy danh của ta, Chưởng Lâm chi giả, 
+Tên viết Lạc Vân, tuy dòng dõi loài người, lại từ trứng sinh ra. Siêng năng hiếu thảo, luôn làm điều thiện, cống hiến vô số. Chưởng Phạt chi giả, tỉnh giấc lắng nghe!" 
 
-"Bạch Linh Nhi ngươi chơi xấu, có giỏi thì đuổi theo nha!" 
+Theo tiếng của Dong lão, trên người của Lạc Vân phát ra vô số hào quang. Đó là một vết hôn trên trán, một vòng tay chặt quanh người, một cái xoa đầu trìu mến ... Tất cả tưởng chừng như vô hình, hiện tại đều xuất hiện, đồng loạt phát ra chú ngữ: 
 
-Vừa nói xong đã dùng Ngự Lôi Bộ Pháp, Du Vân Ngoa loé lên, thân hình lướt trên mặt đất phóng đi mất hút. 
+"Lấy danh tộc ta, Ngũ Sắc Khổng Tước ..." 
+
+"Lấy danh tộc ta, Lưu Ly Tri Chu ..."
+
+"Lấy danh tộc ta, Bàn Sơn Bạch Tượng ..." 
+
+"Lấy danh tộc ta, Kiếm Sư Hổ ..." 
+
+"Lấy danh tộc ta, Tam Mệnh Hoả Hồ ..." 
+
+"..." 
+
+Sau khi báo danh, tiếng chú ngữ hợp lại thành một: 
+
+"Cực Dương Đạo Thể, Vô Cấu Chi Thân, Đại Đạo Vô Ngân, 
+Đứa nhỏ này đau khổ cầu sinh, nguyện bỏ qua tiền đồ vô lượng, thiên phú vô song, chỉ cầu phụ thân khoẻ mạnh, cầu cuộc sống phàm trần. 
+Hai mươi ngày tuổi, ngộ lôi chi đạo, biết dùng cung tiễn. Chín phần huyết mạch hoá lôi tiễn, một bắn ra vạn thú kinh, phá diệt hung loạn. Trích máu luyện đan, trăm ấu thú vì đó mà được phúc.
+Mở ra bãi săn, 
