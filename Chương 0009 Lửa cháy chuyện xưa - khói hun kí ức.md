@@ -239,3 +239,33 @@ Hành động của Lạc Vân hoàn toàn xuất phát từ bản năng thuần
 
 Tây Phương Chi Linh mắt xanh bùng lên sáng rực, gật đầu một cái. 
 
+Trong ngàn vạn cột sáng, không chỉ có cỏ cây hoa lá, còn có những tiếng thì thầm. Đó là tiếng nói nội tâm, là tiếng lòng của dị thú. 
+
+"Hết rồi! Được sống rồi! Bầy hung tránh lui!  ... mũi tên kia là ai bắn ... tiểu Lạc Vân? Quả nhiên ..." 
+
+"Phá Chướng Đan này là từ tiểu Lạc Vân? Tiểu hài tử trắng trắng mềm mềm dễ thương như vậy ..." 
+
+"Mặc dù tiểu Lạc Vân nhìn thực sự đáng ghét, nhưng mà mình sống được đều nhờ nó ..." 
+
+"Tiểu hài tử còn nhỏ như vậy mà trích máu luyện đan cũng không nhíu mày ... hôm qua ta thấy nó nhìn Sư Vương rụng tóc, lén lén khóc lại lau đi ..." 
+
+"Ngươi không được lừa gạt tiểu Lạc Vân như vậy ... nó còn là hài tử ... nhưng mà tựa như nó cũng biết mình bị gạt, lại cố tình không phanh phui?" 
+
+"Lâu ngày không gặp, không biết tiểu Lạc Vân và Sư Vương thế nào rồi ... aizz, Sư Vương cũng thật là chấp nhất" 
+
+"Hôm qua tìm Lạc Vân đi săn thật là vui ... không biết hắn học bắn cung như thế nào, thật là giỏi ..." 
+
+"Bắn cung chỉ là tài lẻ thôi, tiểu Lạc Vân giỏi nhất là cầm ca, thư hoạ! Nghe nói có thể làm cho tâm linh thông suốt, thậm chí cơ duyên còn có thể ngộ đạo!" 
+
+"Lạc Vân vì mình vẽ xướng khúc Vân Du, giúp mình vượt qua thập niên chi kiếp ... ngược lại nó lại hôn mê mấy ngày ... thật là có lỗi ..." 
+
+"Aizz, trăm năm trong cõi người ta, chữ tài chữ mệnh khéo là ghét nhau. Thiên phú như thế, mệnh lại như thế ...
+
+Đó là âm thanh của thế hệ dị thú trẻ tuổi, lại có tiếng dị thú già dặn, trầm ổn:
+
+"Uhmm ... ah ... bà bà hôn một cái ... chúc cho tiểu Lạc Vân một đời bình an" 
+
+"Lại đây cho ca ca ôm một cái, ca ca chính là đệ nhất thuỵ thú, nhất định tiểu Lạc Vân sẽ được dính lây phúc lành!" 
+
+"Trồng linh mễ, tưới bằng Thánh Nguyên Kim Du, hi vọng tiểu Lạc Vân không phát hiện ... cái đứa nhỏ cứng đầu vậy mà nhịn ăn một tuần liền ..." 
+
