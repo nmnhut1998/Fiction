@@ -96,7 +96,7 @@ Nhưng mà từ đó, khai mở huyền cơ, mở ra đường mới, tu đạo 
 
 Từ đó, Cửu Long Bảo Điển, Huyền Quy Chân Kinh, Kỳ Lân Tri Mệnh Pháp, Phượng Hoàng Niết Bàn Kinh, tất cả công pháp sinh ra Hỗn Độn Linh Khí đều bị cướp, bị trộm, cường giả bốn tộc tử thương vô số. Nhưng không có tổ tiên ban phúc, không có huyết mạch tinh khiết, không thể luyện thành. 
 
-Dần dà, thế gian biết đường này không được. Liền có ma tu dẫn đầu, mở con đường mới, tự luyện thân mình biến thành hỗn độn, huyết mạch, máu thịt, xương cốt biến thành dịch thể. Dịch này tựa như kim du, thánh khiết vô cùng, gần với Vô Cấu, xưng là Thánh Nguyên Kim Du. Mỗi một giọt dịch, mất một khúc xương, thọ nguyên suy giảm, đau đớn vô cùng. Dùng Kim Du làm mồi câu, trải qua ngàn năm, thành công dẫn dụ được Cực Dương Đạo Thể, hao tổn trăm năm nuôi nhốt thuần hoá, cuối cùng thành công thôn phệ, bạch nhật phi thăng. 
+Dần dà, thế gian biết đường này không được. Liền có ma tu dẫn đầu, mở con đường mới, tự luyện thân mình biến thành hỗn độn, huyết mạch, máu thịt, xương cốt biến thành một loại linh dịch. Dịch này tựa như kim du, thánh khiết vô cùng, gần với Vô Cấu, xưng là Thánh Nguyên Kim Du. Mỗi một giọt dịch, mất một khúc xương, thọ nguyên suy giảm, đau đớn vô cùng. Dùng Kim Du làm mồi câu, trải qua ngàn năm, thành công dẫn dụ được Cực Dương Đạo Thể, hao tổn trăm năm nuôi nhốt thuần hoá, cuối cùng thành công thôn phệ, bạch nhật phi thăng. 
 
 Pháp này tàn nhẫn bản thân mà không hại thiên địa, dù hi sinh ngàn năm thọ nguyên, nhưng chỉ cần thôn phệ được Vô Cấu Chi Thân mọi thứ đều đáng giá. 
 
@@ -180,92 +180,108 @@ Lạc Vân không biết từ khi nào đã đứng thẳng người, người �
 
 Toàn bộ vật chất trong bán kính mười trượng, cho dù là dưới đất hay trên trời, tất cả đều diệt tuyệt, tan biến. Tuyệt Diệt Lôi Tiễn, phối hợp huyết mạch của Sư Vương và Cực Dương Đạo Thể, là đòn sát thương mạnh mẽ duy nhất của Lạc Vân, một khi xuất ra vạn vật trong vòng mười trượng đều tan rã. 
 
-Hai mắt lam quang vụt tắt, Lạc Vân ngã xuống đất, cả người không còn sức lực. Chỗ cổ họng, một đoàn lôi quang ẩn hiện do lực lượng khống chế không tinh xảo, dẫn tới ứ đọng lôi điện chi lực trong khí quản, trong vòng ba ngày Lạc Vân khó thở, hơn nữa không thể nói chuyện, không thể ăn uống, càng không thể niệm chú. 
+Hai mắt lam quang vụt tắt, Lạc Vân ngã xuống đất, cả người không còn sức lực.
+
+Đây không phải là suy sụp về thể xác, mà cả suy sụp về tinh thần. Ký ức bị phong ấn một lần nữa mở ra, giống như lũ quét cuốn phăng mọi thứ, đối với tinh thần của một đứa trẻ lên ba mà là một cú đả kích rất lớn. 
+
+Chỗ cổ họng, một đoàn lôi quang ẩn hiện do lực lượng khống chế không tinh xảo, dẫn tới ứ đọng lôi điện chi lực trong khí quản, trong vòng ba ngày Lạc Vân khó thở, hơn nữa không thể nói chuyện, không thể ăn uống, càng không thể niệm chú. 
 
 Gió nổi lên, xoáy vào người hắn, lạnh buốt thấu xương. Mê vụ cuồn cuộn, rít gào như long xà. Lạc Vân sử dụng huyết mạch chi lực quá độ, khí tức tiết ra ngoài bị Cổ Lâm cảm ứng. 
 
-Dong lão từng nói Cổ Lâm từ xưa không người. Phàm là con người tiến vào Cổ Lâm, kết quả cuối cùng đều là một đám xương trắng. Hơn nữa, Cổ Lâm càng không dung Lạc Vân. Huyết mạch của Lạc Vân, cho dù là Cực Dương Đạo Thể hay không, đều bị pháp tắc Cổ Lâm dốc sức tận diệt.
+Dong lão từng nói Cổ Lâm từ xưa không người. Phàm là con người tiến vào Cổ Lâm, kết quả cuối cùng đều là một đám xương trắng. Hơn nữa, Cổ Lâm càng không dung Lạc Vân. Huyết mạch của Lạc Vân, cho dù là Cực Dương Đạo Thể hay không, đều bị pháp tắc Cổ Lâm dốc sức tận diệt. Đây là một câu hỏi chưa có lời giải. 
 
-Kiếp phong, mê vụ tựa như những con độc trùng, xoáy vào thất khiếu của Lạc Vân. Nhưng chúng không thể tiến vào. 
+Kiếp phong, mê vụ tựa như những con độc trùng, xoáy vào thất khiếu. Lạc Vân nhất thời cảm thấy toàn thân nóng rát, tựa như bị dầu sôi đổ lên. Lạc Vân liều mạng điều động huyết mạch chi lực. 
 
-Khắp người Lạc Vân, kim lôi nổ vang, từng tiếng sư ngâm vang dội, không khí ngập mùi lôi phạt. Khí linh lôi sư từ Tang Cung bay ra, đứng thủ trên ngực, miệng ngập một tiểu ấn điêu khắc cửu long tranh châu, phát ra tiếng chú ngữ trầm trầm: 
+Linh khí vào cơ thể nếu không bị bài xích ra ngoài thì quỷ dị biến mất, Lạc Vân chỉ có thể dựa vào huyết mạch!
 
-"Lấy danh của ta, Chưởng Ấn chi giả, 
-Lạc Vân ngây thơ chân chất, một lòng cầu đạo, không có dị tâm. Xưa vì ta tham lam tài phú, làm nhân loại vô tội rơi vào Cổ Lâm, nay nguyện tổn âm đức hao dương thọ, khẩn cầu Pháp Tắc Chi Linh tỉnh giấc suy xét!" 
+Huyết mạch vận chuyện cực hạn, lôi vân trên bầu trời tụ tập, một tia sét đánh xuống!
 
-Tiếp theo đó, Khổng Tước Bình An Phù cũng loé sáng, hư ảnh Cự Viên mặc nho bào xuất hiện, trên tay cầm một quyển kinh thư:
+Ầm!
 
-"Lấy danh của ta, Chưởng Thư chi giả, 
-Lạc Vân ngây thơ chân chất, một lòng cầu đạo, không có dị tâm. Xưa vì ta tham lam tài phú, làm nhân loại vô tội rơi vào Cổ Lâm, nay nguyện tổn âm đức hao dương thọ, khẩn cầu Pháp Tắc Chi Linh tỉnh giấc suy xét!" 
+Ngay lúc đó, trên người Lạc Vân vang lên tiếng sư gầm, một giọt dịch màu vàng từ trong cơ thể phóng ra, chắn lấy lôi kiếp. 
 
-Theo sau Cự Viên, hư ảnh Huyền Quy cũng xuất hiện bên cạnh Càn Khôn Quy Giáp, lưng đội một tấm bia lớn: 
-"Lấy danh của ta, Chưởng Bi chi giả, 
-Lạc Vân ngây thơ chân chất, một lòng cầu đạo, không có dị tâm. Xưa vì ta tham lam tài phú, làm nhân loại vô tội rơi vào Cổ Lâm, nay nguyện tổn âm đức hao dương thọ, khẩn cầu Pháp Tắc Chi Linh tỉnh giấc suy xét!" 
+Là Thánh Nguyên Kim Du! 
 
-Cỏ cây lay động, Dong lão không hiện hư ảnh, mà tiếng lại truyền khắp Cổ Lâm: 
+Thánh Nguyên Kim Du nọ vẫn ở trong người Lạc Vân. Theo tiếng sư ngâm, Thánh Nguyên Kim Du tan biến, hư ảnh Sư Vương hiện ra. 
 
-"Lấy danh của ta, Chưởng Lâm chi giả, 
-Lạc Vân, dòng dõi loài người, vận mệnh trớ trêu, rơi vào Cổ Lâm. Đứa trẻ này mệnh tuy khổ sở, nhưng ý chí kiên cường; chịu đói khát tra tấn, khổ luyện đạo thuật, báo hiếu dưỡng phụ; bản tính thiện lương, giúp người quên mình. Có trăm ngàn thảo mộc đều thấy, vạn thú Cổ Lâm làm chứng.  
+"Ta lấy thân hoá về nguyên thuỷ, đạo ta trở về ban sơ, linh khí quay về hỗn độn, trọc khí hoá về hư vô ..."
 
-Pháp Tắc Chi Linh, xin mời tỉnh giấc nghe chúng sinh!" 
+Hư ảnh Sư Vương chắn lấy lôi kiếp. Vụt một tiếng, hư ảnh tan biến, phần còn lại hoá thành một lớp dịch thuỷ, rơi trên người Lạc Vân. 
 
-Theo tiếng của Dong lão, mê vụ vần vũ, cảnh vật trở nên mơ hồ. Trong Cổ Lâm, vô số dị tượng xuất hiện.
+Cuồng phong nổi lên, trong ngọn gió tựa hồ có trăm ngàm lưỡi dao vô hình cắt vào da thịt. Cơ thể Lạc Vân lại vọng ra tiếng vượn hú, một giọt dịch màu vàng lại lần nữa phóng ra, tạo thành quang mạc. Âm thanh của Cự Viên cũng xuất hiện: 
 
-Đông Việt Hải sóng lớn cuồn cuộn, hai xoáy nước lớn quấn vào nhau, tựa như một đôi mắt khổng lồ. Một giọng nói trầm trầm xuất hiện bên tai của toàn bộ dị thú:  
+"Ta lấy thân ta hoá về nguyên thuỷ, đạo ta trở về ban sơ, linh khí quay về hỗn độn, trọc khí hoá về hư vô ..." 
 
-"Đông Phương Chi Linh ..." 
+Quang mạc chắn lấy cương phong, sau đó cũng tắt lịm. 
 
-Một vệt thanh quang cực lớn loé lên, quấn quanh bản thể của Dong lão. Đây là một sinh vật, toàn thân chìm trong mê vụ không thấy rõ thân hình, chỉ có đôi mắt sáng quắc tựa như hải đăng, phát ra mộc khí vô tận. 
+Cương phong vẫn tiếp tục, lôi điện vẫn đãnh xuống. Nhưng lúc đó, trong người Lạc Vân lại có vô số ánh sáng phóng ra. 
 
-"Tây Phương Chi Linh ..." 
+Đó là Dong lão, hiền từ niệm chú: 
 
-Đồng bằng phía nam, vô số đoá hoa nở rộ tạo thành một cặp mắt khổng lồ, con người toả ra thất thải huyễn quang trong sương mù vô tận. 
+"Ta lấy thân ta hoá về nguyên thuỷ, đạo ta trở về ban sơ, linh khí quay về hỗn độn, trọc khí hoá về hư vô ...." 
 
-"Nam Phương Chi Linh ..."
+Đó là Ô Lão Quy, mặc dù nghiến răng nghiến lợi, chú ngữ vẫn đều đều không dứt: 
 
-Liền sau đó, mặt đất rung động, đá núi tách ra, như đẽo như gọt. Một đôi mắt xám tro to lớn, treo lưng chừng núi, phát ra ánh sáng nhạt soi sáng cả vùng mê vụ. 
+"Ta lấy thân ta, hoá về nguyên thuỷ, đạo ta trở về ban sơ, linh khí quay về hỗn độn, trọc khí hoá về hư vô ..." 
 
-"Bắc Phương Chi Linh ..." 
+Thiên kiếp hãy còn tiếp tục. Lôi đình, cương phong vẫn thét gào không dứt. Tuyết bắt đầu rơi, đổ xuống trên cành lá như mái tóc bạc người già. Mỗi một hạt tuyết rơi xuống, như có năm tháng trôi qua, buồn vui trôi mất, chỉ còn tuổi già cô độc. Quang mạc xung quanh Lạc Vân dính phải tuyết này đều từ từ héo rũ, như lá về già phải tìm về mặt đất. 
 
-Bốn âm thanh hoà vào làm một, tựa như hư không buông tiếng thì thầm: 
+Nhưng mà quang mạc vẫn chưa bao giờ tắt. Lớp trước vừa phai, lớp sau đã tới. 
 
-"Tứ Linh tề tụ nghe chúng sinh ..." 
+Cơ thể Lạc Vân có muôn vàn điểm sáng, biến ảo thành hình dạng khác nhau. 
 
-Cổ Lâm mê vụ che kín tầm mắt, đột nhiên có ngàn vạn cột sáng phóng lên trời. Cỏ cây có linh hồn, có cảm xúc, có kí ức. Linh hồn của nghìn tỷ thảo mộc dao động, dù yếu ớt, dù ít ỏi, lại quyện vào nhau, biến thành trăm vạn cột sáng chiếu vào mê vụ, hiện ra những hình ảnh mơ hồ, không rõ. 
+Đó là những dấu ấn chúc phúc, bằng cách này hay cách khác, Cổ Lâm đã để lại trên người Lạc Vân.
 
-Tiểu Lạc Vân đi qua đồng bằng, mặt cười hớn hở, trong tay áo giấu một túi hạt giống rải khắp nơi, lại làm như vô tình để hoa lá cắt vào tay, rỉ máu nhỏ máu điểm linh. Mỗi ngày một canh giờ, ngày qua ngày, tháng qua tháng, tiểu Lạc Vân ăn vào dược thiện, dùng thân thể luyện hoá, tách ra dược lực tinh thuần, lấy đó mà gieo mầm hoa, trồng thảo mộc, nhỏ máu khai linh, lan toả sức sống của mình cho Cổ Lâm trăm ngàn chủng loài thực vật. Đối với tiểu Lạc Vân, đó là giờ phút hiếm hoi được ra ngoài chơi, mọi hành động chỉ xuất phát từ bản năng, cảm thấy thoải mái khi được hoa cỏ hoan hô, nhưng đối với thảo mộc, đó là đại ân tạo hoá, khai sáng sinh mệnh. 
+Đó là trên tóc, một nụ hôn yêu thương. Đó là trên vai, một cái vỗ vai tin tưởng. Đó là ngang hông, một cái ôm chúc phúc. Đó là trên bàn tay, một cái nắm tay trìu mến. Đó là cái áo trên người, từ Lưu Ly Bảo Y cho tới nội y nhỏ nhất. Là dầu bôi trên tóc, là hương hoa đọng trên vai, là giọt sương mai mà nhành cỏ quẹt vào mép áo. 
 
-Hành động của Lạc Vân hoàn toàn xuất phát từ bản năng thuần lương, không ai thúc đẩy, càng không mưu lợi. Cỏ cây linh tính yếu ớt, nhưng lại không có ngũ giác, không có tham sân si, chỉ cảm nhận bằng linh hồn, cho nên càng nhạy cảm với thiện ác. 
+Đó là hạt cơm nhỏ, là ngụm nước uống, là hơi thở của Cổ Lâm, là tinh hoa trong cốt tuỷ, là cơ thịt trên người, là máu chảy trong tim! 
 
-Tây Phương Chi Linh mắt xanh bùng lên sáng rực, gật đầu một cái. 
+Bởi vì đâu, Lạc Vân lớn lên? Bởi vì đâu, Lạc Vân sống sót? Đâu chỉ là Sư Vương hi sinh, mà là vạn thú cùng góp. 
 
-Trong ngàn vạn cột sáng, không chỉ có cỏ cây hoa lá, còn có những tiếng thì thầm. Đó là tiếng nói nội tâm, là tiếng lòng của dị thú. 
+Tinh huyết Lạc Vân sinh ra, diệu dụng vô vàn, từ đâu đánh đổi? Là hàng nghìn giọt Thánh Nguyên Kim Du, thông qua bí pháp, thành gạo thành cơm, thành mật thành sữa, đi vào người Lạc Vân, thành da thành tóc, thành máu thành thịt. 
 
-"Hết rồi! Được sống rồi! Bầy hung tránh lui!  ... mũi tên kia là ai bắn ... tiểu Lạc Vân? Quả nhiên ..." 
+Lạc Vân vì đâu không bị hung thú truy đuổi? Là do vạn thú gửi lời chúc phúc, cái ôm cái hôn, năm tay thân mật. Là vạn thú gửi ý chí của mình người Lạc Vân, để hài tử số khổ được một đời bình an. 
 
-"Phá Chướng Đan này là từ tiểu Lạc Vân? Tiểu hài tử trắng trắng mềm mềm dễ thương như vậy ..." 
+Và rồi, bây giờ thiên kiếp giáng xuống, ý chí của vạn thú toàn bộ bộc phát. 
 
-"Mặc dù tiểu Lạc Vân nhìn thực sự đáng ghét, nhưng mà mình sống được đều nhờ nó ..." 
+Có những thứ, một mình Sư Vương không làm được, nhưng có vạn thú trong Cổ Lâm, tất cả đều rất dễ dàng. 
 
-"Tiểu hài tử còn nhỏ như vậy mà trích máu luyện đan cũng không nhíu mày ... hôm qua ta thấy nó nhìn Sư Vương rụng tóc, lén lén khóc lại lau đi ..." 
+Giữa thiên kiếp nổ vang, thét gào như thú dữ, giọng của Dong lão truyền vào tai Lạc Vân:
 
-"Ngươi không được lừa gạt tiểu Lạc Vân như vậy ... nó còn là hài tử ... nhưng mà tựa như nó cũng biết mình bị gạt, lại cố tình không phanh phui?" 
+"Lạc Vân, tiểu Lạc Vân, nhớ lấy, ghi lấy, dù có chết đi, chuyển thế luân hồi, đời đời kiếp kiếp, vĩnh viễn cũng không được quên.
+Bát cơm con ăn, quần áo con mặc, bước chân con đi, cả giọt máu trên người, tinh tuỷ trong cốt, nhịp tim trong ngực đều là từ mảnh đất này, từ trăm ngàn dị thú, cắn răng chịu đau, bỏ qua thọ mệnh, luyện xương thành dịch, ngưng thành Kim Du. Con thở hơi thở của Cổ Lâm, máu trên người con là của Cổ Lâm, thịt trên người con do Cổ Lâm nuôi lớn, xương cốt con cứng cáp nhờ Cổ Lâm dưỡng dục. 
+Con không cần báo ân, không cần tự trách. Chỉ cần con sống sót. Sống thật tốt. 
+Tất cả chỉ vì con sinh ra ở Cổ Lâm."   
 
-"Lâu ngày không gặp, không biết tiểu Lạc Vân và Sư Vương thế nào rồi ... aizz, Sư Vương cũng thật là chấp nhất" 
+Giữa mùa thu tuyết đổ xuống đầu, cái rét lạnh buốt xương da. Mỗi cơn gió thổi qua, quang mang bao quanh Lạc Vân lại chớp động, nhưng lại vững chãi không ngã, càng ngày càng dày. 
 
-"Hôm qua tìm Lạc Vân đi săn thật là vui ... không biết hắn học bắn cung như thế nào, thật là giỏi ..." 
+Tiếng chú ngữ râm ran, lan tràn như một nghi thức tế thần cổ xưa. Linh Lung Tiên Lộc âm thanh trầm trầm, Thiên Hồn Tuyết Lang khàn khàn, Cửu Mệnh Linh Miêu giọng cao vút. Cả thảo mộc chi linh vừa khai linh trí, vẫn chưa biết tiếng người, thần thức còn ban sơ cũng dùng dao động mà tụng niệm chú ngữ. 
 
-"Bắn cung chỉ là tài lẻ thôi, tiểu Lạc Vân giỏi nhất là cầm ca, thư hoạ! Nghe nói có thể làm cho tâm linh thông suốt, thậm chí cơ duyên còn có thể ngộ đạo!" 
+"Ta lấy thân ta, hoá về nguyên thuỷ, đạo ta trở về ban sơ, linh khí quay về hỗn độn, trọc khí hoá về hư vô ..." 
 
-"Lạc Vân vì mình vẽ xướng khúc Vân Du, giúp mình vượt qua thập niên chi kiếp ... ngược lại nó lại hôn mê mấy ngày ... thật là có lỗi ..." 
+Và còn bao nhiêu dị thú khác nữa, Lạc Vân chưa hề gặp mặt, chưa hề biết tên, trăm vạn thảo mộc chi linh Lạc Vân chưa hề gặp gỡ. Nhưng chúng tồn tại, biết đến Lạc Vân, hi sinh một phần cơ thể để gửi lời chúc phúc. 
 
-"Aizz, trăm năm trong cõi người ta, chữ tài chữ mệnh khéo là ghét nhau. Thiên phú như thế, mệnh lại như thế ...
+Lạc Vân chống người ngồi dậy, quỳ xuống: 
 
-Đó là âm thanh của thế hệ dị thú trẻ tuổi, lại có tiếng dị thú già dặn, trầm ổn:
+"Con biết rồi ... con sinh ra ở Cổ Lâm ... trong người con có Cổ Lâm." 
 
-"Uhmm ... ah ... bà bà hôn một cái ... chúc cho tiểu Lạc Vân một đời bình an" 
+Trong thiên lôi nổ vang, Lạc Vân cúi đầu, lạy ba lạy:
 
-"Lại đây cho ca ca ôm một cái, ca ca chính là đệ nhất thuỵ thú, nhất định tiểu Lạc Vân sẽ được dính lây phúc lành!" 
+"Một lạy ... ơn cưu mang dưỡng dục, rút cốt nuôi con suốt một nghìn ngày." 
 
-"Trồng linh mễ, tưới bằng Thánh Nguyên Kim Du, hi vọng tiểu Lạc Vân không phát hiện ... cái đứa nhỏ cứng đầu vậy mà nhịn ăn một tuần liền ..." 
+"Hai lạy ... ơn điểm hoá khai trí, dạy con biết sống, và cả biết chết. Sống cho Cổ Lâm. Chết vì Cổ Lâm." 
+
+Hai lạy này hạ xuống, tựa như pháp tắc Cổ Lâm có cảm ứng, thiên kiếp dần yếu đi, từ từ tắt hẳn. Lạc Vân tiếp tục: 
+
+"Ba lạy ... nguyện thân con hoá về nguyên thuỷ, đạo con trở về ban sơ, linh khí quay về hỗn độn, trọc khí hoá về hư vô ..."  
+
+Theo tiếng chú ngữ này vang lên, Lạc Vân cảm thấy một ngọn lửa dâng lên từ trong tim, sau đó lan ra tứ chi. Lạc Vân bắt đầu dùng pháp quyết, khu động huyết mạch, hướng ngọn lửa này đi khắp cơ thể. 
+
+Dần dà, một lưỡi dao vô hình theo pháp quyết biến đổi xuất hiện, chém vào xương sống. 
+
+"A!!!!!!!!!!!!!!!" 
+
+Cơn đau thấu trời, không thể nào tả hết, nhưng Lạc Vân cắn răng chịu đựng. Đây là cơn đau dị thú vì mình trải qua, chút đau khổ này hồi báo thì đã là gì!
+
+Xương sống chứa cốt tuỷ, là nơi sinh ra huyết mạch. Lạc Vân luyện hoá một đốt xương sống, theo tâm hoả trong tim, dần chuyển thành dịch thể. Vốn dĩ theo đan phương phải dung hợp tu vi cùng với dược liệu, nhưng Lạc Vân không cần. Tinh huyết của Lạc Vân là thứ dược liệu mạnh nhất trên đời. 
 
