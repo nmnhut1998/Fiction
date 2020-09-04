@@ -186,17 +186,191 @@ Hai mắt lam quang vụt tắt, Lạc Vân ngã xuống đất, cả người k
 
 Chỗ cổ họng, một đoàn lôi quang ẩn hiện do lực lượng khống chế không tinh xảo, dẫn tới ứ đọng lôi điện chi lực trong khí quản, trong vòng ba ngày Lạc Vân khó thở, hơn nữa không thể nói chuyện, không thể ăn uống, càng không thể niệm chú. 
 
-Gió nổi lên, xoáy vào người hắn, lạnh buốt thấu xương. Mê vụ cuồn cuộn, rít gào như long xà. Lạc Vân sử dụng huyết mạch chi lực quá độ, khí tức tiết ra ngoài bị Cổ Lâm cảm ứng. 
+Không gian đột nhiên im ắng lạ thường. Gió bắt đầu thổi to, nhưng cây cối không hề lay động. Mê vụ xuất hiện, cuồn cuộn như bầy cự long khổng lồ, chen chúc nhau che cả bầu trời. 
 
-Dong lão từng nói Cổ Lâm từ xưa không người. Phàm là con người tiến vào Cổ Lâm, kết quả cuối cùng đều là một đám xương trắng. Hơn nữa, Cổ Lâm càng không dung Lạc Vân. Huyết mạch của Lạc Vân, cho dù là Cực Dương Đạo Thể hay không, đều bị pháp tắc Cổ Lâm dốc sức tận diệt. Đây là một câu hỏi chưa có lời giải. 
+Tuyết bắt đầu rơi, xuyên qua mê vụ, chạm vào đầu ngón tay Lạc Vân. Một đoá hoa tuyết nhỏ nhoi, chạm vào da tay tan ra thành nước, thấm vào da thịt. Cánh tay của Lạc Vân lập tức trở nên gân guốc, làn nha nhăn rộ lõ tĩnh mạch xanh xao. Cuối cùng, cơ tay thoái hoá, teo dần lộ ra xương. 
 
-Kiếp phong, mê vụ tựa như những con độc trùng, xoáy vào thất khiếu. Lạc Vân nhất thời cảm thấy toàn thân nóng rát, tựa như bị dầu sôi đổ lên. Lạc Vân liều mạng điều động huyết mạch chi lực. 
+Một đóa hoa tuyết, sáu mươi năm tuổi thọ. 
 
-Linh khí vào cơ thể nếu không bị bài xích ra ngoài thì quỷ dị biến mất, Lạc Vân chỉ có thể dựa vào huyết mạch!
+Lạc Vân vịn vào thân cây, rướn người đứng dậy. Gió thổi hoa tuyết rơi, lạnh buốt thấu xương, áp vào cánh tay, thổi vào mặt, vào má, vào hai mắt. 
 
-Huyết mạch vận chuyện cực hạn, lôi vân trên bầu trời tụ tập, một tia sét đánh xuống!
+Khoé môi Lạc Vân run run, dường như muốn nói điều gì đó, nhưng cổ họng khàn rồi, lời nói chỉ còn là một chuỗi khẩu hình. 
 
-Ầm!
+Nói rằng: "Năm đó, trong tiếng khóc mùa đông, có người cha tuyết trắng nhuộm đầu ..." 
+
+Đình viện quanh năm nếu không phải nắng to thì là tuyết buốt, Lạc Vân càng không sợ lạnh. Lạc Vân chỉ là sợ tuyết. Sợ nhìn cha đứng trong tuyết ngẩn người. 
+
+Vòm trời mùa đông hạ thấp xuống, Kim Lôi Sư Vương vóc dáng cao lớn, tựa như thiên trụ sừng sững, chống được cả trời tuyết đổ. Nhưng mà mái tóc vàng cũng rất nổi bậc, từ từ bị tuyết nhuộm đi, biến thành trắng xoá.
+
+Lạc Vân cứ hay có ác mộng, một hôm nào đó tuyết đổ trắng đầu, tóc của cha vĩnh viễn không còn màu vàng nữa ...
+
+Bất giác, nước mắt chảy xuống, một giọt trong suốt như pha lê. 
+
+Cánh tay gắng sức giơ lên, Lạc Vân bắt đầu làm phép. Hắn biết rằng mình có thể bị trọng thương, có thể ngất xỉu, có thể mất hết tiềm lực, duy chỉ là không được chết. Vì chết là hết. 
+
+Theo Lạc Vân thi pháp, huyết mạch trong cơ thể bắt đầu nghịch chuyển, một ngọn lửa vô hình sinh ra. Ngọn lửa này đốt tuyệt vạn vật, gió thổi tuyết đến, tuyết tan thành nước, bốc hơi thành một làn khói linh khí mỏng tanh, sau cùng linh khí cũng hoá thành hư vô. 
+
+Lạc Vân cũng đang cháy. Tựa như ngọn đèn lồng, trong trời tuyết trắng, phàm là thứ đến gần Lạc Vân một tấc đều bốc cháy, hoá thành hư vô. 
+
+Thứ cháy đầu tiên, là tinh huyết. Tinh huyết của Lạc Vân tựa như dầu, tinh huyết này còn, ngọn lửa này còn. 
+
+Lạc Vân biết tiếp theo sẽ là đến da thịt. Da thịt sẽ nhanh chóng tan rã, đầu tiên bị đốt thành linh khí bốc lên, trọc khí hoá thành muội than rơi xuống. Sau đó, linh khí cùng trọc khí đều bị đốt cháy, hoá thành hư vô. Cuối cùng, Lạc Vân sẽ trở về thiên địa, ngay cả một nhúm tro cốt cũng không còn.
+
+Lửa này vô danh, đốt cả linh khí, thiêu cả sinh mệnh, lại là chí dương chí cực, nên gọi là Cực Dương Nhiên Sinh Hoả. Ngọn lửa này là một trong những bí mật nằm sau Cực Dương Đạo Thể. Họ là cực dương đạo thể, thân thể không nhiễm bụi trần, bởi vì có lửa này tinh lọc. Nhưng thế gian ô uế, vạn vật không thuần, Cực Dương Đạo Thể càng không có thức ăn, nước uống, cũng vì đó mà diệt vong. 
+
+Tựa như bản năng chưa bao giờ cần học, Lạc Vân biến ấn quyết, một đạo pháp thuật đánh ra, tinh huyết và hoả diễm thoát khỏi cơ thể, lơ lửng trước người. Đến khi Lạc Vân hao hết tinh huyết, hoả diễm ngưng hình thành một ngọn đèn dầu lơ lửng trước mặt. Ngọn đèn dầu này xuất hiện, trong không gian xuất hiện một thanh âm trong trẻo, tựa như tiếng sơn ca hót vang:  
+
+"Đốt tận trời cao thiêu nhật nguyệt 
+Cổ kim diệt tuyệt Nhiên Linh Đăng!" 
+
+Nhiên Linh Đăng mang ánh sáng trắng dịu nhẹ, tựa như khói sương. Những nơi ánh sáng bao phủ, lập tức nhiệt độ tăng cao, nồng độ linh khí tăng vọt, tro bụi rơi xuống như mưa. Đó là dấu hiệu của vật chất bị đốt, một lần nữa biến thành linh khí và trọc khí.
+
+Nhưng tinh huyết không đủ, Nhiên Linh Đăng bập bùng, ảm đạm. Da thịt của Lạc Vân cũng nóng lên, bắt đầu rút ra tinh hoa, hoá thành nhiên liệu. 
+
+Đúng lúc đó, ánh đèn chuyển đổi, trong cơ thể Lạc Vân, nơi trái tim vẫn còn đang nhịp, một giọt máu sáng lên, phóng ra ngoài, nhập vào Nhiên Linh Đăng. 
+
+Trong thảng thốt bàng hoàng, Lạc Vân thấy một bóng lưng cao lớn từ trong quầng sáng bước ra, mái tóc vàng buông xoã ngang vai chắn trước trời gió tuyết. Tinh huyết trên người Lạc Vân không tiêu hao nữa, da thịt vẫn còn nguyên vẹn. Một giọt Thánh Nguyên Kim Du trong cơ thể đã biến mất.
+
+"Vân nhi đừng sợ, chỉ là dầu thắp đèn mà thôi." 
+
+Bóng lưng kia đứng chắn trước người Lạc Vân, gió tuyết phải rẽ sang hai bên, vòm trời trên đỉnh đầu càng trở nên quang đãng. 
+
+Dù chỉ là hư ảnh, nhưng lại càng hoàn mỹ, càng uy nghiêm. Hư ảnh này vĩnh viễn đứng ở phía trước, mắt hướng về bầu trời. Đây là Sư Vương của ba năm trước. Thánh Nguyên Kim Du hiển hoá ra hư ảnh, uy nghiêm như thánh, vĩ đại như thần. Theo Thánh Nguyên Kim Du thiêu đốt, một câu chú ngữ cuối cùng vang lên - câu chú ngữ để Kim Du và Lạc Vân hoàn toàn hoà cùng một thể: 
+
+"Nguyện thân ta đoạ vào hỗn độn, đạo ta trở về ban sơ, tên của ta vĩnh viễn phai mờ ..." 
+
+Chú ngữ vang lên bên tai, tiếng "cha" nghẹn ở trong cổ họng thật lâu, không thể nói ra, đau rát đến tim phổi. 
+
+Nhưng thiên kiếp vẫn còn đó, gió tuyết còn gào thét, quay quanh Lạc Vân, mê vụ cuồn cuộn quay quanh, tựa như một  vòi rồng khổng lồ nối giữa bầu trời và mặt đất. Luồng gió tuyết lướt qua người Lạc Vân, đang muốn xộc vào mặt. Đúng lúc đó, quần áo trên người Lạc Vân lại sáng lên. 
+
+Vẫn là chú ngữ, giọng trầm trầm kiểu nhà sư, hư ảnh Viên thúc thúc chắn ở sau lưng: 
+
+"Tiểu tử, sau này phải trả Viên thúc thúc trăm ức linh thạch! 
+Nguyện thân ta đoạ vào hỗn độn, đạo ta trở về ban sơ, tên của ta vĩnh viễn phai mờ ..." 
+
+Gió tuyết không nơi nào không bao phủ, hai hư ảnh không thể chắn hết cho Lạc Vân. 
+
+Hai không đủ, vậy thì thêm vào. Trên trán của Lạc Vân, một hư ảnh đỏ rực, đang cúi đầu hôn nhẹ, vết hôn tưởng chừng đã phai nhưng vẫn còn lưu vết. 
+
+"Tiểu Lạc Vân thật là dễ thương, đáng tiếc mệnh khổ ... đừng khóc ... có Hoả Hồ bà bà ở đây, Sư Vương không dám đánh con ... 
+
+Nguyện thân ta đoạ vào hỗn độn, đạo ta trở về ban sơ, tên của ta vĩnh viễn phai mờ ..." 
+
+Bên hông Lạc Vân, một hư ảnh lại hiện ra, lộng lẫy ngũ sắc hào quang, hai cánh dang rộng ôm lấy Lạc Vân: 
+
+"Tiểu Lạc Vân đừng sợ, Khổng Tước ca ca là thuỵ thú bậc nhất Cổ Lâm, ôm một cái sẽ may mắn một đời ...
+
+Nguyện thân ta đoạ vào hỗn độn, đạo ta trở về ban sơ, tên của ta vĩnh viễn phai mờ ..." 
+
+Hư ảnh liên tiếp từ ngọn đèn bước ra, tạo thành vòng tròn chắn quanh người Lạc Vân, lớp này nối lớp khác. Có hư ảnh không chịu được, vụt một tiếng tắt đi, lại có cái khác sinh ra. 
+
+Một hư ảnh là một giọt Thánh Nguyên Kim Du, là một khúc xương, là chục năm thọ nguyên - thứ quý nhất Cổ Lâm - nơi mà một kiếp tu hành bất quá trăm năm. Chẳng biết từ bao giờ và bằng cách nào, trong cơ thể Lạc Vân có nhiều kim du đến như vậy.
+
+Chúng đến từ một cái hôn lên trán, một vòng tay chúc phúc, một cái vỗ vai tin tưởng. Chúng đến từ dầu bôi tóc, từ hương hoa đọng trên vai, từ giọt sương mai mà nhành cỏ đọng vào mép áo - đó là thảo mộc chi linh, âm thầm, lặng lẽ chúc phúc. 
+
+Lại có hào quang vụt tắt, lại càng có nhiều hào quang sáng lên. Hào quang đó đến từ quần áo, từ Lưu Ly Bảo Y tinh xảo cho đến nội y nhỏ nhất. Hào quang đó đến đầu lưỡi, nơi vị ngọt mật ong vẫn còn vương, từ trong dạ dày, bữa cơm trước vẫn còn chưa tiêu hoá. 
+
+Kim Du, Kim Du! Dầu thắp đèn, quý không phải ở tinh hoa nó chứa, mà là ở khả năng tích luỹ và tồn trữ lâu dài! 
+
+Từ trong xương tuỷ, ánh sáng bừng lên, từ trong máu thịt, ánh sáng rạng ngời. Hư ảnh như rừng, vây quanh Lạc Vân, trên trời dưới đất, kín không kẽ hở. 
+
+Bởi vì đâu, Lạc Vân lớn lên? Bởi vì đâu, Lạc Vân sống sót? Đâu chỉ là Sư Vương hi sinh, mà là vạn thú cùng góp. 
+
+Tinh huyết Lạc Vân sinh ra, diệu dụng vô vàn, từ đâu đánh đổi? Là hàng nghìn giọt Thánh Nguyên Kim Du, thông qua bí pháp, thành gạo thành cơm, thành mật thành sữa, đi vào người Lạc Vân, thành da thành tóc, thành máu thành thịt. 
+
+Thánh Nguyên Kim Du là tu vi, là thọ nguyên, là máu thịt, là sức sống, chảy từ người dị thú, từ ngàn vạn thảo mộc chi linh, hoá thành Lạc Vân hôm nay - mỗi tấc da thịt đều là đánh đổi. 
+
+Là tiếng của hư không, hay là tiếng lòng kêu gọi, bên tai Lạc Vân, âm thanh thần bí lẩn quẩn: 
+
+"Lạc Vân, tiểu Lạc Vân
+Có nghe được không, nghe thấy không? 
+Một nghìn ngày con lớn nên hình hài
+Trong bát cơm, manh áo, chiếc giày
+Giọt máu đỏ đổi bằng xương cốt
+Dị thú cười trong cơn đau quằn quại 
+"Tiểu Lạc Vân được sống thêm một ngày" 
+
+Lạc Vân, tiểu Lạc Vân, 
+
+Con chẳng biết đâu, chẳng biết đâu
+Một nghìn ngày học đúng sai phải trái
+Chí làm trai đầu gối thẳng không cong
+Nhưng chẳng biết có người cha cúi lạy
+Để tiểu Vân được sống thêm một ngày ..." 
+
+Khoé mắt phiếm hồng, tầm nhìn lưu mờ. Lạc Vân mò mẫm, một tay đặt trước ngực. Trăm ngàn giọt Kim Du 
+
+
+Lạc Vân, tiểu Lạc Vân,
+Đứng dậy đi, hãy đứng dậy đi
+Cổ Lâm ta, chết già, chết trận
+Chưa có trẻ con chết đói bao giờ!
+Thanh Lâm kia, biển học vô bờ
+Chưa có trẻ chết trên đường đi học!
+
+
+
+Quân du thiên dạ thiên trường khiếu
+Để lạc phàm trần nhất Lạc Vân
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+"Lạc Vân, tiểu Lạc Vân, 
+Nay con đã lớn nên hình hài, 
+Có thấy không, tim đập và máu chảy
+Cùng một nhịp với hết thảy chúng ta?" 
+
+"Lạc Vân, tiểu Lạc Vân
+Bát cơm thơm dẻo muôn phần,
+Có thấy không, mùi mặn và vị đắng
+
+
+Có nghe không, tim đập và máu chảy
+Ngày hôm nay, và muôn ngày sau nữa 
+Trong người con, chảy mạch sống Cổ Lâm ..." 
+
+"Lạc Vân, tiểu Lạc Vân,
+Nay con đã lớn nên hình hài, 
+Có thấy không, trong xương 
+
+
+Hạt cơm dẻo, giọt sữa thơm đã hoá thành máu thịt, để con khôn lớn trưởng thành, là nhựa sống, chảy trong Cổ Lâm, trăm năm, ngàn năm, đời đời kiếp kiếp. 
+
+
+
+
+"Đừng áp lực, đừng tự trách. 
+Mỗi đứa trẻ trong Cổ Lâm đều có quyền được cười,được khóc và được che chở. 
+Con chỉ cần nhớ, Cổ Lâm là nhà, Thanh Lâm là trường. Cổ Lâm, chưa bao giờ có đứa trẻ nào phải ngã xuống trên đường từ nhà đến trường, miễn là chúng nó còn có thể đi." 
+
+
+
+
+
+
+
+Đó là cái áo trên người, từ Lưu Ly Bảo Y cho tới nội y nhỏ nhất. Là dầu bôi trên tóc, là hương hoa đọng trên vai, là giọt sương mai mà nhành cỏ quẹt vào mép áo. 
+
 
 Ngay lúc đó, trên người Lạc Vân vang lên tiếng sư gầm, một giọt dịch màu vàng từ trong cơ thể phóng ra, chắn lấy lôi kiếp. 
 
